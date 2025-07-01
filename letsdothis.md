@@ -30,7 +30,15 @@ Offers MSA Media & Issues programs, progressing from intermediate to advanced le
 كوكب العلم:
 A science magazine from مكتبة الإسكندرية, available in both English and Arabi
 
-##---------------------------------------
+## ---- Random links-----------------------------------
+
+https://www.almaany.com/ar/dict/ar-ar/%D9%83%D9%8E%D8%A7%D9%86%D9%8E/
+
+https://conjugator.reverso.net/conjugation-arabic-verb-%D9%82%D9%8E%D8%B6%D9%8E%D9%89.html
+
+
+
+## -----------------------
 
 
 
