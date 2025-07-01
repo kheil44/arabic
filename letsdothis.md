@@ -1,3 +1,42 @@
+## hi
+
+https://easyarabicnews.com/category/%d9%85%d8%a8%d8%aa%d8%af%d8%a6/
+
+https://www.naturalarabic.com/
+
+
+Several online resources provide news articles in Modern Standard Arabic (MSA), often with accompanying learning materials. Easy Arabic News offers graded news articles with audio, quizzes, and vocabulary lists. Natural Arabic provides articles with translations and audio, allowing learners to practice reading and listening. Lingualism features news stories with audio and tashkeel for reading practice. ShareAmerica, a multilingual platform, also offers news content in MSA. 
+
+Here's a breakdown of some options:
+
+
+    Easy Arabic News:
+    This website provides graded news articles in MSA with audio and vocabulary support, suitable for learners. 
+    
+
+
+Natural Arabic:
+Offers articles with parallel English translations, transliteration, and audio, catering to various learning levels. 
+
+Lingualism:
+Presents news stories in MSA, specifically designed for reading and listening practice, with tashkeel to aid pronunciation. 
+
+ShareAmerica:
+While not exclusively an Arabic news site, it offers news content in multiple languages, including MSA, with the option to switch between English and Arabic. 
+
+Qasid Online:
+Offers MSA Media & Issues programs, progressing from intermediate to advanced levels. 
+
+كوكب العلم:
+A science magazine from مكتبة الإسكندرية, available in both English and Arabi
+
+##---------------------------------------
+
+
+
+
+
+
 # Arabic Phrase Breakdown
 
 ## Phrase: **أَنَا أَعِيشُ فِي دُبَيْ**
