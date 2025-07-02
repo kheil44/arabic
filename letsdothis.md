@@ -4,7 +4,19 @@
 
 ### ---------------------------------------------
 
+---
+
+
+
 ### ---------------------------------------------
+
+### ---------------------------------------------
+
+### ---------------------------------------------
+
+---
+
+
 
 ### ---------------------------------------------
 
@@ -18,9 +30,8 @@
 
 ### ---------------------------------------------
 
-### ---------------------------------------------
+---
 
-### ---------------------------------------------
 
 "speak slowly" s:
 
@@ -34,6 +45,7 @@ To say "speak slowly" to a female in Arabic, you would say:
 
 
 ### ---------------------------------------------
+---
 
 ### ---------------------------------------------
 
@@ -44,6 +56,8 @@ To say "speak slowly" to a female in Arabic, you would say:
 ### ---------------------------------------------
 
 ### ---------------------------------------------
+
+---
 
 ### ---------------------------------------------
 
@@ -86,6 +100,7 @@ https://conjugator.reverso.net/conjugation-arabic-verb-%D9%82%D9%8E%D8%B6%D9%8E%
 
 
 ## -----------------------
+---
 
 
 
@@ -245,6 +260,9 @@ Let's clarify the difference between the two sentences:
 
 If you have any more questions or need further clarification, feel free to ask!
 
+---
+
+
 ### ---------------------------------------------
 
 To say "I bought a pen from Costco" in Arabic with diacritics, you would say:
@@ -262,6 +280,9 @@ To say "I bought a pen from Costco" in Arabic with diacritics, you would say:
 ### Summary
 
 This sentence conveys that you bought a pen from Costco. If you have any more questions or need further assistance, feel free to ask!
+
+
+---
 
 
 #### ......................
