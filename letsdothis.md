@@ -72,6 +72,59 @@ Yes, both **إنَّهُ** (innahu) and **هَذَا** (hādhā) can be used to 
 
 ### ---------------------------------------------
 
+Certainly! The Arabic preposition **إِلَى (ilā)** means "to" or "toward" and is used to indicate direction, destination, or movement towards a place or person. It can also be used in various contexts, such as expressing time or purpose. Here’s a detailed explanation along with examples:
+
+### Usage of إِلَى (ilā)
+
+1. **Indicating Direction or Destination:**
+   - **أذهب إِلَى السُّوقِ.**  
+     *(Azhabu ilā as-sūqi.)*  
+     "I am going to the market."
+
+   - **سأذهب إِلَى المدرسةِ.**  
+     *(Sa'adhabu ilā al-madrasati.)*  
+     "I will go to the school."
+
+2. **Indicating Time:**
+   - **من الساعةِ الثامنةِ إِلَى الساعةِ العاشرةِ.**  
+     *(Min as-sā'ati ath-thāminati ilā as-sā'ati al-ʿāshirati.)*  
+     "From eight o'clock to ten o'clock."
+
+3. **Indicating Purpose:**
+   - **أحتاج إِلَى المساعدةِ.**  
+     *(Aḥtāju ilā al-musaʿadati.)*  
+     "I need help."
+
+4. **Indicating a Change or Transition:**
+   - **تحوَّلَ إِلَى شخصٍ آخر.**  
+     *(Taḥawwala ilā shakhsin ākhara.)*  
+     "He transformed into another person."
+
+5. **In Expressions of Emotion:**
+   - **أحبُّكَ إِلَى الأبدِ.**  
+     *(Uḥibbuka ilā al-abadi.)*  
+     "I love you forever."
+
+### More Examples:
+
+- **أرسل الرسالة إِلَى صديقي.**  
+  *(Arsil ar-risālah ilā ṣadīqī.)*  
+  "Send the message to my friend."
+
+- **ذهبت إِلَى الحفلةِ.**  
+  *(Dhahabtu ilā al-ḥaflah.)*  
+  "I went to the party."
+
+- **أحتاج إِلَى وقتٍ للتفكير.**  
+  *(Aḥtāju ilā waqtin lit-tafkīr.)*  
+  "I need time to think."
+
+### Summary
+
+The preposition إِلَى (ilā) is versatile and commonly used in Arabic to express direction, destination, time, purpose, and more. It plays a crucial role in forming sentences that convey movement or intention.
+
+If you have any more questions or need further clarification, feel free to ask!
+
 ### ---------------------------------------------
 
 ### ---------------------------------------------
