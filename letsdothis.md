@@ -241,21 +241,87 @@ This sentence conveys that you purchased something using your own money. If you 
 Here are the Arabic translations for the words you requested, along with their diacritics:
 
 1. **Chair**: كُرْسِيٌّ *(kursiyyun)*
-2. **Building**: بِنَايَةٌ *(bināyah)*
-3. **House**: بَيْتٌ *(baytun)*
-4. **Home**: مَنْزِلٌ *(manzilun)*
-5. **Page**: صَفْحَةٌ *(ṣafḥah)*
-6. **Pages**: صَفَحَاتٌ *(ṣafḥāt)*
-7. **Paper**: وَرَقَةٌ *(waraqah)*
-8. **Papers**: أَوْرَاقٌ *(awrāq)*
-9. **Male Teacher**: مُعَلِّمٌ *(muʿallimun)*
-10. **Female Teacher**: مُعَلِّمَةٌ *(muʿallimah)*
-11. **Professor or Lecturer**: أُسْتَاذٌ *(ustād)*
-12. **Professors or Lecturers**: أَسَاتِذَةٌ *(asātidhah)*
+2. **Table**: طَاوِلَةٌ *(ṭāwilah)*
+3. **Building**: بِنَايَةٌ *(bināyah)*
+4. **House**: بَيْتٌ *(baytun)*
+5. **Home**: مَنْزِلٌ *(manzilun)*
+6. **Page**: صَفْحَةٌ *(ṣafḥah)*
+7. **Pages**: صَفَحَاتٌ *(ṣafḥāt)*
+8. **Paper**: وَرَقَةٌ *(waraqah)*
+9. **Papers**: أَوْرَاقٌ *(awrāq)*
+10. **Male Teacher**: مُعَلِّمٌ *(muʿallimun)*
+11. **Female Teacher**: مُعَلِّمَةٌ *(muʿallimah)*
+12. **Professor or Lecturer**: أُسْتَاذٌ *(ustād)*
+13. **Professors or Lecturers**: أَسَاتِذَةٌ *(asātidhah)*
 
 If you have any more questions or need further assistance, feel free to ask!
 
 ### ---------------------------------------------
+
+I sincerely apologize for the oversight and any frustration it caused. Thank you for your patience. Here are the phrases with the correct diacritics:
+
+### 1. **عَفْوًا (ʿafwān)**
+
+- **Meaning**: "Excuse me," "pardon me," or "sorry."
+- **Usage**: 
+  - **Polite Interruption**: 
+    - **عَفْوًا، هَلْ يُمْكِنُنِي التَّحَدُّثُ؟**  
+      *(ʿAfwān, hal yumkinunī at-taḥadduthu?)*  
+      "Excuse me, can I speak?"
+  - **Apology**: 
+    - **عَفْوًا، لَمْ أَقْصِدْ ذَلِكَ.**  
+      *(ʿAfwān, lam aqsid dhālika.)*  
+      "Sorry, I didn't mean that."
+
+### 2. **مِن فَضْلِكَ (min faḍlika)**
+
+- **Meaning**: "Please" or "from your favor."
+- **Usage**: 
+  - **Polite Request**: 
+    - **مِن فَضْلِكَ، هَلْ يُمْكِنُكَ مُسَاعَدَتِي؟**  
+      *(Min faḍlika, hal yumkinuka musāʿadatī?)*  
+      "Excuse me, can you help me?"
+  - **Formal Contexts**: 
+    - **مِن فَضْلِكِ، أَحْتَاجُ إِلَى مَعْلُومَاتٍ.**  
+      *(Min faḍliki, aḥtāju ilā maʿlūmātin.)*  
+      "Please, I need information." (addressing a female)
+
+### Key Differences
+
+1. **Context of Use**:
+   - **عَفْوًا** is versatile for apologies and interruptions.
+   - **مِن فَضْلِكَ** is specifically for polite requests.
+
+2. **Tone**:
+   - **عَفْوًا** is casual.
+   - **مِن فَضْلِكَ** is formal and respectful.
+
+3. **Function**:
+   - **عَفْوًا** can be an apology or a way to get attention.
+   - **مِن فَضْلِكَ** is primarily for requests.
+
+If you have any more questions or need further assistance, please let me know!
+
+
+### ...............
+
+The phrases you've provided are different ways to express "excuse me" or "sorry" in Arabic, and they can be used in various contexts. Here's a breakdown of each:
+
+1. **عَفْوًا (ʿafwān)**:
+   - This is a common way to say "excuse me" or "pardon me." It can also mean "you're welcome" in response to someone thanking you. It's a versatile expression used in both formal and informal situations.
+
+2. **مِن فَضْلِكَ (min faḍlika)** [to a male] / **مِن فَضْلِكِ (min faḍliki)** [to a female]:
+   - This phrase translates to "please" or "if you would be so kind." It is more polite and formal than عَفْوًا and is often used when making a request or asking for a favor. The form changes based on the gender of the person you are addressing.
+
+3. **آسِف (ʾāsif)** [to a male] / **آسِفَة (ʾāsifah)** [to a female]:
+   - This word means "sorry" and is used to express regret or apology. It is more personal and direct than the other two phrases. You would use this when you want to apologize for a mistake or an inconvenience.
+
+### Summary:
+- **عَفْوًا (ʿafwān)**: Excuse me / You're welcome.
+- **مِن فَضْلِكَ (min faḍlika)**: Please (to a male) / مِن فَضْلِكِ (min faḍliki) (to a female).
+- **آسِف (ʾāsif)**: Sorry (to a male) / آسِفَة (ʾāsifah) (to a female).
+
+Feel free to ask if you need more examples or further clarification!
 
 ### ---------------------------------------------
 
