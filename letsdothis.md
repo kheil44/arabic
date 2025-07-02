@@ -238,6 +238,23 @@ This sentence conveys that you purchased something using your own money. If you 
 
 ### ---------------------------------------------
 
+Here are the Arabic translations for the words you requested, along with their diacritics:
+
+1. **Chair**: كُرْسِيٌّ *(kursiyyun)*
+2. **Building**: بِنَايَةٌ *(bināyah)*
+3. **House**: بَيْتٌ *(baytun)*
+4. **Home**: مَنْزِلٌ *(manzilun)*
+5. **Page**: صَفْحَةٌ *(ṣafḥah)*
+6. **Pages**: صَفَحَاتٌ *(ṣafḥāt)*
+7. **Paper**: وَرَقَةٌ *(waraqah)*
+8. **Papers**: أَوْرَاقٌ *(awrāq)*
+9. **Male Teacher**: مُعَلِّمٌ *(muʿallimun)*
+10. **Female Teacher**: مُعَلِّمَةٌ *(muʿallimah)*
+11. **Professor or Lecturer**: أُسْتَاذٌ *(ustād)*
+12. **Professors or Lecturers**: أَسَاتِذَةٌ *(asātidhah)*
+
+If you have any more questions or need further assistance, feel free to ask!
+
 ### ---------------------------------------------
 
 ### ---------------------------------------------
