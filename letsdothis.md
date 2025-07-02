@@ -126,6 +126,50 @@ The preposition إِلَى (ilā) is versatile and commonly used in Arabic to ex
 If you have any more questions or need further clarification, feel free to ask!
 
 ### ---------------------------------------------
+The verb "to go" in Arabic is **ذَهَبَ** (dhahaba). Here’s a breakdown of its forms and usage:
+
+### Basic Form
+
+- **ذَهَبَ (dhahaba)**: This is the past tense form meaning "he went."
+
+### Conjugation in Different Tenses
+
+1. **Present Tense:**
+   - **أذهب (adhhabu)**: "I go."
+   - **تذهب (tadhhabu)**: "You (masculine) go."
+   - **تذهبين (tadhhabīna)**: "You (feminine) go."
+   - **يذهب (yadhhabu)**: "He goes."
+   - **تذهب (tadhhabu)**: "She goes."
+   - **نذهب (nadhhabu)**: "We go."
+   - **يذهبون (yadhhabūna)**: "They (masculine) go."
+   - **يذهبن (yadhhabna)**: "They (feminine) go."
+
+2. **Past Tense:**
+   - **ذَهَبَ (dhahaba)**: "He went."
+   - **ذَهَبَت (dhahabat)**: "She went."
+   - **ذَهَبْتَ (dhahabta)**: "You (masculine) went."
+   - **ذَهَبْتِ (dhahabti)**: "You (feminine) went."
+   - **ذَهَبْنَا (dhahabnā)**: "We went."
+   - **ذَهَبُوا (dhahabū)**: "They (masculine) went."
+   - **ذَهَبْنَ (dhahabna)**: "They (feminine) went."
+
+### Example Sentences
+
+1. **أذهب إلى المدرسة.**  
+   *(Adhhabu ilā al-madrasah.)*  
+   "I go to school."
+
+2. **ذهبت إلى السوق.**  
+   *(Dhahabtu ilā as-sūq.)*  
+   "I went to the market."
+
+3. **يذهبون إلى الحفلة.**  
+   *(Yadhhabūna ilā al-ḥaflah.)*  
+   "They go to the party."
+
+### Summary
+
+The verb **ذَهَبَ (dhahaba)** is commonly used in Arabic to express the action of going. It can be conjugated in various tenses and forms depending on the subject. If you have any more questions or need further examples, feel free to ask!
 
 ### ---------------------------------------------
 
@@ -152,6 +196,55 @@ If you have any more questions or need further clarification, feel free to ask!
 ### ---------------------------------------------
 
 ### ---------------------------------------------
+
+### ---------------------------------------------
+
+### ---------------------------------------------
+
+### ---------------------------------------------
+
+### ---------------------------------------------
+
+### ---------------------------------------------
+
+### ---------------------------------------------
+
+### ---------------------------------------------
+
+### ---------------------------------------------
+
+### ---------------------------------------------
+
+### ---------------------------------------------
+
+### ---------------------------------------------
+
+### ---------------------------------------------
+
+### ---------------------------------------------
+
+### ---------------------------------------------
+
+### ---------------------------------------------
+
+### ---------------------------------------------
+
+### ---------------------------------------------
+
+### ---------------------------------------------
+
+### ---------------------------------------------
+
+### ---------------------------------------------
+
+### ---------------------------------------------
+
+### ---------------------------------------------
+
+### ---------------------------------------------
+
+### ---------------------------------------------
+
 
 
 # Arabic Phrase Breakdown
