@@ -172,6 +172,31 @@ The verb "to go" in Arabic is **ذَهَبَ** (dhahaba). Here’s a breakdown o
 The verb **ذَهَبَ (dhahaba)** is commonly used in Arabic to express the action of going. It can be conjugated in various tenses and forms depending on the subject. If you have any more questions or need further examples, feel free to ask!
 
 ### ---------------------------------------------
+Let's clarify the difference between the two sentences:
+
+### 1. **أَذْهَبُ إِلَى الْمَدْرَسَةِ مُنْذُ خَمْسَةِ أَيَّامٍ.**  
+*(Aḏhabu ilā al-madrasati mundhu khamsati ayyāmin.)*  
+"I have been going to school for five days."
+
+- **مُنْذُ (mundhu)**: This word means "since" or "for" in the context of indicating a starting point in the past. It implies that the action of going to school started five days ago and has continued up to the present moment. It emphasizes the duration from that starting point.
+
+### 2. **أَذْهَبُ إِلَى الْمَدْرَسَةِ لِمُدَّةِ خَمْسَةِ أَيَّامٍ.**  
+*(Aḏhabu ilā al-madrasati limuddati khamsati ayyāmin.)*  
+"I go to school for a duration of five days."
+
+- **لِمُدَّةِ (limuddati)**: This phrase means "for a duration of." It indicates that you go to school for a specified period of five days. This sentence does not imply that the action started five days ago; rather, it simply states that you go to school for that length of time.
+
+### Key Differences
+
+- **مُنْذُ (mundhu)** emphasizes that the action has been ongoing from a specific point in the past (five days ago) until now.
+- **لِمُدَّةِ (limuddati)** indicates a fixed duration of time without specifying when the action started. It can imply a future plan or a current routine.
+
+### Summary
+
+- Use **مُنْذُ** when you want to express that something started in the past and is still happening.
+- Use **لِمُدَّةِ** when you want to specify a duration of time without indicating when the action began.
+
+If you have any more questions or need further clarification, feel free to ask!
 
 ### ---------------------------------------------
 
