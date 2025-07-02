@@ -200,6 +200,42 @@ If you have any more questions or need further clarification, feel free to ask!
 
 ### ---------------------------------------------
 
+To say "I bought a pen from Costco" in Arabic with diacritics, you would say:
+
+**أَشْتَرِي قَلَمًا مِنْ كُوسْتْكُو.**  
+*(Ashtarī qalamān min Kōstkū.)*
+
+### Breakdown of the Sentence:
+
+- **أَشْتَرِي (Ashtarī)**: "I bought" (the verb "to buy" in the first person).
+- **قَلَمًا (qalamān)**: "a pen" (the accusative form of "pen").
+- **مِنْ (min)**: "from."
+- **كُوسْتْكُو (Kōstkū)**: "Costco" (the name of the store).
+
+### Summary
+
+This sentence conveys that you bought a pen from Costco. If you have any more questions or need further assistance, feel free to ask!
+
+
+#### ......................
+
+To say "I bought this with my own money" in Arabic with diacritics, you would say:
+
+**أَشْتَرَيْتُ هَذَا بِمَالِي.**  
+*(Ashtarītu hādhā bimālī.)*
+
+### Breakdown of the Sentence:
+
+- **أَشْتَرَيْتُ (Ashtarītu)**: "I bought" (the past tense form of the verb "to buy").
+- **هَذَا (hādhā)**: "this."
+- **بِمَالِي (bimālī)**: "with my money."
+  - **بِ (bi)**: "with."
+  - **مَالِي (mālī)**: "my money."
+
+### Summary
+
+This sentence conveys that you purchased something using your own money. If you have any more questions or need further assistance, feel free to ask!
+
 ### ---------------------------------------------
 
 ### ---------------------------------------------
