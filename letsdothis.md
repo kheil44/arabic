@@ -22,7 +22,87 @@
 
 ### ---------------------------------------------
 
+Thank you for your patience. Here’s a comprehensive table that includes all possessive pronouns in Arabic, covering the first, second, and third person for both singular and plural forms, including "you (plural)" and "they":
+
+### Comprehensive Table of Possessive Pronouns in Arabic
+
+| Owner Type          | Singular Suffix | Plural Suffix   |
+|---------------------|------------------|------------------|
+| **1st Person**      |                  |                  |
+| My                  | ـي (-ī)          | ـنا (-nā)        |
+| Our                 |                  | ـنا (-nā)        |
+| **2nd Person**      |                  |                  |
+| Your (Masculine)    | ـكَ (-ka)        | ـكُمْ (-kum)      |
+| Your (Feminine)     | ـكِ (-ki)        | ـكُنَّ (-kunna)   |
+| Your (Plural)       |                  | ـكُمْ (-kum)      |
+| **3rd Person**      |                  |                  |
+| His                 | ـهُ (-hu)        | ـهُمْ (-hum)      |
+| Her                 | ـهَا (-hā)       | ـهُنَّ (-hunna)   |
+| Their (Masculine)   |                  | ـهُمْ (-hum)      |
+| Their (Feminine)    |                  | ـهُنَّ (-hunna)   |
+
+### Summary of Pronouns
+
+- **1st Person**:
+  - **My**: ـي (-ī)
+  - **Our**: ـنا (-nā)
+
+- **2nd Person**:
+  - **Your (Masculine)**: ـكَ (-ka)
+  - **Your (Feminine)**: ـكِ (-ki)
+  - **Your (Plural)**: ـكُمْ (-kum)
+
+- **3rd Person**:
+  - **His**: ـهُ (-hu)
+  - **Her**: ـهَا (-hā)
+  - **Their (Masculine)**: ـهُمْ (-hum)
+  - **Their (Feminine)**: ـهُنَّ (-hunna)
+
+This table now includes all relevant possessive pronouns in Arabic, ensuring clarity and completeness. Thank you for your understanding!
+
 ### ---------------------------------------------
+
+Certainly! Here are three examples of different verbs in Arabic, demonstrating the use of possessive pronouns with the appropriate suffixes highlighted in **bold**. The verbs used are "to write," "to read," and "to see."
+
+### Examples
+
+1. **To Write (كتب - kataba)**
+
+   - **My** book: كِتَاب**ي** (kita**bī**) - "my book"
+   - **Your (Masculine)** book: كِتَاب**كَ** (kita**bka**) - "your book"
+   - **Your (Feminine)** book: كِتَاب**كِ** (kita**bki**) - "your book"
+   - **Your (Plural)** book: كِتَاب**كُمْ** (kita**bkum**) - "your book"
+   - **His** book: كِتَاب**هُ** (kita**bhu**) - "his book"
+   - **Her** book: كِتَاب**هَا** (kita**bhā**) - "her book"
+   - **Our** book: كِتَاب**نا** (kita**bnā**) - "our book"
+   - **Their (Masculine)** book: كِتَاب**هُمْ** (kita**bhum**) - "their book"
+   - **Their (Feminine)** book: كِتَاب**هُنَّ** (kita**bhunna**) - "their book"
+
+2. **To Read (قرأ - qara'a)**
+
+   - **My** reading: قِرَاءَ**تي** (qirā**ʾatī**) - "my reading"
+   - **Your (Masculine)** reading: قِرَاءَ**تك** (qirā**ʾatka**) - "your reading"
+   - **Your (Feminine)** reading: قِرَاءَ**تكِ** (qirā**ʾatki**) - "your reading"
+   - **Your (Plural)** reading: قِرَاءَ**تكم** (qirā**ʾatkum**) - "your reading"
+   - **His** reading: قِرَاءَ**ته** (qirā**ʾathu**) - "his reading"
+   - **Her** reading: قِرَاءَ**تها** (qirā**ʾathā**) - "her reading"
+   - **Our** reading: قِرَاءَ**تنا** (qirā**ʾatnā**) - "our reading"
+   - **Their (Masculine)** reading: قِرَاءَ**تهم** (qirā**ʾathum**) - "their reading"
+   - **Their (Feminine)** reading: قِرَاءَ**تهن** (qirā**ʾathunna**) - "their reading"
+
+3. **To See (رأى - ra'ā)**
+
+   - **My** sight: رُؤْيَ**تي** (ruʾ**yatī**) - "my sight"
+   - **Your (Masculine)** sight: رُؤْيَ**تك** (ruʾ**yatka**) - "your sight"
+   - **Your (Feminine)** sight: رُؤْيَ**تكِ** (ruʾ**yatki**) - "your sight"
+   - **Your (Plural)** sight: رُؤْيَ**تكم** (ruʾ**yatkum**) - "your sight"
+   - **His** sight: رُؤْيَ**ته** (ruʾ**yathu**) - "his sight"
+   - **Her** sight: رُؤْيَ**تها** (ruʾ**yathā**) - "her sight"
+   - **Our** sight: رُؤْيَ**تنا** (ruʾ**yatnā**) - "our sight"
+   - **Their (Masculine)** sight: رُؤْيَ**تهم** (ruʾ**yathum**) - "their sight"
+   - **Their (Feminine)** sight: رُؤْيَ**تهن** (ruʾ**yathunna**) - "their sight"
+
+In these examples, the possessive suffixes are highlighted in **bold** to clearly show how they are attached to the nouns.
 
 ### ---------------------------------------------
 
