@@ -821,6 +821,38 @@ Thank you for your understanding, and I appreciate your patience! If you have an
 
 ### ---------------------------------------------
 
+Here is a list of common Arabic prepositions along with their meanings:
+
+### Common Arabic Prepositions
+
+1. **بِ (bi)**: with, by
+2. **إِلَى (ilā)**: to, towards
+3. **مَعَ (maʿa)**: with
+4. **عَنْ (ʿan)**: about, concerning
+5. **فِي (fī)**: in, at
+6. **عَلَى (ʿalā)**: on, upon
+7. **مِن (min)**: from, of
+8. **إِنَّ (inna)**: indeed (used for emphasis, often followed by a noun in the accusative case)
+9. **لِ (li)**: for, to
+10. **بَيْنَ (bayna)**: between
+11. **خَلْفَ (khalfa)**: behind
+12. **أَمَامَ (amāma)**: in front of
+13. **فَوْقَ (fawqa)**: above, over
+14. **تَحْتَ (taḥta)**: under, beneath
+15. **قُدَّامَ (quddāma)**: in front of, ahead of
+16. **حَوْلَ (ḥawla)**: around
+17. **عَلَى (ʿalā)**: on, upon
+18. **إِذَا (idhā)**: if (used in conditional sentences)
+19. **لَدَى (ladā)**: at, by (often used to indicate possession)
+20. **بِسَبَبِ (bi-sabab)**: because of
+
+### Notes:
+- Some prepositions can have multiple meanings depending on the context.
+- Certain verbs are commonly used with specific prepositions, as mentioned earlier.
+- Prepositions can also combine with definite articles (e.g., **فِي الْبَيْتِ (fī al-bayti)** means "in the house").
+
+This list includes some of the most frequently used prepositions in Arabic. As you continue to learn, you'll encounter more prepositions and their specific uses in different contexts. If you have any questions about specific prepositions or their usage, feel free to ask!
+
 ### ---------------------------------------------
 
 ### ---------------------------------------------
