@@ -909,6 +909,20 @@ If you have any more questions or need further clarification, feel free to ask!
 ### ---------------------------------------------
 
 ### not so good. but....;;;
+
+Subject pronouns in Arabic do not have suffixes or prefixes because they stand alone as independent words that represent the subject of a sentence. Unlike possessive pronouns, which modify nouns and indicate ownership, subject pronouns are used to indicate who is performing the action of the verb.
+
+Here’s a brief explanation of why suffixes or prefixes are not applicable to subject pronouns:
+
+1. **Independence**: Subject pronouns function independently in a sentence. For example, "أَنَا" (I) or "هُوَ" (he) can stand alone without needing to attach to a noun.
+
+2. **Function**: Their primary role is to indicate the subject of the verb, and they do not modify nouns or indicate possession, which is the role of possessive pronouns.
+
+3. **Clarity**: Using independent subject pronouns helps to clarify who is performing the action, especially in sentences where the subject might not be immediately clear.
+
+In contrast, possessive pronouns are used to show ownership and are typically attached to the noun they modify, which is why they have specific suffixes or prefixes.
+
+
 Thank you for your feedback, and I apologize for the inconsistencies. Here’s the corrected and consistent table for both subject and possessive pronouns, ensuring that the possessive pronouns are clearly defined and match the format you provided:
 
 ### Subject Pronouns
