@@ -884,7 +884,63 @@ Thank you for your understanding, and I will ensure to use diacritics in all fut
 
 ### ---------------------------------------------
 
+The words "مِن" (min) and "مَن" (man) are both prepositions in Arabic, but they have different meanings and uses. Here’s a detailed explanation of each:
+
+### 1. مِن (min)
+- **Meaning**: "From" or "of."
+- **Usage**: It is used to indicate the origin, source, or part of something.
+- **Examples**:
+  - أَنا مِن مِصْرَ (ʾanā min Miṣr) - "I am from Egypt."
+  - هَذَا كِتابٌ مِن المَكتَبَةِ (hādhā kitābٌ min al-maktabah) - "This is a book from the library."
+
+### 2. مَن (man)
+- **Meaning**: "Who."
+- **Usage**: It is used as an interrogative pronoun to ask about a person or to refer to someone in a relative clause.
+- **Examples**:
+  - مَن هَذا؟ (man hādhā?) - "Who is this?"
+  - أَنا أَعْرِفُ مَن هُوَ (ʾanā aʿrifُ man huwa) - "I know who he is."
+
+### Summary:
+- **مِن (min)**: Means "from" or "of," used to indicate origin or source.
+- **مَن (man)**: Means "who," used to ask about a person or refer to someone.
+
+If you have any more questions or need further clarification, feel free to ask!
+
 ### ---------------------------------------------
+
+### not so good. but....;;;
+Thank you for your feedback, and I apologize for the inconsistencies. Here’s the corrected and consistent table for both subject and possessive pronouns, ensuring that the possessive pronouns are clearly defined and match the format you provided:
+
+### Subject Pronouns
+
+| **Pronoun (Arabic)** | **English Equivalent**       | **Example Sentence (Arabic)**                     | **Translation (English)**                       | **Suffix/Prefix** |
+|----------------------|------------------------------|--------------------------------------------------|------------------------------------------------|-------------------|
+| أَنَا                 | I                            | أَنَا أَكْتُبُ رِسَالَةً.                          | I am writing a letter.                         | -                 |
+| أَنتَ                | You (masculine)             | أَنتَ تَذْهَبُ إِلَى السُّوقِ.                   | You are going to the market.                   | -                 |
+| أَنتِ                | You (feminine)              | أَنتِ تَشْتَرِينَ فَاكِهَةً.                      | You are buying fruit.                          | -                 |
+| هُوَ                 | He                           | هُوَ يَعْمَلُ فِي الْمَكْتَبِ.                   | He works in the office.                        | -                 |
+| هِيَ                 | She                          | هِيَ تَطْبُخُ طَعَامًا لَذِيذًا.                  | She is cooking delicious food.                 | -                 |
+| نَحْنُ               | We                           | نَحْنُ نَذْهَبُ إِلَى الْمَدْرَسَةِ.             | We are going to school.                        | -                 |
+| أَنتُم               | You (plural)                | أَنتُم تَجْلِسُونَ مَعَ أَصْدِقَائِكُمْ.          | You are sitting with your friends.             | -                 |
+| هُمْ                 | They (masculine)            | هُمْ يَلْعَبُونَ كُرَةَ الْقَدَمِ.               | They are playing football.                     | -                 |
+| هُنَّ                | They (feminine)             | هُنَّ يَغْنِينَ أَغَانِيَ جَمِيلَةً.              | They are singing beautiful songs.              | -                 |
+
+### Possessive Pronouns
+
+| **Pronoun (Arabic)** | **English Equivalent**       | **Example Sentence (Arabic)**                     | **Translation (English)**                       | **Suffix/Prefix** |
+|----------------------|------------------------------|--------------------------------------------------|------------------------------------------------|-------------------|
+| (ي)                  | my                           | كِتَابِي جَدِيدٌ.                                 | My book is new.                                | -ي (-ī)           |
+| (كَ)                 | your (masculine)            | كِتَابُكَ جَمِيلٌ.                               | Your book (masculine) is beautiful.           | -كَ (-ka)         |
+| (كِ)                 | your (feminine)             | كِتَابُكِ مُمْتَازٌ.                              | Your book (feminine) is excellent.            | -كِ (-ki)         |
+| (هُ)                 | his                          | كِتَابُهُ عَلَى الطَّاوِلَةِ.                     | His book is on the table.                      | -هُ (-hu)         |
+| (هَا)                | her                          | كِتَابُهَا فِي الْحَقِيبَةِ.                      | Her book is in the bag.                       | -هَا (-hā)        |
+| (نا)                 | our                          | كِتَابُنَا مَفْتُوحٌ.                             | Our book is open.                              | -نا (-nā)         |
+| (كُم)                | your (plural)               | كِتَابُكُمْ مُمْتَازٌ.                            | Your book (plural) is excellent.              | -كُمْ (-kum)      |
+| (هُمْ)               | their (masculine)           | كِتَابُهُمْ عَلَى الطَّاوِلَةِ.                   | Their book (masculine) is on the table.       | -هُمْ (-hum)      |
+| (هُنَّ)              | their (feminine)            | كِتَابُهُنَّ جَمِيلٌ.                            | Their book (feminine) is beautiful.           | -هُنَّ (-hunna)   |
+
+Thank
+
 
 ### ---------------------------------------------
 
