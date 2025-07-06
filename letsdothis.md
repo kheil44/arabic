@@ -960,6 +960,32 @@ Thank
 
 ### ---------------------------------------------
 
+Let’s clarify the difference between "فَصْل" (faṣl) and "صَفّ" (ṣaff) with more specific distinctions:
+
+### فَصْل (faṣl)
+- **Definition**: Refers to a "class" in the sense of a specific session or period of instruction. It can also mean "season" or "division."
+- **Context**: 
+  - Used to describe a physical classroom or a specific group of students who are taught together during a particular time.
+  - Example: "فَصْل اللُّغَةِ العَرَبِيَّة" (faṣl al-lughah al-‘Arabiyyah) means "Arabic language class."
+- **Focus**: Emphasizes the teaching session or the classroom environment.
+
+### صَفّ (ṣaff)
+- **Definition**: Refers to a "class" in the sense of a grade level or a group of students at the same educational stage. It can also mean "line" or "row."
+- **Context**: 
+  - Used to describe the level of students, such as "sixth grade" or "first grade."
+  - Example: "أَنَا فِي الصَّفِّ السَّادِس" (anā fī al-ṣaff al-sādis) means "I am in the sixth grade."
+- **Focus**: Emphasizes the grouping of students based on their educational level or the arrangement of students in a line.
+
+### Key Differences
+- **Physical vs. Conceptual**: 
+  - "فَصْل" (faṣl) is more about the physical space (classroom) and the time of instruction, while "صَفّ" (ṣaff) is about the categorization of students by grade level.
+  
+- **Usage in Sentences**:
+  - "فَصْل" is used when talking about a specific class session: "اليوم لدينا فَصْل في الرياضيات" (Today we have a class in mathematics).
+  - "صَفّ" is used when referring to the grade level: "هو في صَفِّ الرّابع" (He is in the fourth grade).
+
+I hope this breakdown helps clarify the differences! If you have more questions or need further examples, feel free to ask.
+
 ### ---------------------------------------------
 
 ### ---------------------------------------------
