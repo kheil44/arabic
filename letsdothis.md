@@ -988,6 +988,16 @@ I hope this breakdown helps clarify the differences! If you have more questions 
 
 ### ---------------------------------------------
 
+I apologize for that oversight. Thank you for your patience. 
+
+The phrase "يلا يا شباب" (yāla yā shabāb) means "Come on, guys!" or "Let's go, youth!" 
+
+- **يَلا (yāla)**: "let's go" or "come on"
+- **يَا (yā)**: vocative particle, "oh" or "hey"
+- **شَبَاب (shabāb)**: "youth" or "young people"
+
+If you have more questions or need further assistance, feel free to ask!
+
 ### ---------------------------------------------
 
 ### ---------------------------------------------
