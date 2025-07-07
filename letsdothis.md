@@ -1095,6 +1095,27 @@ Sure! Let’s clarify the concepts of nominative, accusative, and genitive cases
 - **كِتَابَانِ (kitābān)**: Used in the nominative case, indicating the subject of the sentence.
 - **كِتَابَيْنِ (kitābayn)**: Used in the accusative case, indicating the object of the verb or following a preposition.
 
+
+
+= ------------
+### 3. بِكِتَابَيْنِ (bi-kitābayn)
+- **Meaning**: This form combines the preposition "بِ" (bi), meaning "with" or "by," with the dual form كِتَابَيْنِ. It translates to "with two books."
+- **Usage**: It is used when you want to express that something is done with or by means of two books.
+- **Example**: 
+  - **ذهبتُ إلى المكتبة بِكِتَابَيْنِ.**  
+    (dhahabtu ilā al-maktabah bi-kitābayn.)  
+    "I went to the library with two books."
+
+### Summary of Usage
+- **كِتَابَانِ**: Used for stating "two books" in a nominative context (subject of a sentence).
+- **كِتَابَيْنِ**: Used for "two books" in accusative or genitive contexts (object of a verb or after a preposition).
+- **بِكِتَابَيْنِ**: Means "with two books," indicating accompaniment or means.
+
+= -----------------
+
+
+
+
 ### Conclusion
 
 Understanding these cases is crucial for proper sentence structure in Arabic. The endings of nouns change based on their grammatical role in the sentence, which is a key feature of Arabic grammar. If you have more questions or need further clarification on any specific point, feel free to ask!
