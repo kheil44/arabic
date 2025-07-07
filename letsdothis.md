@@ -1571,6 +1571,44 @@ If you have more questions or need further clarification, feel free to ask!
 
 
 
+#### these 3 were discussed;;
+
+Certainly! Let's break down the phrases **لَنْ أَكُونَ** (lan akūna), **لَمْ أَكُنْ** (lam akūn), and **سَأَكُونُ** (sa akūnu) in detail, including their meanings, grammatical structures, and usage.
+
+### 1. **لَنْ أَكُونَ (lan akūna)**
+- **Meaning**: "I will not be."
+- **Components**:
+  - **لَنْ (lan)**: A particle used to negate future tense verbs. It indicates that the action will not happen.
+  - **أَكُونَ (akūna)**: The first-person singular form of the verb "to be" in the future tense.
+- **Usage**: This phrase is used to express a future state that will not occur. It is often used in contexts where the speaker is certain that they will not be in a particular state or condition.
+- **Example**: 
+  - **لَنْ أَكُونَ سَعِيدًا.** (Lan akūna saʿīdan.) - "I will not be happy."
+
+### 2. **لَمْ أَكُنْ (lam akūn)**
+- **Meaning**: "I was not."
+- **Components**:
+  - **لَمْ (lam)**: A particle used to negate past tense verbs. It indicates that the action did not happen.
+  - **أَكُنْ (akūn)**: The first-person singular form of the verb "to be" in the subjunctive mood.
+- **Usage**: This phrase is used to express that the speaker did not exist or was not in a certain state in the past. It is often used to clarify past conditions or states.
+- **Example**: 
+  - **لَمْ أَكُنْ خَجُولًا.** (Lam akūn khajūlan.) - "I was not shy."
+
+### 3. **سَأَكُونُ (sa akūnu)**
+- **Meaning**: "I will be."
+- **Components**:
+  - **سَـ (sa)**: A prefix that indicates the action will happen in the near future.
+  - **أَكُونُ (akūnu)**: The first-person singular form of the verb "to be" in the future tense.
+- **Usage**: This phrase is used to express a future state that the speaker is affirming will happen. It is often used to indicate plans, intentions, or predictions about the future.
+- **Example**: 
+  - **سَأَكُونُ سَعِيدًا.** (Sa akūnu saʿīdan.) - "I will be happy."
+
+### Summary of Differences
+- **لَنْ أَكُونَ**: Used to indicate a future state that will not happen (negation of future).
+- **لَمْ أَكُنْ**: Used to indicate a past state that did not happen (negation of past).
+- **سَأَكُونُ**: Used to indicate a future state that will happen (affirmation of future).
+
+If you have more questions or need further clarification, feel free to ask!
+
 #### further;;;;
 
 Certainly! Here’s the continuation and summary of the combinations with **لَمْ** (lam) and **لَنْ** (lan):
