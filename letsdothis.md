@@ -1399,6 +1399,22 @@ The Form X pattern in Arabic is one of the many verb forms that can be derived f
 
 ### ---------------------------------------------
 
+
+### Summary
+- **أَعْمَلُ مَعَ طَالِبَتَيْنِ** (ʾaʿmalu maʿa ṭālibatayni): "I work with two female students." (present tense)
+- **عَمِلْتُ مَعَ طَالِبَتَيْنِ** (ʿamiltu maʿa ṭālibatayni): "I worked with two female students." (past tense)
+
+
+
+### Summary
+If you want to say "I work with two male students," the correct phrase is:
+- **أَعْمَلُ مَعَ طَالِبَيْنِ** (ʾaʿmalu maʿa ṭālibayn): "I work with two male students."
+
+If you want to say "I worked with two male students," you would say:
+- **عَمِلْتُ مَعَ طَالِبَيْنِ** (ʿamiltu maʿa ṭālibayn): "I worked with two male students."
+
+
+
 ### ---------------------------------------------
 
 ### ---------------------------------------------
