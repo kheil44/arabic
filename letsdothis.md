@@ -1417,7 +1417,66 @@ If you want to say "I worked with two male students," you would say:
 
 ### ---------------------------------------------
 
+I see what you're asking now. The term **طَيِّبَانِ** (ṭayyibān) can be used instead of **لَطِيفَانِ** (laṭīfān) to mean "the two boys are nice" in a different context. 
+
+### Explanation
+- **طَيِّبَانِ** (ṭayyibān) means "good" or "kind" and can be used to describe people positively.
+- **لَطِيفَانِ** (laṭīfān) means "nice" or "pleasant."
+
+### Correct Phrase
+So, you can say:
+- **الْوَلَدَانِ طَيِّبَانِ** (al-waladānī ṭayyibānī): "The two boys are good/kind."
+
+Both phrases are correct, but they convey slightly different nuances. If you have any more questions or need further clarification, feel free to ask!
+
 ### ---------------------------------------------
+
+Both phrases are correct, but they use slightly different forms of the word for "professors." Here’s a breakdown of each:
+
+### 1. اِلْتَقَيْتُ بِأَسَاتِذَيْنِ طَيِّبَيْنِ  
+**(iltaqaytu bi-asātidhayn ṭayyibayn)**  
+- **Meaning**: "I met two kind professors."
+- **Usage**: This form uses **أَسَاتِذَيْنِ** (asātidhayn), which is a common way to refer to "two professors" in the accusative case.
+
+### 2. اِلْتَقَيْتُ بِأَسَاتِذَتَيْنِ طَيِّبَيْنِ  
+**(iltaqaytu bi-asātidhatayni ṭayyibayn)**  
+- **Meaning**: "I met two kind professors."
+- **Usage**: This form uses **أَسَاتِذَتَيْنِ** (asātidhatayni), which is also correct and emphasizes the dual form in a slightly different way.
+
+### Summary
+- Both phrases convey the same meaning: "I met two kind professors."
+- **أَسَاتِذَيْنِ** (asātidhayn) is a more straightforward dual form.
+- **أَسَاتِذَتَيْنِ** (asātidhatayni) is also correct and may be used in different dialects or contexts.
+
+In everyday conversation, both forms can be understood, and the choice may depend on regional preferences or personal style. If you have any more questions or need further clarification, feel free to ask!
+
+#### also
+
+Certainly! Here’s how to say "I met two kind professors" using both verbs **اِلْتَقَيْتُ** and **قَابَلْتُ**.
+
+### Using اِلْتَقَيْتُ
+**اِلْتَقَيْتُ بِأَسَاتِذَتَيْنِ طَيِّبَيْنِ**  
+(iltaqaytu bi-asātidhatayni ṭayyibayn)
+
+### Breakdown
+- **اِلْتَقَيْتُ** (iltaqaytu): means "I met."
+- **بِأَسَاتِذَتَيْنِ** (bi-asātidhatayni): means "with two professors" in the accusative case.
+- **طَيِّبَيْنِ** (ṭayyibayn): means "kind" in the accusative case.
+
+### Using قَابَلْتُ
+**قَابَلْتُ أَسَاتِذَتَيْنِ طَيِّبَيْنِ**  
+(qābaltu asātidhatayni ṭayyibayn)
+
+### Breakdown
+- **قَابَلْتُ** (qābaltu): means "I met."
+- **أَسَاتِذَتَيْنِ** (asātidhatayni): means "two professors" in the accusative case.
+- **طَيِّبَيْنِ** (ṭayyibayn): means "kind" in the accusative case.
+
+### Full Translations
+- **اِلْتَقَيْتُ بِأَسَاتِذَتَيْنِ طَيِّبَيْنِ**: "I met two kind professors."
+- **قَابَلْتُ أَسَاتِذَتَيْنِ طَيِّبَيْنِ**: "I met two kind professors."
+
+Both sentences are correct and convey the same meaning. If you have any more questions or need further assistance, feel free to ask!
 
 ### ---------------------------------------------
 
