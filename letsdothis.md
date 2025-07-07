@@ -1494,7 +1494,143 @@ Both sentences are correct and convey the same meaning. If you have any more que
 
 ### ---------------------------------------------
 
+You're correct that **مَا** (mā) can mean "when" in certain contexts, but in the phrase **عِندَ مَا** (ʿinda mā), the combination of **عِندَ** (ʿinda) and **مَا** (mā) together conveys a specific meaning of "when" in relation to a particular situation or time.
+
+### Breakdown of the Terms
+- **مَا (mā)**: This word can mean "when" or "that," depending on the context. It is often used to introduce a clause.
+- **عِندَ (ʿinda)**: This preposition means "at" or "with," and when combined with **مَا**, it emphasizes the timing of the action or state being described.
+
+### Contextual Meaning
+In the phrase **عِندَ مَا كُنتُ فِي جَامِعَةٍ** (ʿinda mā kuntu fī jāmiʿatin), the phrase can be understood as "at the time when I was at the university." The **عِندَ** adds a nuance of being at a specific point in time.
+
+So, while **مَا** can stand alone to mean "when," its combination with **عِندَ** provides a more specific context. Thank you for pointing that out! If you have more questions or need further clarification, feel free to ask!
+
 ### ---------------------------------------------
+
+The verb **كَوَنَ** (kawana), meaning "to be" or "to become," has several forms in Arabic, each serving different grammatical functions. Here are the main forms of the verb along with explanations for each:
+
+### 1. **كَانَ (kāna)**
+- **Form**: Past tense.
+- **Meaning**: "was."
+- **Usage**: Used to indicate a state or condition that existed in the past.
+- **Example**: 
+  - **كَانَ هُوَ خَجُولًا.** (Kāna huwa khajūlan.) - "He was shy."
+
+### 2. **أَكُونُ (akūnu)**
+- **Form**: Future tense, first-person singular.
+- **Meaning**: "I will be" or "I am going to be."
+- **Usage**: Used to express a future state or condition.
+- **Example**: 
+  - **أَكُونُ سَعِيدًا غَدًا.** (Akūnu saʿīdan ghadān.) - "I will be happy tomorrow."
+
+### 3. **أَكُنْ (akūn)**
+- **Form**: Subjunctive mood, first-person singular.
+- **Meaning**: "I be" or "I may be."
+- **Usage**: Often used in conditional sentences or to express a wish or hypothetical situation.
+- **Example**: 
+  - **لَوْ أَكُنْ غَنِيًّا.** (Law akūn ghanīyyan.) - "If I were rich."
+
+### 4. **كُنْ (kun)**
+- **Form**: Imperative form.
+- **Meaning**: "Be!" (command).
+- **Usage**: Used to give a command or instruction to someone to exist or to become something.
+- **Example**: 
+  - **كُن شُجَاعًا.** (Kun shujāʿan.) - "Be brave!"
+
+### 5. **كُنَّا (kunnā)**
+- **Form**: Past tense, first-person plural.
+- **Meaning**: "We were."
+- **Usage**: Used to indicate a state or condition that existed in the past for a group.
+- **Example**: 
+  - **كُنَّا سُعَدَاءَ.** (Kunnā suʿadāʾ.) - "We were happy."
+
+### 6. **كُنتَ (kunta)**
+- **Form**: Past tense, second-person masculine singular.
+- **Meaning**: "You were."
+- **Usage**: Used to indicate a state or condition that existed in the past for a male individual.
+- **Example**: 
+  - **كُنتَ خَجُولًا.** (Kunta khajūlan.) - "You were shy."
+
+### 7. **كُنتِ (kunti)**
+- **Form**: Past tense, second-person feminine singular.
+- **Meaning**: "You were."
+- **Usage**: Used to indicate a state or condition that existed in the past for a female individual.
+- **Example**: 
+  - **كُنتِ شَجِيعَةً.** (Kunti shajīʿah.) - "You were brave."
+
+### Summary
+- **كَانَ (kāna)**: Past tense, "was."
+- **أَكُونُ (akūnu)**: Future tense, "I will be."
+- **أَكُنْ (akūn)**: Subjunctive mood, "I be."
+- **كُنْ (kun)**: Imperative form, "Be!"
+- **كُنَّا (kunnā)**: Past tense, first-person plural, "We were."
+- **كُنتَ (kunta)**: Past tense, second-person masculine, "You were."
+- **كُنتِ (kunti)**: Past tense, second-person feminine, "You were."
+
+If you have more questions or need further clarification, feel free to ask!
+
+
+
+#### further;;;;
+
+Certainly! Here’s the continuation and summary of the combinations with **لَمْ** (lam) and **لَنْ** (lan):
+
+### Summary of Combinations
+1. **سَأَكُونُ (sa akūnu)**: 
+   - **Meaning**: "I will be."
+   - **Usage**: Indicates a future state that the speaker affirms will happen.
+   - **Example**: 
+     - **سَأَكُونُ سَعِيدًا.** (Sa akūnu saʿīdan.) - "I will be happy."
+
+2. **سَكَانَ (sa kāna)**: 
+   - **Meaning**: "He will be" (in a future context).
+   - **Usage**: Indicates a future state, even though **كَانَ** is a past tense verb. This construction is less common but can be used in specific contexts.
+   - **Example**: 
+     - **سَكَانَ هُوَ خَجُولًا.** (Sa kāna huwa khajūlan.) - "He will be (in the state of) shy."
+
+3. **سَأَكُنْ (sa akūn)**: 
+   - **Meaning**: "I will be."
+   - **Usage**: Indicates a future state that the speaker affirms will happen.
+   - **Example**: 
+     - **سَأَكُنْ شُجَاعًا.** (Sa akūn shujāʿan.) - "I will be brave."
+
+4. **لَمْ أَكُنْ (lam akūn)**: 
+   - **Meaning**: "I was not."
+   - **Usage**: Indicates that the speaker did not exist or was not in a certain state in the past.
+   - **Example**: 
+     - **لَمْ أَكُنْ خَجُولًا.** (Lam akūn khajūlan.) - "I was not shy."
+
+5. **لَمْ كَانَ (lam kāna)**: 
+   - **Meaning**: "He was not."
+   - **Usage**: Indicates that the subject did not exist or was not in a certain state in the past.
+   - **Example**: 
+     - **لَمْ كَانَ هُوَ خَجُولًا.** (Lam kāna huwa khajūlan.) - "He was not shy."
+
+6. **لَنْ أَكُونَ (lan akūna)**: 
+   - **Meaning**: "I will not be."
+   - **Usage**: Indicates a future state that will not happen.
+   - **Example**: 
+     - **لَنْ أَكُونَ سَعِيدًا.** (Lan akūna saʿīdan.) - "I will not be happy."
+
+7. **لَنْ كَانَ (lan kāna)**: 
+   - **Meaning**: "He will not be."
+   - **Usage**: Indicates a future state that will not happen, even though **كَانَ** is a past tense verb. This construction is less common.
+   - **Example**: 
+     - **لَنْ كَانَ هُوَ خَجُولًا.** (Lan kāna huwa khajūlan.) - "He will not be (in the state of) shy."
+
+8. **لَنْ أَكُنْ (lan akūn)**: 
+   - **Meaning**: "I will not be."
+   - **Usage**: Indicates a future state that will not happen.
+   - **Example**: 
+     - **لَنْ أَكُنْ خَجُولًا.** (Lan akūn khajūlan.) - "I will not be shy."
+
+### Summary of Key Points
+- **لَمْ** (lam) is used to negate past actions or states.
+- **لَنْ** (lan) is used to negate future actions or states.
+- **سَـ** (sa) is used to indicate that an action will happen in the near future.
+
+If you have any more questions or need further clarification on any of these forms, feel free to ask!
+
 
 ### ---------------------------------------------
 
