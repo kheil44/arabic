@@ -15,6 +15,12 @@ The phrase **كُنتُ خَجُولًا عِندَ مَا كُنتُ فِي ج�
 
 
 ### ---------------------------------------------
+The phrase "ma salama" translates to "goodbye" in English. With full diacritics, it is written as:
+
+**"مَعَ السَّلَامَةِ."**
+
+If you have more phrases or questions, feel free to ask!
+
 
 ### ---------------------------------------------
 
