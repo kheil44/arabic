@@ -1789,7 +1789,103 @@ If you have any further questions or need more examples or clarifications, pleas
 
 ### ---------------------------------------------
 
+The prefix "سَـ" (sa) in Arabic is used to indicate the future tense. When added to a verb, it signifies that the action will take place in the future. 
+
+### Explanation:
+- **سَأَعْمَلُ (saʿmalu)**:
+  - **سَـ** (sa) - indicates future tense ("will")
+  - **أَعْمَلُ** (ʿamal) - the verb meaning "I work" or "I do"
+
+So, "سَأَعْمَلُ" translates to "I will work."
+
+### Without "سَـ":
+If you simply say "أَعْمَلُ" (ʿamal), it means "I work" or "I do" in the present tense. 
+
+### Summary:
+- **سَأَعْمَلُ** - "I will work" (future tense)
+- **أَعْمَلُ** - "I work" (present tense)
+
+The addition of "سَـ" clarifies that the speaker is referring to a future action. If you have more questions about Arabic grammar or any other topic, feel free to ask!
+
+Here are 10 examples of Arabic verbs in the future tense using the prefix "سَـ" (sa) to indicate that the action will take place in the future, along with their English translations:
+
+1. **سَأَكْتُبُ (sa'aktubu)** - I will write.
+2. **سَأَذْهَبُ (sa'adhhabu)** - I will go.
+3. **سَأَكُلُ (sa'akulu)** - I will eat.
+4. **سَأَشْرَبُ (sa'ashrabu)** - I will drink.
+5. **سَأَتَعَلَّمُ (sa'ataʿallamu)** - I will learn.
+6. **سَأَلْعَبُ (sa'alʿabu)** - I will play.
+7. **سَأُسَافِرُ (sa'usāfiru)** - I will travel.
+8. **سَأُشَاهِدُ (sa'ushāhidu)** - I will watch.
+9. **سَأَجْتَمِعُ (sa'ajtamīʿu)** - I will meet.
+10. **سَأَحْضُرُ (sa'aḥḍuru)** - I will attend.
+
+In each of these examples, the prefix "سَـ" indicates that the action will occur in the future. If you have more questions or need further examples, feel free to ask!
+
+To turn Arabic verbs into the future tense (indicating "will..."), you generally add the prefix "سَـ" (sa) before the verb. Here’s how you can apply this rule to the verbs you mentioned, along with a general guideline for forming the future tense:
+
+### General Rule for Forming Future Tense:
+1. **Identify the verb** in its base form.
+2. **Add the prefix "سَـ" (sa)** to the verb to indicate future tense.
+
+### Examples:
+
+1. **أُرِيدُ (urīdu)** - "I want"
+   - **Future Tense**: **سَأُرِيدُ (sa'urīdu)** - "I will want"
+
+2. **أَعِيشُ (aʿīshu)** - "I reside" or "I live"
+   - **Future Tense**: **سَأَعِيشُ (sa'aʿīshu)** - "I will reside" or "I will live"
+
+### Additional Examples:
+Here are a few more verbs to illustrate the rule:
+
+3. **أَكْتُبُ (aktubu)** - "I write"
+   - **Future Tense**: **سَأَكْتُبُ (sa'aktubu)** - "I will write"
+
+4. **أَذْهَبُ (adhhabu)** - "I go"
+   - **Future Tense**: **سَأَذْهَبُ (sa'adhhabu)** - "I will go"
+
+5. **أَكُلُ (akulu)** - "I eat"
+   - **Future Tense**: **سَأَكُلُ (sa'akulu)** - "I will eat"
+
+### Summary:
+- To form the future tense, simply add "سَـ" (sa) before the verb.
+- The verb itself remains in its base form.
+
+If you have more verbs you'd like to convert or any other questions, feel free to ask!
+
+
+
 ### ---------------------------------------------
+
+The prefix "فَ" (fa) in Arabic is used to indicate a sequence of actions, often translated as "then" or "so." When you add "فَ" before a verb, it implies that the action will occur as a result of a previous statement or condition. 
+
+### Applying "فَ" to the Examples
+
+Here’s how "فَ" changes the examples provided earlier, along with your two words:
+
+1. **فَسَأُرِيدُ (fa sa'urīdu)** - "Then I will want."
+2. **فَسَأَعِيشُ (fa sa'aʿīshu)** - "Then I will reside."
+3. **فَسَأَكْتُبُ (fa sa'aktubu)** - "Then I will write."
+4. **فَسَأَذْهَبُ (fa sa'adhhabu)** - "Then I will go."
+5. **فَسَأَكُلُ (fa sa'akulu)** - "Then I will eat."
+6. **فَسَأَلْعَبُ (fa sa'alʿabu)** - "Then I will play."
+7. **فَسَأُسَافِرُ (fa sa'usāfiru)** - "Then I will travel."
+8. **فَسَأُشَاهِدُ (fa sa'ushāhidu)** - "Then I will watch."
+9. **فَسَأَجْتَمِعُ (fa sa'ajtamīʿu)** - "Then I will meet."
+10. **فَسَأَحْضُرُ (fa sa'aḥḍuru)** - "Then I will attend."
+
+### Applying "فَ" to Your Words
+
+1. **فَسَأُرِيدُ (fa sa'urīdu)** - "Then I will want."
+2. **فَسَأَعِيشُ (fa sa'aʿīshu)** - "Then I will reside."
+
+### Summary
+- The addition of "فَ" indicates that the action will follow another action or condition. 
+- It changes the meaning to imply a sequence, making it clear that the action will occur as a result of something else.
+
+If you have more questions or need further clarification, feel free to ask!
+
 
 ### ---------------------------------------------
 
