@@ -198,6 +198,21 @@ If you have any more questions or need further assistance, feel free to ask!
 
 ---
 
+Here’s a list of some famous nuts in Arabic, along with their names written with full diacritics:
+
+1. **لَوْز** (lūz) - Almond
+2. **فُسْتُق** (fustuq) - Pistachio
+3. **جَوْز** (jūz) - Walnut
+4. **كَاجُو** (kājū) - Cashew
+5. **بَندق** (banduq) - Hazelnut
+6. **مَكادَمِيَا** (makadāmiyā) - Macadamia
+7. **فَستق حَلَبي** (fustuq ḥalabī) - Aleppo pistachio
+8. **بَذور دوَّار الشمس** (badhūr duwwār al-shams) - Sunflower seeds (often considered a nut-like snack)
+9. **بَذور القرع** (badhūr al-qaraʿ) - Pumpkin seeds (also considered a nut-like snack)
+
+If you have any specific questions about these nuts or need further information, feel free to ask!
+
+
 
 ---
 
