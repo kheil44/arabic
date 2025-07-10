@@ -2150,7 +2150,7 @@ Certainly! Here’s the expanded response with full diacritics on all Arabic tex
 **Grammatical Explanation**: 
 - "أَمْسَى" (amsā) is a past tense verb that specifically refers to a change that occurs in the evening. It functions similarly to "أَصْبَحَ" (aṣbaḥa) but is time-specific. The subject is in the nominative case, and the predicate is in the accusative case.
 
-### 4. **ظلّ (ẓalla)** - remained
+### 4. **ظلّ (ẓalla)** - [Think of it as 'KEPT',kept waiting,kept sleeping etc]remained
 - **ظَلَّ الْجَوُّ غَائِمًا.**  
   (Ẓalla al-jawwu ghā'imān.)  
   "The weather remained cloudy."
