@@ -2774,6 +2774,24 @@ Using **بَاتَ** emphasizes the idea of spending the night talking, which fi
 
 ### ---------------------------------------------
 
+Both phrases convey the idea of not being present in class, but they use different terms for "class." Here’s a comparison:
+
+1. **لَمْ أَكُنْ فِي الصَّفِّ الْيَوْمَ**  
+   (lam akun fī al-ṣaffi al-yawm)  
+   - Translation: "I was not in the class today."  
+   - **الصَّفِّ** (al-ṣaff) refers to "the classroom" or "the class" in a more general sense, often used to describe the physical space or the group of students.
+
+2. **لَمْ أَكُنْ فِي الحَصَّةِ الْيَوْمَ**  
+   (lam akun fī al-ḥaṣṣati al-yawm)  
+   - Translation: "I was not in the class today."  
+   - **الحَصَّةِ** (al-ḥaṣṣah) specifically refers to "the lesson" or "the period," emphasizing the instructional aspect of the class.
+
+### Summary:
+- **الصَّفِّ** (al-ṣaff) is more about the physical classroom or the group of students.
+- **الحَصَّةِ** (al-ḥaṣṣah) focuses on the lesson or the specific time period of instruction.
+
+Both phrases are correct, and the choice between them can depend on the context or what aspect of the class you want to emphasize. If you have more questions or need further clarification, feel free to ask!
+
 ### ---------------------------------------------
 
 ### ---------------------------------------------
