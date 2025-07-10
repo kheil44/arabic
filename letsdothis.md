@@ -84,6 +84,89 @@ If you have any further questions or need more details about any specific diacri
 
 ---
 
+Here are the numbers from 1 to 10 in Arabic, along with their full diacritics:
+
+1. ١ - وَاحِدٌ (wāḥidun)  
+2. ٢ - اثْنَانِ (ithnān)  
+3. ٣ - ثَلاثَةٌ (thalāthatu)  
+4. ٤ - أَرْبَعَةٌ (arbaʿatu)  
+5. ٥ - خَمْسَةٌ (khamsatu)  
+6. ٦ - سِتَّةٌ (sittatu)  
+7. ٧ - سَبْعَةٌ (sabʿatu)  
+8. ٨ - ثَمَانِيَةٌ (thamāniyatu)  
+9. ٩ - تِسْعَةٌ (tisʿatu)  
+10. ١٠ - عَشَرَةٌ (ʿashara)  
+
+If you have any questions about these numbers or anything else related to Arabic, feel free to ask!
+
+
+---
+
+Sure! Let's break it down into three sections: the days of the week, weather terms, and temperature descriptions.
+
+### Days of the Week
+Here are the days of the week in Arabic with full diacritics:
+
+1. **الأَحَدُ** (al-ʾaḥadu) - Sunday  
+2. **الإِثْنَيْنِ** (al-ʾithnayni) - Monday  
+3. **الثُّلَاثَاءُ** (ath-thulāthāʾu) - Tuesday  
+4. **الأَرْبِعَاءُ** (al-ʾarbaʿāʾu) - Wednesday  
+5. **الخَمِيسُ** (al-khamīsu) - Thursday  
+6. **الْجُمُعَةُ** (al-jumʿatu) - Friday  
+7. **السَّبْتُ** (as-sabtu) - Saturday  
+
+### Weather Terms
+Here are some common weather-related terms in Arabic:
+
+1. **الشَّمْسُ** (ash-shamsu) - Sun  
+2. **الْمَطَرُ** (al-maṭaru) - Rain  
+3. **الْبَرْدُ** (al-barḍu) - Cold  
+4. **الرَّياحُ** (ar-riyāḥu) - Wind  
+5. **السُّحُبُ** (as-suḥubu) - Clouds  
+6. **الضَّبَابُ** (aḍ-ḍabābu) - Fog  
+7. **الْعَاصِفَةُ** (al-ʿāṣifatu) - Storm  
+8. **الْحَرَارَةُ** (al-ḥarārah) - Temperature  
+9. **الْجَلَسَةُ** (al-jalāsatu) - Humidity  
+10. **الْبَرْقُ** (al-barqu) - Lightning  
+11. **الرَّعْدُ** (ar-raʿdu) - Thunder  
+
+### Temperature Descriptions
+Here are common terms used to describe temperature:
+
+1. **حَارٌ** (ḥārun) - Hot  
+2. **دَافِئٌ** (dāfiʾun) - Warm  
+3. **مُعْتَدِلٌ** (muʿtadilu) - Mild  
+4. **بَارِدٌ** (bāridun) - Cold  
+5. **شَدِيدُ الْبَرْدِ** (shadīdu al-barḍi) - Very cold  
+6. **حَارٌ جِدًّا** (ḥārun jiddan) - Very hot  
+7. **مُتَجَمِّدٌ** (mutajammidun) - Freezing  
+
+If you have any further questions or need more information, feel free to ask!
+
+---
+
+Thank you for your patience! Let's first cover the four seasons, and then I'll explain the diacritics used in Arabic.
+
+### Four Seasons
+Here are the four seasons in Arabic with full diacritics:
+
+1. **الْفَصْلُ الرَّبِيعُ** (al-faṣlu ar-rabīʿu) - Spring  
+2. **الْفَصْلُ الصَّيفُ** (al-faṣlu aṣ-ṣayfu) - Summer  
+3. **الْفَصْلُ الْخَرِيفُ** (al-faṣlu al-kharīfu) - Autumn (Fall)  
+4. **الْفَصْلُ الشِّتَاءُ** (al-faṣlu ash-shitāʾu) - Winter  
+
+
+
+
+---
+
+
+---
+
+
+---
+
+
 
 
 ### ---------------------------------------------
