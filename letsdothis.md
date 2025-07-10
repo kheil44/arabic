@@ -1889,7 +1889,244 @@ If you have more questions or need further clarification, feel free to ask!
 
 ### ---------------------------------------------
 
+Both phrases **"ظلّ مُنتَظِرًا"** and **"مَكَثَ مُنْتَظِرًا"** convey the idea of someone waiting, but they have slightly different nuances and usages. Here’s a detailed comparison:
+
+### 1. **ظلّ مُنتَظِرًا (Ẓalla muntazhiran)**
+
+- **Meaning**: "He remained waiting."
+- **Verb Breakdown**:
+  - **ظلّ (ẓalla)**: This verb means "to remain" or "to stay." It implies a continuous state or condition.
+  - **مُنتَظِرًا (muntazhiran)**: This is the active participle form of the verb "to wait," meaning "waiting."
+- **Usage**: 
+  - This phrase emphasizes the ongoing nature of the waiting. It suggests that the person has been waiting for a while and continues to do so.
+
+### 2. **مَكَثَ مُنْتَظِرًا (Makatha muntazhiran)**
+
+- **Meaning**: "He remained waiting."
+- **Verb Breakdown**:
+  - **مَكَثَ (makatha)**: This verb means "to remain" or "to stay" as well, but it often implies a more passive state of remaining in a place for a period of time.
+  - **مُنتَظِرًا (muntazhiran)**: Again, this means "waiting."
+- **Usage**: 
+  - This phrase also indicates that the person is waiting, but it may carry a connotation of being in a specific location for a duration. It can imply a sense of patience or endurance in waiting.
+
+### Summary of Differences:
+- **ظلّ** emphasizes the continuous state of waiting, while **مَكَثَ** emphasizes the act of remaining in a place for a period of time.
+- Both phrases can be used interchangeably in many contexts, but the choice of verb may depend on the nuance you want to convey.
+
+If you have more questions or need further clarification, feel free to ask!
+
 ### ---------------------------------------------
+
+
+### Summary of All Verbs:
+1. **كَانَ (kān)** - was/were: Indicates a past state.
+2. **أَصْبَحَ (aṣbaḥa)** - became: Indicates a change to a new state.
+3. **أَمْسَى (amsā)** - became (in the evening): Indicates a change that occurs in the evening.
+4. **ظَلَّ (ẓalla)** - remained: Indicates continuity in a state.
+5. **بَاتَ (bāta)** - stayed (at night): Indicates a state that persists throughout the night.
+6. **صَارَ (ṣāra)** - became: Indicates a significant transformation.
+7. **مَا زَالَ (mā zāla)** - still: Indicates ongoing continuity.
+8. **لَيْسَ (laysa)** - is not: Indicates negation of a state.
+9. **أَضْحَى (aḍḥā)** - became (in the morning): Indicates a change in the morning.
+10. **مَا دَامَ (mā dāma)** - as long as: Indicates a condition of continuity.
+
+#
+
+
+Certainly! Here’s the expanded response with full diacritics on all Arabic text, along with detailed grammatical explanations for each verb in "كان وأخواتها."
+
+### 1. **كان (kān)** - was/were
+- **كَانَ الْجَوُّ جَمِيلًا.**  
+  (Kān al-jawwu jamīlā.)  
+  "The weather was beautiful."
+  
+- **كَانَ الطَّالِبُ مُتَفَوِّقًا.**  
+  (Kān al-ṭālibu mutafawwiqān.)  
+  "The student was outstanding."
+
+- **كَانَ الْكِتَابُ مُفِيدًا.**  
+  (Kān al-kitābu mufīdān.)  
+  "The book was useful."
+
+**Grammatical Explanation**: 
+- "كَانَ" (kān) is a past tense verb that indicates a state of being in the past. It is often used to describe conditions or characteristics that existed at a specific time. The subject (e.g., "الْجَوُّ" - al-jawwu) is in the nominative case, and the predicate (e.g., "جَمِيلًا" - jamīlā) is in the accusative case.
+
+### 2. **أصبح (aṣbaḥa)** - became
+- **أَصْبَحَ الْجَوُّ حَارًّا.**  
+  (Aṣbaḥa al-jawwu ḥārān.)  
+  "The weather became hot."
+
+- **أَصْبَحَ الطَّالِبُ أَفْضَلَ.**  
+  (Aṣbaḥa al-ṭālibu afḍal.)  
+  "The student became better."
+
+- **أَصْبَحَ الْمَشْرُوعُ نَاجِحًا.**  
+  (Aṣbaḥa al-mashrūʿu nājiḥān.)  
+  "The project became successful."
+
+**Grammatical Explanation**: 
+- "أَصْبَحَ" (aṣbaḥa) is a past tense verb that indicates a change in state. It is often used to express a transformation from one condition to another. The subject is in the nominative case, and the predicate is in the accusative case, indicating the new state.
+
+### 3. **أمسى (amsā)** - became (in the evening)
+- **أَمْسَى الْجَوُّ بَارِدًا.**  
+  (Amsā al-jawwu bāridān.)  
+  "The weather became cold in the evening."
+
+- **أَمْسَى الطَّالِبُ مُتْعَبًا.**  
+  (Amsā al-ṭālibu mutʿabān.)  
+  "The student became tired in the evening."
+
+- **أَمْسَى الْمَنْزِلُ هَادِئًا.**  
+  (Amsā al-manzilu hādiʾān.)  
+  "The house became quiet in the evening."
+
+**Grammatical Explanation**: 
+- "أَمْسَى" (amsā) is a past tense verb that specifically refers to a change that occurs in the evening. It functions similarly to "أَصْبَحَ" (aṣbaḥa) but is time-specific. The subject is in the nominative case, and the predicate is in the accusative case.
+
+### 4. **ظلّ (ẓalla)** - remained
+- **ظَلَّ الْجَوُّ غَائِمًا.**  
+  (Ẓalla al-jawwu ghā'imān.)  
+  "The weather remained cloudy."
+
+- **ظَلَّ الطَّالِبُ مُتَفَوِّقًا.**  
+  (Ẓalla al-ṭālibu mutafawwiqān.)  
+  "The student remained outstanding."
+
+- **ظَلَّ الْكِتَابُ مَفْتُوحًا.**  
+  (Ẓalla al-kitābu maftūḥān.)  
+  "The book remained open."
+
+**Grammatical Explanation**: 
+- "ظَلَّ" (ẓalla) is a past tense verb that indicates continuity or persistence in a state. It suggests that the subject has remained in a particular condition over time. The subject is in the nominative case, and the predicate is in the accusative case.
+
+### 5. **بات (bāta)** - stayed (at night)
+- **بَاتَ الْجَوُّ هَادِئًا.**  
+  (Bāta al-jawwu
+
+  Certainly! Here’s the continuation with full diacritics and detailed grammatical explanations for the remaining verbs in "كان وأخواتها."
+
+### 5. **بات (bāta)** - stayed (at night)
+- **بَاتَ الْجَوُّ هَادِئًا.**  
+  (Bāta al-jawwu hādiʾān.)  
+  "The weather stayed quiet at night."
+
+- **بَاتَ الطَّالِبُ مُسْتَعِدًّا.**  
+  (Bāta al-ṭālibu mustaʿiddān.)  
+  "The student stayed prepared at night."
+
+- **بَاتَ الْمَنْزِلُ مُظْلِمًا.**  
+  (Bāta al-manzilu muẓlimān.)  
+  "The house stayed dark at night."
+
+**Grammatical Explanation**: 
+- "بَاتَ" (bāta) is a past tense verb that indicates a state of being that persists throughout the night. It is often used to describe conditions that are stable during nighttime. The subject is in the nominative case, and the predicate is in the accusative case.
+
+### 6. **صار (ṣāra)** - became
+- **صَارَ الْجَوُّ رَطِبًا.**  
+  (Ṣāra al-jawwu raṭbān.)  
+  "The weather became humid."
+
+- **صَارَ الطَّالِبُ خَرِيجًا.**  
+  (Ṣāra al-ṭālibu kharījān.)  
+  "The student became a graduate."
+
+- **صَارَ الْمَشْرُوعُ كَبِيرًا.**  
+  (Ṣāra al-mashrūʿu kabīrān.)  
+  "The project became large."
+
+**Grammatical Explanation**: 
+- "صَارَ" (ṣāra) is a past tense verb that indicates a transformation or change to a new state. It is often used in contexts where the change is significant or noteworthy. The subject is in the nominative case, and the predicate is in the accusative case.
+
+### 7. **ما زال (mā zāla)** - still
+- **مَا زَالَ الْجَوُّ جَمِيلًا.**  
+  (Mā zāla al-jawwu jamīlā.)  
+  "The weather is still beautiful."
+
+- **مَا زَالَ الطَّالِبُ مُتَفَوِّقًا.**  
+  (Mā zāla al-ṭālibu mutafawwiqān.)  
+  "The student is still outstanding."
+
+- **مَا زَالَ الْكِتَابُ مُفِيدًا.**  
+  (Mā zāla al-kitābu mufīdān.)  
+  "The book is still useful."
+
+**Grammatical Explanation**: 
+- "مَا زَالَ" (mā zāla) is a phrase that indicates continuity, meaning that the state described has not changed and is ongoing. The subject is in the nominative case, and the predicate is in the accusative case.
+
+### 8. **ليس (laysa)** - is not
+- **لَيْسَ الْجَوُّ جَيِّدًا.**  
+  (Laysa al-jawwu jayyidān.)  
+  "The weather is not good."
+
+- **لَيْسَ الطَّالِبُ مُتَفَوِّقًا.**  
+  (Laysa al-ṭālibu mutafawwiqān.)  
+  "The student is not outstanding."
+
+- **لَيْسَ الْكِتَابُ مُفِيدًا.**  
+  (Laysa al-kitābu mufīdān.)  
+  "The book is not useful."
+
+**Grammatical Explanation**: 
+- "لَيْسَ" (laysa) is a negation verb that indicates the absence of a state or quality. It is used to negate the predicate, which is in the accusative case, while the subject remains in the nominative case.
+
+### Summary of Interchangeability:
+- **كَانَ (kān)** and **أَصْبَحَ (aṣbaḥa)** can sometimes be used interchangeably, but with a slight difference in meaning. "كَانَ" indicates a past state, while "أَصْبَحَ" indicates a change to a new state.
+  
+- **ظَلَّ (ẓalla)** and **مَا زَالَ (mā zāla)** can also be used interchangeably in some contexts, as both indicate continuity. However, "ظَلَّ" often implies a longer
+
+
+
+Certainly! Let's add **أَضْحَى** (aḍḥā) and **مَا دَامَ** (mā dāma) to the list of "كان وأخواتها," along with full diacritics, examples, and grammatical explanations.
+
+### 9. **أَضْحَى (aḍḥā)** - became (in the morning)
+- **أَضْحَى الْجَوُّ دَافِئًا.**  
+  (Aḍḥā al-jawwu dāfiʾān.)  
+  "The weather became warm in the morning."
+
+- **أَضْحَى الطَّالِبُ مُتَفَوِّقًا.**  
+  (Aḍḥā al-ṭālibu mutafawwiqān.)  
+  "The student became outstanding."
+
+- **أَضْحَى الْمَشْرُوعُ نَاجِحًا.**  
+  (Aḍḥā al-mashrūʿu nājiḥān.)  
+  "The project became successful."
+
+**Grammatical Explanation**: 
+- "أَضْحَى" (aḍḥā) is a past tense verb that indicates a change in state occurring in the morning. It functions similarly to "أَصْبَحَ" (aṣbaḥa) but is specifically used for changes that happen during the daytime. The subject is in the nominative case, and the predicate is in the accusative case.
+
+### 10. **مَا دَامَ (mā dāma)** - as long as
+- **مَا دَامَ الْجَوُّ جَمِيلًا، سَنَخْرُجُ.**  
+  (Mā dāma al-jawwu jamīlā, sanakhruju.)  
+  "As long as the weather is beautiful, we will go out."
+
+- **مَا دَامَ الطَّالِبُ مُتَفَوِّقًا، سَيَحْصُلُ عَلَى مِنَحَةٍ.**  
+  (Mā dāma al-ṭālibu mutafawwiqān, sayaḥṣulu ʿalā minḥatin.)  
+  "As long as the student is outstanding, he will receive a scholarship."
+
+- **مَا دَامَ الْكِتَابُ مُفِيدًا، سَأَكْمَلُ قِرَاءَتَهُ.**  
+  (Mā dāma al-kitābu mufīdān, sa'akmilu qirā'atuhu.)  
+  "As long as the book is useful, I will continue reading it."
+
+**Grammatical Explanation**: 
+- "مَا دَامَ" (mā dāma) is a phrase that indicates a condition of continuity. It is used to express that as long as a certain state or condition exists, a particular action or situation will continue. The subject is in the nominative case, and the predicate is in the accusative case.
+
+### Summary of All Verbs:
+1. **كَانَ (kān)** - was/were: Indicates a past state.
+2. **أَصْبَحَ (aṣbaḥa)** - became: Indicates a change to a new state.
+3. **أَمْسَى (amsā)** - became (in the evening): Indicates a change that occurs in the evening.
+4. **ظَلَّ (ẓalla)** - remained: Indicates continuity in a state.
+5. **بَاتَ (bāta)** - stayed (at night): Indicates a state that persists throughout the night.
+6. **صَارَ (ṣāra)** - became: Indicates a significant transformation.
+7. **مَا زَالَ (mā zāla)** - still: Indicates ongoing continuity.
+8. **لَيْسَ (laysa)** - is not: Indicates negation of a state.
+9. **أَضْحَى (aḍḥā)** - became (in the morning): Indicates a change in the morning.
+10. **مَا دَامَ (mā dāma)** - as long as: Indicates a condition of continuity.
+
+### Interchangeability:
+- **أَصْبَحَ (aṣbaḥa)** and **أَضْحَى (aḍḥā)** can be used interchangeably in contexts where the change occurs in the morning, but **أَضْحَى** is more specific to daytime changes.
+- **ظَلَّ (ẓalla)** and **مَا زَالَ (mā zāla)** can be used interchange
+
+- 
 
 ### ---------------------------------------------
 
