@@ -179,7 +179,22 @@ If you have any more questions or need further assistance, feel free to ask!
 
 
 ---
+Here’s a table displaying the numbers from 41 to 70 in Arabic, organized in three columns:
 
+| **Numbers (41-50)** | **Numbers (51-60)** | **Numbers (61-70)** |
+|---------------------|---------------------|---------------------|
+| ٤١ - أَحَدٌ وَأَرْبَعُونَ (aḥadun wa-arbaʿūna) | ٥١ - أَحَدٌ وَخَمْسُونَ (aḥadun wa-khamṣūna) | ٦١ - أَحَدٌ وَسِتُّونَ (aḥadun wa-sittūna) |
+| ٤٢ - اثْنَانِ وَأَرْبَعُونَ (ithnān wa-arbaʿūna) | ٥٢ - اثْنَانِ وَخَمْسُونَ (ithnān wa-khamṣūna) | ٦٢ - اثْنَانِ وَسِتُّونَ (ithnān wa-sittūna) |
+| ٤٣ - ثَلاثَةٌ وَأَرْبَعُونَ (thalāthatu wa-arbaʿūna) | ٥٣ - ثَلاثَةٌ وَخَمْسُونَ (thalāthatu wa-khamṣūna) | ٦٣ - ثَلاثَةٌ وَسِتُّونَ (thalāthatu wa-sittūna) |
+| ٤٤ - أَرْبَعَةٌ وَأَرْبَعُونَ (arbaʿatu wa-arbaʿūna) | ٥٤ - أَرْبَعَةٌ وَخَمْسُونَ (arbaʿatu wa-khamṣūna) | ٦٤ - أَرْبَعَةٌ وَسِتُّونَ (arbaʿatu wa-sittūna) |
+| ٤٥ - خَمْسَةٌ وَأَرْبَعُونَ (khamsatu wa-arbaʿūna) | ٥٥ - خَمْسَةٌ وَخَمْسُونَ (khamsatu wa-khamṣūna) | ٦٥ - خَمْسَةٌ وَسِتُّونَ (khamsatu wa-sittūna) |
+| ٤٦ - سِتَّةٌ وَأَرْبَعُونَ (sittatu wa-arbaʿūna) | ٥٦ - سِتَّةٌ وَخَمْسُونَ (sittatu wa-khamṣūna) | ٦٦ - سِتَّةٌ وَسِتُّونَ (sittatu wa-sittūna) |
+| ٤٧ - سَبْعَةٌ وَأَرْبَعُونَ (sabʿatu wa-arbaʿūna) | ٥٧ - سَبْعَةٌ وَخَمْسُونَ (sabʿatu wa-khamṣūna) | ٦٧ - سَبْعَةٌ وَسِتُّونَ (sabʿatu wa-sittūna) |
+| ٤٨ - ثَمَانِيَةٌ وَأَرْبَعُونَ (thamāniyatu wa-arbaʿūna) | ٥٨ - ثَمَانِيَةٌ وَخَمْسُونَ (thamāniyatu wa-khamṣūna) | ٦٨ - ثَمَانِيَةٌ وَسِتُّونَ (thamāniyatu wa-sittūna) |
+| ٤٩ - تِسْعَةٌ وَأَرْبَعُونَ (tisʿatu wa-arbaʿūna) | ٥٩ - تِسْعَةٌ وَخَمْسُونَ (tisʿatu wa-khamṣūna) | ٦٩ - تِسْعَةٌ وَسِتُّونَ (tisʿatu wa-sittūna) |
+| ٥٠ - خَمْسُونَ (khamsūna) | ٦٠ - سِتُّونَ (sittūna) | ٧٠ - سَبْعُونَ (sabʿūna) |
+
+If you have any more questions or need further assistance, feel free to ask!
 
 ---
 
