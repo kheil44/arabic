@@ -160,6 +160,23 @@ Here are the four seasons in Arabic with full diacritics:
 
 ---
 
+Here’s a table displaying the numbers from 11 to 40 in Arabic, organized in three columns:
+
+| **Numbers (11-20)** | **Numbers (21-30)** | **Numbers (31-40)** |
+|---------------------|---------------------|---------------------|
+| ١١ - أَحَدَ عَشَرَ (aḥada ʿashara) | ٢١ - وَاحِدٌ وَعِشْرُونَ (wāḥidun wa-ʿishrūna) | ٣١ - وَاحِدٌ وَثَلاثُونَ (wāḥidun wa-thalāthūna) |
+| ١٢ - اثْنَا عَشَرَ (ithnā ʿashara) | ٢٢ - اثْنَانِ وَعِشْرُونَ (ithnān wa-ʿishrūna) | ٣٢ - اثْنَانِ وَثَلاثُونَ (ithnān wa-thalāthūna) |
+| ١٣ - ثَلاثَةَ عَشَرَ (thalāthatu ʿashara) | ٢٣ - ثَلاثَةٌ وَعِشْرُونَ (thalāthatu wa-ʿishrūna) | ٣٣ - ثَلاثَةٌ وَثَلاثُونَ (thalāthatu wa-thalāthūna) |
+| ١٤ - أَرْبَعَةَ عَشَرَ (arbaʿatu ʿashara) | ٢٤ - أَرْبَعَةٌ وَعِشْرُونَ (arbaʿatu wa-ʿishrūna) | ٣٤ - أَرْبَعَةٌ وَثَلاثُونَ (arbaʿatu wa-thalāthūna) |
+| ١٥ - خَمْسَةَ عَشَرَ (khamsatu ʿashara) | ٢٥ - خَمْسَةٌ وَعِشْرُونَ (khamsatu wa-ʿishrūna) | ٣٥ - خَمْسَةٌ وَثَلاثُونَ (khamsatu wa-thalāthūna) |
+| ١٦ - سِتَّةَ عَشَرَ (sittatu ʿashara) | ٢٦ - سِتَّةٌ وَعِشْرُونَ (sittatu wa-ʿishrūna) | ٣٦ - سِتَّةٌ وَثَلاثُونَ (sittatu wa-thalāthūna) |
+| ١٧ - سَبْعَةَ عَشَرَ (sabʿatu ʿashara) | ٢٧ - سَبْعَةٌ وَعِشْرُونَ (sabʿatu wa-ʿishrūna) | ٣٧ - سَبْعَةٌ وَثَلاثُونَ (sabʿatu wa-thalāthūna) |
+| ١٨ - ثَمَانِيَةَ عَشَرَ (thamāniyatu ʿashara) | ٢٨ - ثَمَانِيَةٌ وَعِشْرُونَ (thamāniyatu wa-ʿishrūna) | ٣٨ - ثَمَانِيَةٌ وَثَلاثُونَ (thamāniyatu wa-thalāthūna) |
+| ١٩ - تِسْعَةَ عَشَرَ (tisʿatu ʿashara) | ٢٩ - تِسْعَةٌ وَعِشْرُونَ (tisʿatu wa-ʿishrūna) | ٣٩ - تِسْعَةٌ وَثَلاثُونَ (tisʿatu wa-thalāthūna) |
+| ٢٠ - عِشْرُونَ (ʿishrūna) | ٣٠ - ثَلاثُونَ (thalāthūna) | ٤٠ - أَرْبَعُونَ (arbaʿūna) |
+
+If you have any more questions or need further assistance, feel free to ask!
+
 
 ---
 
@@ -167,6 +184,22 @@ Here are the four seasons in Arabic with full diacritics:
 ---
 
 
+---
+
+
+---
+
+
+---
+
+
+---
+
+
+---
+
+
+---
 
 
 ### ---------------------------------------------
