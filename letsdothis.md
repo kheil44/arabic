@@ -216,6 +216,16 @@ If you have any specific questions about these nuts or need further information,
 
 ---
 
+The phrase you are referring to might be **شَوِي شَوِي** (shway shway), which translates to "a little bit" or "slowly" in Arabic. 
+
+Here’s the breakdown with full diacritics:
+
+- **شَوِي** (shway) - a colloquial term meaning "a little" or "somewhat"
+- **شَوِي** (shway) - repeated for emphasis, meaning "a little bit" or "slowly"
+
+This phrase is often used in casual conversation to indicate doing something gradually or in small amounts.
+
+If you have more questions or need further clarification, feel free to ask!
 
 ---
 
@@ -230,6 +240,42 @@ If you have any specific questions about these nuts or need further information,
 
 
 ---
+
+---
+
+
+---
+
+
+---
+
+
+---
+
+
+---
+
+
+---
+
+
+---
+
+
+---
+
+
+---
+
+
+---
+
+
+---
+
+
+---
+
 
 
 ### ---------------------------------------------
