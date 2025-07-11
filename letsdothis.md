@@ -3107,6 +3107,29 @@ If you have any further questions or need more clarification, feel free to ask!
 
 ### ---------------------------------------------
 
+#### the following explnatin compared to the video explanation ;;;
+
+Great question! The difference between using **أَيُّ** (ayyu) and **أَيَّ** (ayya) in Arabic is based on the grammatical case of the noun they modify. Here’s a detailed explanation of why each form is used in the specific contexts you mentioned:
+
+### 1. **أَيُّ طَالِبٍ وَصَلَ؟** (ayyu ṭālibin waṣala?)
+- **أَيُّ** (ayyu) is used here because **طَالِبٍ** (ṭālibin) is in the **genitive case** (indicated by the kasrah at the end). 
+- In this context, **أَيُّ** is appropriate because it is asking about a specific student (the subject of the sentence) and is in the nominative case.
+
+### 2. **أَيَّ شَرِكَةٍ بَدَأْتَ؟** (ayya sharikatin bada'ta?)
+- **أَيَّ** (ayya) is used here because **شَرِكَةٍ** (sharikatin) is also in the **genitive case** (indicated by the kasrah at the end).
+- However, in this context, **أَيَّ** is appropriate because it is used to ask about a specific company that is the object of the action (the company that started).
+
+### Summary of Usage
+- **أَيُّ** (ayyu) is used when the noun it modifies is in the **nominative case** or when it is the subject of the sentence.
+- **أَيَّ** (ayya) is used when the noun it modifies is in the **accusative case** or when it is the object of the action.
+
+### Why Not Use One for Both?
+- The choice between **أَيُّ** and **أَيَّ** is determined by the grammatical structure of the sentence. Each form has a specific role based on the case of the noun it modifies.
+- Using one form in both contexts would lead to grammatical errors. For example, using **أَيُّ** in **أَيَّ شَرِكَةٍ بَدَأْتَ؟** would be incorrect because it does not match the case of **شَرِكَةٍ**.
+
+### Conclusion
+In summary, the use of **أَيُّ** and **أَيَّ** depends on the grammatical case of the noun they modify. Understanding these distinctions is crucial for proper sentence construction in Arabic. If you have any further questions or need more clarification, feel free to ask!
+
 ### ---------------------------------------------
 
 ### ---------------------------------------------
