@@ -2902,7 +2902,188 @@ If you have any more questions or need further clarification, feel free to ask!
 
 ### ---------------------------------------------
 
+Certainly! Here’s a comprehensive exploration of the usage of **لم** (lam) in Arabic, including various sentence structures, examples, and contexts. This will cover its role in negating past tense verbs, its interaction with different subjects, and its grammatical implications.
+
+### Detailed Usage of لم (lam)
+
+**لم** (lam) is a negation particle used primarily to negate verbs in the past tense. It is essential for forming negative sentences and is followed by a verb in the subjunctive mood. Below, we will explore its usage in various contexts, providing numerous examples to illustrate its application.
+
+### 1. **Basic Structure**
+The basic structure for using **لم** is:
+- **لم + [verb in the past tense]**
+
+### 2. **Negating Simple Past Actions**
+**لم** is used to negate simple past actions. Here are several examples:
+
+- **لَمْ أَكْتُبْ الرِّسَالَةَ.**  
+  (lam aktub al-risālah.)  
+  "I did not write the letter."
+
+- **لَمْ يَأْكُلْ الطِّفْلُ.**  
+  (lam ya'kul al-ṭifl.)  
+  "The child did not eat."
+
+- **لَمْ تَذْهَبْ إِلَى السُّوقِ.**  
+  (lam tadhhab ilā al-sūq.)  
+  "You (feminine) did not go to the market."
+
+- **لَمْ نَشْتَرِ الطَّعَامَ.**  
+  (lam nashtar al-ṭaʿām.)  
+  "We did not buy the food."
+
+### 3. **Negating Actions with Different Subjects**
+**لم** can be used with various subjects, including first, second, and third persons, both singular and plural.
+
+#### a. **First Person Singular**
+- **لَمْ أَشْعُرْ بِالتَّعَبِ.**  
+  (lam ašʿur bi-al-taʿab.)  
+  "I did not feel tired."
+
+#### b. **First Person Plural**
+- **لَمْ نَفْهَمْ الدَّرْسَ.**  
+  (lam nafham al-dars.)  
+  "We did not understand the lesson."
+
+#### c. **Second Person Singular (Masculine)**
+- **لَمْ تَجِدْ حَلًّا.**  
+  (lam tajid ḥallan.)  
+  "You (masculine) did not find a solution."
+
+#### d. **Second Person Singular (Feminine)**
+- **لَمْ تَكْتُبِي الرِّسَالَةَ.**  
+  (lam taktubi al-risālah.)  
+  "You (feminine) did not write the letter."
+
+#### e. **Second Person Plural**
+- **لَمْ تَسْتَطِيعُوا الحُضُورَ.**  
+  (lam tastaṭīʿū al-ḥuḍūr.)  
+  "You (plural) could not attend."
+
+#### f. **Third Person Singular (Masculine)**
+- **لَمْ يَكُنْ هُنَاكَ مَشَاكِلُ.**  
+  (lam yakun hunāka mashākil.)  
+  "There were no problems."
+
+#### g. **Third Person Singular (Feminine)**
+- **لَمْ تَكُنْ فِي الْمَنْزِلِ.**  
+  (lam takun fi al-manzil.)  
+  "She was not at home."
+
+#### h. **Third Person Plural**
+- **لَمْ يَحْضُرُوا الْمُحَاضَرَةَ.**  
+  (lam yaḥḍurū al-muḥāḍarah.)  
+  "They did not attend the lecture."
+
+### 4. **Negating Continuous Actions**
+**لم** can also be used to negate actions that were ongoing in the past.
+
+- **لَمْ أَكُنْ أَعْمَلُ فِي الشَّرِكَةِ.**  
+  (lam akun aʿmal fi al-sharikah.)  
+  "I was not working at the company."
+
+- **لَمْ يَكُونُوا يَتَحَدَّثُونَ.**  
+  (lam yakūnū yatḥaddithūn.)  
+  "They were not talking."
+
+### 5. **Negating Future Intentions**
+While **لم** primarily negates past actions, it can also imply future intentions that did not occur.
+
+- **لَمْ أَكُنْ أُرِيد
+
 ### ---------------------------------------------
+
+Certainly! Here’s a comprehensive overview of the word **أَيِّ** (ayyi) in Arabic, including its grammatical aspects, meanings, and various scenarios of usage.
+
+### Overview of أَيِّ (ayyi)
+
+**أَيِّ** (ayyi) is an interrogative pronoun in Arabic that translates to "which" in English. It is used to ask questions about specific items or choices among a set of options.
+
+### 1. **Grammatical Information**
+- **Part of Speech:** Interrogative pronoun
+- **Gender:** It does not have a gender; it can refer to both masculine and feminine nouns.
+- **Case:** It is used in different cases depending on the noun it modifies.
+
+### 2. **Forms of أَيِّ**
+**أَيِّ** can take different forms based on the grammatical case of the noun it is associated with:
+
+- **Nominative Case:** 
+  - **أَيُّ** (ayyu) - used when the noun is the subject of the sentence.
+  - Example: **أَيُّ كِتَابٍ تَفَضَّلْتَ؟** (ayyu kitābin tafaddalta?) - "Which book do you prefer?"
+
+- **Accusative Case:** 
+  - **أَيَّ** (ayya) - used when the noun is the direct object of the sentence.
+  - Example: **أَيَّ سَيَّارَةٍ تَشْتَرِي؟** (ayya sayyāratin tashtari?) - "Which car are you buying?"
+
+- **Genitive Case:** 
+  - **أَيِّ** (ayyi) - used when the noun is in a genitive relationship (indicating possession or relation).
+  - Example: **إِلَى أَيِّ بَلَدٍ سَافَرْتَ؟** (ilā ayyi baladin sāfarta?) - "To which country did you travel?"
+
+### 3. **Usage Scenarios**
+**أَيِّ** can be used in various contexts, including:
+
+- **Asking About Choices:**
+  - **أَيُّ طَعَامٍ تُفَضِّلُ؟** (ayyu ṭaʿāmin tufaddilu?) - "Which food do you prefer?"
+
+- **Inquiring About Specifics:**
+  - **أَيَّ مَادَّةٍ تَدْرُسُ؟** (ayya māddatin tadrusu?) - "Which subject are you studying?"
+
+- **Clarifying Options:**
+  - **أَيَّ فِيلْمٍ شَاهَدْتَ؟** (ayya fīlmin shāhadta?) - "Which movie did you watch?"
+
+### 4. **Related Words and Expressions**
+- **أَيَّةٌ** (ayya) - feminine form of "which."
+- **أَيُّهُمَا** (ayyu-humā) - meaning "which of the two."
+- **أَيُّهُمْ** (ayyu-hum) - meaning "which of them."
+
+### 5. **Common Mistakes**
+- **Confusing Cases:** It’s important to use the correct form of **أَيِّ** based on the grammatical case of the noun it modifies. For example, using **أَيُّ** instead of **أَيَّ** when the noun is a direct object would be incorrect.
+
+### 6. **Examples in Context**
+- **Nominative:** 
+  - **أَيُّ طَالِبٍ أَحْسَنُ؟** (ayyu ṭālibin aḥsanu?) - "Which student is better?"
+  
+- **Accusative:** 
+  - **أَيَّ كِتَابٍ قَرَأْتَ؟** (ayya kitābin qara'ta?) - "Which book did you read?"
+
+- **Genitive:** 
+  - **مِنْ أَيِّ مَدِينَةٍ أَنتَ؟** (min ayyi madīnatin anta?) - "From which city are you?"
+
+### Conclusion
+The word **أَيِّ** (ayyi) is a versatile interrogative pronoun in Arabic that is essential for asking questions about choices and specifics. Understanding its forms and usage is crucial for effective communication in Arabic. If you have any further questions or need more examples, feel free to ask!
+
+
+Certainly! The word **أَيِّ** (ayyi) can be used with various prepositions in Arabic, and its form may change depending on the grammatical case of the noun it modifies. Below are examples of **أَيِّ** used with different prepositions, along with explanations of how it affects the other words in the sentence.
+
+### 1. **مِنْ أَيِّ** (min ayyi) - "From which"
+- **Example:** **مِنْ أَيِّ بَلَدٍ أَنتَ؟** (min ayyi baladin anta?) - "From which country are you?"
+- **Effect:** The preposition **مِنْ** (min) requires **أَيِّ** to be in the genitive case, so it remains **أَيِّ** and modifies **بَلَدٍ** (baladin) in the genitive form.
+
+### 2. **إِلَى أَيِّ** (ilā ayyi) - "To which"
+- **Example:** **إِلَى أَيِّ مَدِينَةٍ سَافَرْتَ؟** (ilā ayyi madīnatin sāfarta?) - "To which city did you travel?"
+- **Effect:** The preposition **إِلَى** (ilā) also requires **أَيِّ** to be in the genitive case, so it remains **أَيِّ** and modifies **مَدِينَةٍ** (madīnatīn) in the genitive form.
+
+### 3. **عَنْ أَيِّ** (ʿan ayyi) - "About which"
+- **Example:** **عَنْ أَيِّ مَوْضُوعٍ تَتَحَدَّثُ؟** (ʿan ayyi mawḍūʿin tataḥaddathu?) - "About which topic are you talking?"
+- **Effect:** The preposition **عَنْ** (ʿan) requires **أَيِّ** to be in the genitive case, so it remains **أَيِّ** and modifies **مَوْضُوعٍ** (mawḍūʿin) in the genitive form.
+
+### 4. **مَعَ أَيِّ** (maʿa ayyi) - "With which"
+- **Example:** **مَعَ أَيِّ أَصْدِقَاءِ تَجْلِسُ؟** (maʿa ayyi aṣdiqā'i tajlisu?) - "With which friends are you sitting?"
+- **Effect:** The preposition **مَعَ** (maʿa) requires **أَيِّ** to be in the genitive case, so it remains **أَيِّ** and modifies **أَصْدِقَاءِ** (aṣdiqā'i) in the genitive form.
+
+### 5. **فِي أَيِّ** (fī ayyi) - "In which"
+- **Example:** **فِي أَيِّ مَكَانٍ تَجِدُهُ؟** (fī ayyi makānin tajiduhu?) - "In which place do you find it?"
+- **Effect:** The preposition **فِي** (fī) requires **أَيِّ** to be in the genitive case, so it remains **أَيِّ** and modifies **مَكَانٍ** (makānin) in the genitive form.
+
+### 6. **عَلَى أَيِّ** (ʿalā ayyi) - "On which"
+- **Example:** **عَلَى أَيِّ طَاوِلَةٍ تَضَعُهُ؟** (ʿalā ayyi ṭāwilatin taḍaʿuhu?) - "On which table do you put it?"
+- **Effect:** The preposition **عَلَى** (ʿalā) requires **أَيِّ** to be in the genitive case, so it remains **أَيِّ** and modifies **طَاوِلَةٍ** (ṭāwilatin) in the genitive form.
+
+### Summary
+The word **أَيِّ** (ayyi) remains in the same form when used with different prepositions, but it modifies the noun that follows it according to the grammatical case required by the preposition. In all the examples above, **أَيِّ** is used in the genitive case, affecting the noun it modifies to also be in the genitive form.
+
+If you have more questions or need further examples, feel free to ask!
+
+
 
 ### ---------------------------------------------
 
