@@ -3087,6 +3087,24 @@ If you have more questions or need further examples, feel free to ask!
 
 ### ---------------------------------------------
 
+In the phrase **أَيَّ شَرِكَةٍ بَدَأْتَ؟** (ayya sharikatin bada'ta?), you cannot replace **أَيَّ** (ayya) with **أَيُّ** (ayyu) because they serve different grammatical functions.
+
+### Explanation of the Two Forms
+
+1. **أَيَّ** (ayya):
+   - **Usage:** This form is used in the accusative case. It is appropriate when the noun it modifies is in the accusative or genitive case.
+   - **Example:** In **أَيَّ شَرِكَةٍ بَدَأْتَ؟** (ayya sharikatin bada'ta?), **شَرِكَةٍ** (sharikatin) is in the genitive case, and **أَيَّ** is correctly used here to ask "Which company?"
+
+2. **أَيُّ** (ayyu):
+   - **Usage:** This form is used in the nominative case. It is appropriate when the noun it modifies is the subject of the sentence.
+   - **Example:** If you were to ask about a subject in the nominative case, you would say something like **أَيُّ شَرِكَةٍ بَدَأَتْ؟** (ayyu sharikatin bada'at?), which would translate to "Which company has started?" This is grammatically correct but changes the structure of the question.
+
+### Conclusion
+- In the context of **أَيَّ شَرِكَةٍ بَدَأْتَ؟** (ayya sharikatin bada'ta?), **أَيَّ** is the correct form to use because it aligns with the grammatical structure of the sentence.
+- You cannot replace **أَيَّ** with **أَيُّ** in this specific question without altering the grammatical correctness.
+
+If you have any further questions or need more clarification, feel free to ask!
+
 ### ---------------------------------------------
 
 ### ---------------------------------------------
