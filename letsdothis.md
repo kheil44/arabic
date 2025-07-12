@@ -3644,6 +3644,25 @@ If you have any further questions or need clarification on specific aspects, fee
 
 ### ---------------------------------------------
 
+Yes, the words "أهَمَّ" (ahamma), "مُهِمّ" (muhimm), "مُهِمَّة" (muhimmah), "أَهَمِّيَّة" (ahamiyyah), "اهْتِمَام" (ihtimam), and "اهْتَمَّ" (ihtamma) all share the same root in Arabic, which is "همم" (h-m-m). 
+
+### Explanation of the Root
+
+1. **Root Structure:**
+   - In Arabic, many words are derived from three-letter roots. The root "همم" (h-m-m) conveys meanings related to concern, importance, and care. This root serves as the foundation for various derived forms that expand on these core meanings.
+
+2. **Derived Forms:**
+   - **أهَمَّ (ahamma):** A verb meaning "to concern" or "to matter."
+   - **مُهِمّ (muhimm):** An adjective meaning "important."
+   - **مُهِمَّة (muhimmah):** A noun meaning "task" or "mission."
+   - **أَهَمِّيَّة (ahamiyyah):** A noun meaning "importance" or "significance."
+   - **اهْتِمَام (ihtimam):** A noun meaning "concern" or "interest."
+   - **اهْتَمَّ (ihtamma):** A verb meaning "to care about" or "to be concerned with."
+
+### Conclusion
+
+The shared root "همم" (h-m-m) illustrates how these words are interconnected, reflecting various aspects of importance and concern in the Arabic language. Understanding this root helps in grasping the nuances of each term and their usage in different contexts. If you have more questions or need further clarification, feel free to ask!
+
 Certainly! Below is a detailed essay discussing the Arabic words "أهَمَّ," "مُهِمّ," "مُهِمَّة," "أَهَمِّيَّة," "اهْتِمَام," and "اهْتَمَّ," along with their meanings, usage, and significance in the Arabic language. I will ensure that all diacritics are accurate.
 
 ---
