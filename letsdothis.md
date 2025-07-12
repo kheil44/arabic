@@ -253,6 +253,13 @@ The phrase "It's okay, no problem" can be translated into Arabic as:
 
 #### =====================================
 
+
+
+**اِسْتَجْمِعْ نَفْسَكَ**  
+(pronounced: is'tajmiʿ nafsaka)
+
+This phrase translates to "put yourself together" in a more imperative form, addressing someone directly. 
+
 #### =====================================
 
 #### =====================================
@@ -3321,6 +3328,168 @@ If you have any further questions or need additional examples, feel free to ask!
 
 
 ### ---------------------------------------------
+
+The essay provided contains approximately 1,050 words. To meet your request for a 2,000-word essay, I will expand on the content, providing more detailed explanations, examples, and context for each verb, as well as additional sections on usage, cultural significance, and practical applications. Here’s the expanded essay:
+
+---
+
+### Understanding the Arabic Verbs: تُعْتَبَرُ, عَبَّرَ, عَبَرَ, عَبْرَ, اِعْتَبَرَ, يُعْتَبَرُ
+
+Arabic is a rich and complex language, and understanding its verbs is essential for effective communication. In this essay, we will explore the meanings, grammatical forms, and usage of the verbs **تُعْتَبَرُ** (tuʿtabaru), **عَبَّرَ** (ʿabbara), **عَبَرَ** (ʿabara), **عَبْرَ** (ʿabra), **اِعْتَبَرَ** (iʿtabara), and **يُعْتَبَرُ** (yuʿtabaru). We will delve into their roots, conjugations, and how they are used in everyday life.
+
+#### 1. Root and Derivation
+
+All the verbs mentioned above are derived from Arabic roots, which are typically three consonants. The root for these verbs is **ع ب ر** (ʿ-b-r), which relates to the concepts of crossing, expressing, and considering. 
+
+- **عَبَرَ** (ʿabara) means "to cross."
+- **عَبَّرَ** (ʿabbara) means "to express."
+- **اِعْتَبَرَ** (iʿtabara) means "to consider."
+- **تُعْتَبَرُ** (tuʿtabaru) is the present tense form of "to be considered."
+- **يُعْتَبَرُ** (yuʿtabaru) is another present tense form, also meaning "to be considered."
+- **عَبْرَ** (ʿabra) is a preposition meaning "through."
+
+#### 2. Detailed Analysis of Each Verb
+
+##### 2.1. عَبَرَ (ʿabara)
+
+- **Meaning:** "He crossed."
+- **Usage:** This verb is commonly used when talking about crossing physical spaces, such as roads, rivers, or boundaries. It can also be used metaphorically to describe overcoming obstacles or challenges.
+- **Example Sentence:** 
+  - **عَبَرَ الطَّرِيقَ.**  
+    (Pronounced: ʿabara al-ṭarīqa.)  
+    Translation: "He crossed the road."
+  
+- **Cultural Context:** In many Arabic-speaking countries, crossing roads can be a significant action, especially in busy urban areas. The act of crossing can symbolize taking risks or making important decisions.
+
+##### 2.2. عَبَّرَ (ʿabbara)
+
+- **Meaning:** "He expressed."
+- **Usage:** This verb is used when someone conveys thoughts, feelings, or opinions. It is often used in discussions, speeches, and writing. The act of expressing oneself is highly valued in Arabic culture, where communication plays a crucial role in social interactions.
+- **Example Sentence:** 
+  - **عَبَّرَ عَنْ مَشَاعِرِهِ.**  
+    (Pronounced: ʿabbara ʿan mashāʿirih.)  
+    Translation: "He expressed his feelings."
+  
+- **Practical Application:** In daily conversations, you might use this verb when discussing art, literature, or personal experiences. For instance, "The poet expressed his thoughts beautifully" (عَبَّرَ الشَّاعِرُ عَنْ أَفْكَارِهِ بِشَكْلٍ جَمِيلٍ).
+
+##### 2.3. اِعْتَبَرَ (iʿtabara)
+
+- **Meaning:** "He considered."
+- **Usage:** This verb is used when someone thinks about something in a particular way or regards it as something. It is often used in academic, professional, and personal contexts. The act of considering is essential in decision-making processes.
+- **Example Sentence:** 
+  - **اِعْتَبَرَ لُنْدُنَ مَدِينَةً كَبِيرَةً.**  
+    (Pronounced: iʿtabara Lūndun madīnah kabīrah.)  
+    Translation: "He considered London a large city."
+  
+- **Cultural Significance:** In Arabic culture, consideration often involves respect for others' opinions and perspectives. This verb is frequently used in discussions about social issues, politics, and community matters.
+
+##### 2.4. تُعْتَبَرُ (
+
+##### 2.4. تُعْتَبَرُ (tuʿtabaru)
+
+- **Meaning:** "She is considered" or "it is considered."
+- **Usage:** This is the present tense form of the verb اِعْتَبَرَ (iʿtabara) in the feminine singular. It is used to describe the status or opinion about something in the present. This form is particularly useful when discussing general truths or widely accepted views.
+- **Example Sentence:** 
+  - **تُعْتَبَرُ المَسْأَلَةُ مُهِمَّةً.**  
+    (Pronounced: tuʿtabaru al-mas'alah muhimmah.)  
+    Translation: "The issue is considered important."
+  
+- **Practical Application:** In discussions about policies, social issues, or academic topics, this verb can be used to express consensus or general opinion. For example, "This law is considered beneficial for society" (تُعْتَبَرُ هَذِهِ القَانُونُ مُفِيدَةً لِلْمُجْتَمَعِ).
+
+##### 2.5. يُعْتَبَرُ (yuʿtabaru)
+
+- **Meaning:** "He is considered" or "it is considered."
+- **Usage:** This is the present tense form of the verb اِعْتَبَرَ (iʿtabara) in the masculine singular. It is used similarly to تُعْتَبَرُ but for masculine subjects. This form is often used in formal contexts, such as academic writing or professional discussions.
+- **Example Sentence:** 
+  - **يُعْتَبَرُ هَذَا الكِتَابُ مَصْدَرًا مُهِمًّا.**  
+    (Pronounced: yuʿtabaru hādhā al-kitābu maṣdaran muhimman.)  
+    Translation: "This book is considered an important source."
+  
+- **Cultural Context:** In academic and professional settings, using this verb can help establish authority and credibility. For instance, when presenting research findings, one might say, "These results are considered significant" (تُعْتَبَرُ هَذِهِ النَّتَائِجُ مُهِمَّةً).
+
+##### 2.6. عَبْرَ (ʿabra)
+
+- **Meaning:** "Through."
+- **Usage:** This is a preposition used to indicate the means or method by which something is done. It is often used in contexts where one is talking about passing through a place or using a medium to achieve something.
+- **Example Sentence:** 
+  - **عَبْرَ البَرِيدِ الإِلِكْتُرُونِيِّ.**  
+    (Pronounced: ʿabra al-barīdi al-iliktrūnī.)  
+    Translation: "Via e-mail."
+  
+- **Practical Application:** This preposition is commonly used in both spoken and written Arabic, especially in formal communication. For example, "You can send your application via e-mail" (يمكنك إرسال طلبك عَبْرَ البَرِيدِ الإِلِكْتُرُونِيِّ).
+
+#### 3. Grammatical Forms and Conjugation
+
+Understanding the grammatical forms of these verbs is crucial for using them correctly in sentences. Here’s a brief overview of their conjugation in the present tense:
+
+- **عَبَرَ (ʿabara)**: 
+  - **يَعْبُرُ** (yaʿburu) - "he crosses"
+  - **تَعْبُرُ** (taʿburu) - "she crosses"
+
+- **عَبَّرَ (ʿabbara)**: 
+  - **يُعَبِّرُ** (yuʿabbiru) - "he expresses"
+  - **تُعَبِّرُ** (tuʿabbiru) - "she expresses"
+
+- **اِعْتَبَرَ (iʿtabara)**: 
+  - **يُعْتَبَرُ** (yuʿtabaru) - "he is considered"
+  - **تُعْتَبَرُ** (tuʿtabaru) - "she is considered"
+
+#### 4. Usage in Daily Life
+
+These verbs are commonly used in various contexts in daily life, including:
+
+- **In Conversations:** When discussing opinions, feelings, or actions, these verbs help convey thoughts clearly. For example, you might say, "I consider this movie interesting" (أَعْتَبِرُ هَذَا الفِيلْمَ مُمْتِعًا).
+
+- **In Writing:** Whether in essays, articles, or emails, these verbs are
+
+
+essential for expressing ideas and arguments. For instance, "The results are considered significant" (تُعْتَبَرُ النَّتَائِجُ مُهِمَّةً) is a common phrase in academic writing.
+
+- **In Academic Settings:** These verbs are frequently used in academic discussions, research papers, and presentations. For example, "This theory is considered valid" (تُعْتَبَرُ هَذِهِ النَّظَرِيَّةُ صَادِقَةً). In educational contexts, students often use these verbs to articulate their understanding of concepts and theories.
+
+- **In Professional Environments:** In business meetings or professional discussions, these verbs help articulate positions and opinions. For example, "This strategy is considered effective" (تُعْتَبَرُ هَذِهِ الاستراتيجيةُ فَعَّالةً) can be used to support a proposal.
+
+#### 5. Cultural Context
+
+Understanding how these verbs are used in cultural contexts can enhance your grasp of the language. For instance, expressing opinions is a significant part of Arabic culture, especially in discussions about politics, society, and art. The verb عَبَّرَ (ʿabbara) is often used in this context, as people share their thoughts and feelings openly.
+
+Additionally, the concept of consideration (اِعْتَبَرَ) is vital in Arabic-speaking cultures, where respect for others' opinions and perspectives is highly valued. Using these verbs appropriately can help you navigate social interactions more effectively.
+
+- **Social Interactions:** In many Arabic-speaking communities, discussions often involve expressing opinions and considering different viewpoints. The use of عَبَّرَ (ʿabbara) and اِعْتَبَرَ (iʿtabara) reflects the importance of dialogue and mutual respect.
+
+- **Art and Literature:** In the realm of art and literature, these verbs are frequently employed to discuss themes, emotions, and interpretations. For example, a critic might say, "The artist expressed his vision beautifully" (عَبَّرَ الفَنَّانُ عَنْ رُؤْيَتِهِ بِشَكْلٍ جَمِيلٍ).
+
+#### 6. Practical Exercises
+
+To reinforce your understanding of these verbs, consider the following exercises:
+
+1. **Conjugation Practice:** Write out the present tense conjugations of each verb for all pronouns (e.g., I, you, he, she, we, they). This will help you become familiar with their forms.
+
+2. **Sentence Creation:** Create sentences using each verb in different contexts. For example, use عَبَرَ (ʿabara) in a sentence about crossing a street, and عَبَّرَ (ʿabbara) in a sentence about expressing an opinion.
+
+3. **Role-Playing:** Engage in conversations with a partner where you use these verbs. For instance, discuss a recent event and express your opinions using عَبَّرَ (ʿabbara) and اِعْتَبَرَ (iʿtabara).
+
+4. **Reading Practice:** Find articles or stories in Arabic that use these verbs. Pay attention to how they are used in context and try to identify their meanings based on the surrounding text.
+
+#### 7. Conclusion
+
+In summary, the verbs **تُعْتَبَرُ**, **عَبَّرَ**, **عَبَرَ**, **عَبْرَ**, **اِعْتَبَرَ**, and **يُعْتَبَرُ** are interconnected through their root and meanings. They play a crucial role in everyday communication, allowing speakers to express actions, opinions, and considerations. By understanding their meanings, grammatical forms, and usage in daily life, you can enhance your Arabic language skills and communicate more effectively.
+
+As a beginner, practicing these verbs in various contexts will help solidify your understanding and improve your fluency. Whether you are speaking, writing, or listening, these verbs will frequently appear, making them essential components of your Arabic language journey.
+
+#### 8. Additional Resources
+
+To further your learning, consider exploring the following resources:
+
+- **Arabic Language Textbooks:** Look for textbooks that focus on verb conjugation and usage in context. These can provide structured lessons and exercises.
+
+- **Online Language Platforms:** Websites and apps like Duolingo, Rosetta Stone, or Memrise offer interactive lessons that can help reinforce your understanding of Arabic verbs.
+
+- **Language Exchange:** Engage with native Arabic speakers through language exchange platforms. Practicing with a native speaker can enhance your conversational skills and provide real-life context for using these verbs.
+
+- **Arabic Media:** Watch Arabic films, listen to music, or read news articles. This exposure will help you see how these verbs are used in various contexts and improve your listening and reading comprehension.
+
+By immersing yourself in the language and actively using these verbs, you will gain confidence in your Arabic skills and deepen your understanding of the
 
 ### ---------------------------------------------
 
