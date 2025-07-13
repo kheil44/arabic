@@ -174,7 +174,104 @@ So if your noun is **masculine**, you:
 - “Thalātha” (3) = **feminine** form → **gender disagreement**
 - “‘Ashara” (10) = **masculine** form → **gender agreement**
 
+#### >>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>
+Ah, thanks for the thoughtful follow-up, Slip! Let me break that “split” concept down in a clearer way and give you all-new examples to keep it fresh and comprehensive. 🔍
+
 ---
+
+## 🌓 The “Split” Rule in Arabic Numbers 13–19
+
+Arabic compound numbers from **13 to 19** have two parts:
+
+| Part          | Grammar Rule                      |
+|---------------|-----------------------------------|
+| **Units (3–9)** | ❌ **Gender Disagrees** with the noun |
+| **Ten (10)**   | ✅ **Gender Agrees** with the noun   |
+
+So if the noun is masculine, the number 3–9 part becomes feminine (for disagreement), and the 10 part stays masculine (for agreement). It’s like they do opposite things!
+
+---
+
+## 🧮 Correct vs Incorrect Examples for Numbers 13–19
+
+We'll use **Modern Standard Arabic (MSA)** with **transliteration** and **translation**, plus an explanation for each. The noun will vary across examples so you see the rule in action.
+
+---
+
+### 🔢 13
+
+- ✅ **ثَلاثَةَ عَشَرَ رَجُلًا** (*thalāthata ‘ashara rajulan*) — “13 men”  
+  👉 “Rajul” is **masculine**, so:  
+    - “Thalāthata” = **feminine** form → ✅ gender disagreement  
+    - “‘Ashara” = **masculine** → ✅ gender agreement
+
+- ❌ **ثَلاثُ عَشَرَ رَجُلًا** (*thalāthu ‘ashara rajulan*)  
+  ❗ Used **masculine** form of “three” (**ثَلاثُ**) which wrongly agrees with the masculine noun.
+
+---
+
+### 🔢 14
+
+- ✅ **أَرْبَعَةَ عَشَرَ طَالِبًا** (*arba‘ata ‘ashara ṭāliban*) — “14 students”  
+  👉 “Ṭālib” = masculine → mismatch the 4, match the 10
+
+- ❌ **أَرْبَعُ عَشَرَ طَالِبًا**  
+  ❗ “Arba‘u” = masculine form of 4 → ❌ gender wrongly matches the masculine noun
+
+---
+
+### 🔢 15
+
+- ✅ **خَمْسَةَ عَشَرَ قَلَمًا** (*khamsata ‘ashara qalaman*) — “15 pens”  
+  👉 “Qalam” = masculine → mismatch the 5, match the 10
+
+- ❌ **خَمْسُ عَشَرَ قَلَمًا**  
+  ❗ Feminine form “Khamsu” wrongly matches noun gender
+
+---
+
+### 🔢 16
+
+- ✅ **سِتَّةَ عَشَرَ كِتَابًا** (*sittata ‘ashara kitāban*) — “16 books”  
+  👉 “Kitāb” = masculine → use feminine 6, masculine 10
+
+- ❌ **سِتُّ عَشَرَ كِتَابًا**  
+  ❗ Masculine form “Sittu” matches noun when it should mismatch
+
+---
+
+### 🔢 17
+
+- ✅ **سَبْعَةَ عَشَرَ رَفًّا** (*sab‘ata ‘ashara raffan*) — “17 shelves”  
+  👉 “Raff” = masculine → mismatch with feminine 7, match with masculine 10
+
+- ❌ **سَبْعُ عَشَرَ رَفًّا**  
+  ❗ Masculine form of 7 matches noun = ❌ wrong
+
+---
+
+### 🔢 18
+
+- ✅ **ثَمَانِيَةَ عَشَرَ وَلَدًا** (*thamāniyata ‘ashara waladan*) — “18 boys”  
+  👉 “Walad” = masculine → mismatch with feminine 8, match with masculine 10
+
+- ❌ **ثَمَانِيُ عَشَرَ وَلَدًا**  
+  ❗ Incorrect spelling **and** wrong gender match on the unit part
+
+---
+
+### 🔢 19
+
+- ✅ **تِسْعَةَ عَشَرَ طَالِبًا** (*tis‘ata ‘ashara ṭāliban*) — “19 students”  
+  👉 “Ṭālib” = masculine → mismatch the 9, match the 10
+
+- ❌ **تِسْعُ عَشَرَ طَالِبًا**  
+  ❗ Masculine “Tis‘u” matches noun → ❌ should be feminine
+
+---
+
+Want to try forming a few of your own using feminine nouns next? Or take this structure into Levantine Arabic to see how it loosens up a bit in casual speech? 🎙️ I’m all in if you are.
+#### >>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>>
 
 ### 🧮 Examples for Each Number (13–19)
 
