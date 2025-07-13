@@ -282,6 +282,35 @@ This phrase translates to "put yourself together" in a more imperative form, add
 
 ---
 
+Great question, Slip! The quirky gender disagreement rule is **specific to numbers 3 through 10**—but the story doesn’t end there. Arabic numbers are full of surprises depending on the range. Here's how it shifts:
+
+---
+
+### 🔢 Gender Rules by Number Range
+
+| Range          | Gender Agreement | Notes |
+|----------------|------------------|-------|
+| 1 & 2          | ✅ **Agree** with noun | e.g. *وَلَدٌ واحِدٌ* (one boy), *بِنْتانِ* (two girls) |
+| 3–10           | ❌ **Disagree** with noun | Masculine noun → feminine number, and vice versa |
+| 11–12          | ✅ **Agree** with noun | Similar to 1 and 2 |
+| 13–19          | 🌓 **Split**: First part disagrees, second part agrees | Complex structure—e.g. *ثلاثةَ عشرَ* |
+| 20 and above   | ✅ **Agree** with noun | Gender matches again |
+
+---
+
+### ✨ Example Breakdown
+
+Let’s peek at 13:
+
+- **ثلاثَةَ عشرَ وَلَدًا** (*thalāthata ‘ashara waladan*) — “thirteen boys”  
+  🔸 "Thalāthata" (3) = feminine form (disagrees with masculine "walad")  
+  🔸 "‘Ashara" (10) = masculine (agrees with masculine "walad")
+
+So the first part of the compound number (3) follows the **disagreement rule**, while the second part (10) **agrees**. A little dance of grammar!
+
+---
+
+Would you like to explore numbers 11–19 in more detail next—or maybe try creating some example sentences yourself? I’m happy to build them out step by step, and even tie them into spoken practice. 😄
 
 ---
 
@@ -3855,6 +3884,542 @@ This concludes the detailed essay on the words "أهَمَّ," "مُهِمّ," "
 ### ---------------------------------------------
 
 ### ---------------------------------------------
+
+I apologize for the oversight and appreciate your patience. Here is a comprehensive guide to common Arabic prepositions, with full diacritics, in-depth explanations, grammatical roles, and multiple examples for each.
+
+### Comprehensive Guide to Arabic Prepositions
+
+Arabic prepositions are essential in constructing meaningful sentences. They express relationships of time, place, direction, and manner. Below, I will explain each preposition in detail, including its grammatical role and usage, along with examples, all presented with full diacritics.
+
+---
+
+#### 1. **إلى (ilā)** - to
+
+**Meaning:** Indicates direction or destination.
+
+**Grammatical Role:** 
+- **إلى** is a preposition that requires the following noun to be in the accusative case (مَفْعُولٌ بِهِ).
+- It is used to express movement towards a place or person.
+
+**Examples:**
+- **أَذْهَبُ إِلَى الْمَدْرَسَةِ. (ʾaḏhabu ilā al-madrasa.)** - I go to school.
+- **أُرْسِلُ الرِّسَالَةَ إِلَى صَدِيقِي. (ʾursilu al-risālah ilā ṣadīqī.)** - I send the message to my friend.
+- **سَأَذْهَبُ إِلَى السُّوقِ غَدًا. (saʾaḏhabu ilā al-sūqi ghadًا.)** - I will go to the market tomorrow.
+
+---
+
+#### 2. **مِن (min)** - from
+
+**Meaning:** Indicates the origin or source.
+
+**Grammatical Role:** 
+- **مِن** is a preposition that requires the following noun to be in the genitive case (مَجْرُورٌ).
+- It is used to denote the starting point of a movement or the source of something.
+
+**Examples:**
+- **أَنَا مِن مِصْرَ. (anā min miṣr.)** - I am from Egypt.
+- **أَخَذْتُ الْكِتَابَ مِنَ الْمَكْتَبَةِ. (akhadhtu al-kitāba min al-maktabah.)** - I took the book from the library.
+- **الْهَدِيَّةُ مِن صَدِيقَتِي. (al-hadiyyatu min ṣadīqatī.)** - The gift is from my friend.
+
+---
+
+#### 3. **عَنْ (ʿan)** - about / concerning
+
+**Meaning:** Indicates a topic or subject.
+
+**Grammatical Role:** 
+- **عَنْ** is a preposition that requires the following noun to be in the genitive case (مَجْرُورٌ).
+- It is used to express the subject of discussion or inquiry.
+
+**Examples:**
+- **تَحَدَّثْتُ عَنْ الْكِتَابِ. (taḥaddathtu ʿan al-kitāb.)** - I talked about the book.
+- **سَأَكْتُبُ مَقَالًا عَنْ الثَّقَافَةِ. (saʾaktubu maqālan ʿan al-thaqāfah.)** - I will write an article about culture.
+- **أُرِيدُ أَنْ أَسْأَلَ عَنْ الْوَظِيفَةِ. (ʾurīdu an asʾala ʿan al-waẓīfah.)** - I want to ask about the job.
+
+---
+
+#### 4. **عَلَى (ʿalā)** - on / upon
+
+**Meaning:** Indicates position or location.
+
+**Grammatical Role:** 
+- **عَلَى** is a preposition that requires the following noun to be in the genitive case (مَجْرُورٌ).
+- It is used to express the position of something in relation to another object.
+
+**Examples:**
+- **الْكِتَابُ عَلَى الطَّاوِلَةِ. (al-kitābu ʿalā al-ṭāwilah.)** - The book is on the table.
+- **وَضَعْتُ الْقَلَمَ عَلَى الْمَكْتَبِ. (waḍaʿtu al-qalam ʿalā al-maktab.)** - I placed the pen on the desk.
+- **الصُّورَةُ عَلَى الْحَائِطِ. (al-ṣūrah ʿalā al-ḥāʾiṭ.)** - The picture is on the wall.
+
+---
+
+#### 
+
+Certainly! Here’s the continuation of the comprehensive guide to Arabic prepositions, with full diacritics, in-depth explanations, grammatical roles, and multiple examples for each.
+
+---
+
+#### 5. **فِي (fī)** - in / at
+
+**Meaning:** Indicates location or time.
+
+**Grammatical Role:** 
+- **فِي** is a preposition that requires the following noun to be in the genitive case (مَجْرُورٌ).
+- It is used to denote a specific location or time.
+
+**Examples:**
+- **أَعِيشُ فِي الْمَدِينَةِ. (ʾaʿīshu fī al-madīnah.)** - I live in the city.
+- **الِاجْتِمَاعُ فِي السَّاعَةِ الثَّالِثَةِ. (al-ijtimāʿ fī al-sāʿah al-thālithah.)** - The meeting is at three o'clock.
+- **الْكُتُبُ فِي الْمَكْتَبَةِ. (al-kutub fī al-maktabah.)** - The books are in the library.
+
+---
+
+#### 6. **مَعَ (maʿa)** - with
+
+**Meaning:** Indicates companionship or association.
+
+**Grammatical Role:** 
+- **مَعَ** is a preposition that requires the following noun to be in the genitive case (مَجْرُورٌ).
+- It is used to express being together with someone or something.
+
+**Examples:**
+- **أُحِبُّ الْقَهْوَةَ مَعَ الْحَلِيبِ. (ʾuḥibb al-qahwah maʿa al-ḥalīb.)** - I like coffee with milk.
+- **ذَهَبْتُ مَعَ أَصْدِقَائِي. (dhahabtu maʿa aṣdiqāʾī.)** - I went with my friends.
+- **أَدْرُسُ مَعَ زُمَلَائِي. (adrusu maʿa zumalāʾī.)** - I study with my colleagues.
+
+---
+
+#### 7. **بِ (bi)** - by / with
+
+**Meaning:** Indicates the means or instrument.
+
+**Grammatical Role:** 
+- **بِ** is a preposition that requires the following noun to be in the genitive case (مَجْرُورٌ).
+- It is used to express the means by which an action is performed.
+
+**Examples:**
+- **أَكْتُبُ بِالْقَلَمِ. (ʾaktubu bil-qalam.)** - I write with a pen.
+- **سَافَرْتُ بِالطَّائِرَةِ. (sāfartu bil-ṭā'irah.)** - I traveled by airplane.
+- **أَتَحَدَّثُ بِالْعَرَبِيَّةِ. (ataḥaddathu bil-ʿarabiyyah.)** - I speak in Arabic.
+
+---
+
+#### 8. **كـ (ka)** - like / as
+
+**Meaning:** Indicates similarity or comparison.
+
+**Grammatical Role:** 
+- **كـ** is a preposition that requires the following noun to be in the accusative case (مَفْعُولٌ بِهِ).
+- It is used to express similarity or to compare one thing to another.
+
+**Examples:**
+- **أَنا كَالأَسَدِ. (anā ka-l-ʾasad.)** - I am like a lion.
+- **تَشْبَهُ السَّمَاءُ كَالأُزْرُقِ. (tashbahu al-samāʾu ka-l-ʾuzruq.)** - The sky looks like blue.
+- **يَجِبُ أَنْ تَعْمَلَ كَالمُحَامِي. (yajibu an taʿmala ka-l-muḥāmī.)** - You should work like a lawyer.
+
+---
+
+#### 9. **لِ (li)** - for / to
+
+**Meaning:** Indicates purpose or benefit.
+
+**Grammatical Role:** 
+- **لِ** is a preposition that requires the following noun to be in the genitive case (مَجْرُورٌ).
+- It is used to express the purpose of an action or to indicate to whom something belongs.
+
+**Examples:**
+- **هَذَا الْكِتَابُ لِي. (hādhā al-kitābu lī.)** - This book is for me.
+- **أ
+
+Certainly! Here’s the continuation of the comprehensive guide to Arabic prepositions, with full diacritics, in-depth explanations, grammatical roles, and multiple examples for each.
+
+---
+
+#### 9. **لِ (li)** - for / to
+
+**Meaning:** Indicates purpose or benefit.
+
+**Grammatical Role:** 
+- **لِ** is a preposition that requires the following noun to be in the genitive case (مَجْرُورٌ).
+- It is used to express the purpose of an action or to indicate to whom something belongs.
+
+**Examples:**
+- **هَذَا الْكِتَابُ لِي. (hādhā al-kitābu lī.)** - This book is for me.
+- **أُعِدُّ الْعَشَاءَ لِلضُّيُوفِ. (ʾuʿiddu al-ʿashāʾ li-l-ḍuyūf.)** - I prepare dinner for the guests.
+- **أَشْتَغِلُ لِكَيْ أَحَصُلَ عَلَى شَغْلٍ. (ʾashtaghilu li-kay aḥṣula ʿalā shaġl.)** - I work in order to get a job.
+
+---
+
+#### 10. **حَتَّى (ḥattā)** - until / up to
+
+**Meaning:** Indicates a limit in time or space.
+
+**Grammatical Role:** 
+- **حَتَّى** is a preposition that can be followed by a noun in the accusative case (مَفْعُولٌ بِهِ) or a verb in the subjunctive mood.
+- It is used to express a limit or endpoint.
+
+**Examples:**
+- **سَأَبْقَى هُنَا حَتَّى تَعُودَ. (saʾabqā hunā ḥattā taʿūd.)** - I will stay here until you return.
+- **نَحْنُ نَسْتَنِي حَتَّى تَحْضُرَ. (naḥnu nastanī ḥattā taḥḍura.)** - We will wait until you arrive.
+- **أَكَلْتُ حَتَّى شَبِعْتُ. (akaltu ḥattā shabiʿtu.)** - I ate until I was full.
+
+---
+
+#### 11. **بَيْنَ (bayna)** - between
+
+**Meaning:** Indicates a position in the middle of two or more entities.
+
+**Grammatical Role:** 
+- **بَيْنَ** is a preposition that requires the following noun to be in the genitive case (مَجْرُورٌ).
+- It is used to express a relationship of separation or distinction.
+
+**Examples:**
+- **الْمَكْتَبَةُ بَيْنَ الْمَدْرَسَةِ وَالْمَنْزِلِ. (al-maktabah bayna al-madrasa wa al-manzil.)** - The library is between the school and the house.
+- **أَجْلِسُ بَيْنَ أَصْدِقَائِي. (ʾajlisu bayna aṣdiqāʾī.)** - I sit between my friends.
+- **الطَّائِرَةُ بَيْنَ السَّمَاءِ وَالْأَرْضِ. (al-ṭā'irah bayna al-samāʾ wa al-arḍ.)** - The airplane is between the sky and the ground.
+
+---
+
+#### 12. **خَلْفَ (khalfa)** - behind
+
+**Meaning:** Indicates a position at the back of something.
+
+**Grammatical Role:** 
+- **خَلْفَ** is a preposition that requires the following noun to be in the genitive case (مَجْرُورٌ).
+- It is used to express a position that is not visible or is obscured.
+
+**Examples:**
+- **الْمَكْتَبَةُ خَلْفَ الْمَدْرَسَةِ. (al-maktabah khalfa al-madrasa.)** - The library is behind the school.
+- **أَخْفَيْتُ الْهَدِيَّةَ خَلْفَ الْبَابِ. (akhfaytu al-hadiyyah khalfa al-bāb.)** - I hid the gift behind the door.
+- **الْكَلْبُ خَلْفَ الْمَنْزِلِ. (al-kalbu khalfa al-manzil
+  Certainly! Here’s the continuation of the comprehensive guide to Arabic prepositions, with full diacritics, in-depth explanations, grammatical roles, and multiple examples for each.
+
+---
+
+#### 12. **خَلْفَ (khalfa)** - behind
+
+**Meaning:** Indicates a position at the back of something.
+
+**Grammatical Role:** 
+- **خَلْفَ** is a preposition that requires the following noun to be in the genitive case (مَجْرُورٌ).
+- It is used to express a position that is not visible or is obscured.
+
+**Examples:**
+- **الْمَكْتَبَةُ خَلْفَ الْمَدْرَسَةِ. (al-maktabah khalfa al-madrasa.)** - The library is behind the school.
+- **أَخْفَيْتُ الْهَدِيَّةَ خَلْفَ الْبَابِ. (akhfaytu al-hadiyyah khalfa al-bāb.)** - I hid the gift behind the door.
+- **الْكَلْبُ خَلْفَ الْمَنْزِلِ. (al-kalbu khalfa al-manzil.)** - The dog is behind the house.
+
+---
+
+#### 13. **أَمَامَ (amām)** - in front of
+
+**Meaning:** Indicates a position ahead of something.
+
+**Grammatical Role:** 
+- **أَمَامَ** is a preposition that requires the following noun to be in the genitive case (مَجْرُورٌ).
+- It is used to express a position that is forward or ahead.
+
+**Examples:**
+- **الْمَكْتَبَةُ أَمَامَ الْمَدْرَسَةِ. (al-maktabah amām al-madrasa.)** - The library is in front of the school.
+- **أَقِفُ أَمَامَ الْبَابِ. (aqifu amām al-bāb.)** - I stand in front of the door.
+- **الْسَّيَّارَةُ أَمَامَ الْمَنْزِلِ. (al-sayyārah amām al-manzil.)** - The car is in front of the house.
+
+---
+
+#### 14. **فَوْقَ (fawqa)** - above / over
+
+**Meaning:** Indicates a position higher than something else.
+
+**Grammatical Role:** 
+- **فَوْقَ** is a preposition that requires the following noun to be in the genitive case (مَجْرُورٌ).
+- It is used to express a position that is elevated or superior.
+
+**Examples:**
+- **الطَّائِرَةُ فَوْقَ السَّمَاءِ. (al-ṭā'irah fawqa al-samāʾ.)** - The airplane is above the sky.
+- **الْكِتَابُ فَوْقَ الطَّاوِلَةِ. (al-kitābu fawqa al-ṭāwilah.)** - The book is on top of the table.
+- **الْجَبَلُ فَوْقَ الْوَادِي. (al-jabal fawqa al-wādī.)** - The mountain is above the valley.
+
+---
+
+#### 15. **تَحْتَ (taḥta)** - under / below
+
+**Meaning:** Indicates a position lower than something else.
+
+**Grammatical Role:** 
+- **تَحْتَ** is a preposition that requires the following noun to be in the genitive case (مَجْرُورٌ).
+- It is used to express a position that is beneath or below.
+
+**Examples:**
+- **الْقَلَمُ تَحْتَ الْمَكْتَبِ. (al-qalamu taḥta al-maktab.)** - The pen is under the desk.
+- **الْكِتَابُ تَحْتَ السَّرِيرِ. (al-kitābu taḥta al-sarīr.)** - The book is under the bed.
+- **الْحَيوَانُ تَحْتَ الشَّجَرَةِ. (al-ḥayawānu taḥta al-shajarah.)** - The animal is under the tree.
+
+---
+
+#### 16. **قَبْلَ (qabla)** - before
+
+**Meaning:** Indicates a time or position that precedes something.
+
+**Grammatical Role:** 
+- **قَبْلَ** is a preposition that requires the following noun to be in the accusative case (م
+Certainly! Here’s the continuation of the comprehensive guide to Arabic prepositions, with full diacritics, in-depth explanations, grammatical roles, and multiple examples for each.
+
+---
+
+#### 16. **قَبْلَ (qabla)** - before
+
+**Meaning:** Indicates a time or position that precedes something.
+
+**Grammatical Role:** 
+- **قَبْلَ** is a preposition that requires the following noun to be in the accusative case (مَفْعُولٌ بِهِ).
+- It is used to express a point in time that comes earlier than another point.
+
+**Examples:**
+- **أَكَلْتُ قَبْلَ الدُّخُولِ. (akaltu qabla al-dukhūl.)** - I ate before entering.
+- **سَأَذْهَبُ قَبْلَ السَّاعَةِ الثَّامِنَةِ. (saʾaḏhabu qabla al-sāʿah al-thāminah.)** - I will go before eight o'clock.
+- **قَرَأْتُ الْكِتَابَ قَبْلَ النَّوْمِ. (qaraʾtu al-kitāb qabla al-nawm.)** - I read the book before sleeping.
+
+---
+
+#### 17. **بَعْدَ (baʿda)** - after
+
+**Meaning:** Indicates a time or position that follows something.
+
+**Grammatical Role:** 
+- **بَعْدَ** is a preposition that requires the following noun to be in the accusative case (مَفْعُولٌ بِهِ).
+- It is used to express a point in time that comes later than another point.
+
+**Examples:**
+- **سَأَذْهَبُ بَعْدَ الْعَشَاءِ. (saʾaḏhabu baʿda al-ʿashāʾ.)** - I will go after dinner.
+- **أَكَلْتُ بَعْدَ الدُّخُولِ. (akaltu baʿda al-dukhūl.)** - I ate after entering.
+- **سَأَكْتُبُ مَقَالًا بَعْدَ الْمَحَاضَرَةِ. (saʾaktubu maqālan baʿda al-maḥāḍarah.)** - I will write an article after the lecture.
+
+---
+
+#### 18. **دَاخِلَ (dākhil)** - inside
+
+**Meaning:** Indicates a position within something.
+
+**Grammatical Role:** 
+- **دَاخِلَ** is a preposition that requires the following noun to be in the genitive case (مَجْرُورٌ).
+- It is used to express being within the confines of an object or area.
+
+**Examples:**
+- **الْكِتَابُ دَاخِلَ الْمَكْتَبَةِ. (al-kitābu dākhil al-maktabah.)** - The book is inside the library.
+- **الْحَيَوَانُ دَاخِلَ الْقَفَصِ. (al-ḥayawānu dākhil al-qafaṣ.)** - The animal is inside the cage.
+- **أَجْلِسُ دَاخِلَ الْمَنْزِلِ. (ajlisu dākhil al-manzil.)** - I sit inside the house.
+
+---
+
+#### 19. **خَارِجَ (khārij)** - outside
+
+**Meaning:** Indicates a position beyond the confines of something.
+
+**Grammatical Role:** 
+- **خَارِجَ** is a preposition that requires the following noun to be in the genitive case (مَجْرُورٌ).
+- It is used to express being beyond the limits of an object or area.
+
+**Examples:**
+- **الْكَلْبُ خَارِجَ الْمَنْزِلِ. (al-kalbu khārij al-manzil.)** - The dog is outside the house.
+- **أَجْلِسُ خَارِجَ الْمَكْتَبَةِ. (ajlisu khārij al-maktabah.)** - I sit outside the library.
+- **الْأَشْجَارُ خَارِجَ الْحَدِيقَةِ. (al-ʾashjāru khārij al-ḥadīqah.)** - The trees are outside the garden.
+
+---
+
+#### 20. **عَبْر
+Certainly! Here’s the continuation of the comprehensive guide to Arabic prepositions, with full diacritics, in-depth explanations, grammatical roles, and multiple examples for each.
+
+---
+
+#### 20. **عَبْرَ (ʿabra)** - across
+
+**Meaning:** Indicates movement from one side to another.
+
+**Grammatical Role:** 
+- **عَبْرَ** is a preposition that requires the following noun to be in the accusative case (مَفْعُولٌ بِهِ).
+- It is used to express crossing over a space or barrier.
+
+**Examples:**
+- **عَبَرْتُ عَبْرَ الْجَسْرِ. (ʿabartu ʿabra al-jisr.)** - I crossed over the bridge.
+- **الطَّائِرَةُ تَطِيرُ عَبْرَ السَّمَاءِ. (al-ṭā'irah taṭīru ʿabra al-samāʾ.)** - The airplane flies across the sky.
+- **أَسْكُنُ عَبْرَ الشَّارِعِ. (askunu ʿabra al-shāriʿ.)** - I live across the street.
+
+---
+
+#### 21. **حَوْلَ (ḥawla)** - around
+
+**Meaning:** Indicates a position encircling or surrounding something.
+
+**Grammatical Role:** 
+- **حَوْلَ** is a preposition that requires the following noun to be in the accusative case (مَفْعُولٌ بِهِ).
+- It is used to express being in the vicinity or surrounding area of something.
+
+**Examples:**
+- **أَجْلِسُ حَوْلَ الطَّاوِلَةِ. (ajlisu ḥawla al-ṭāwilah.)** - I sit around the table.
+- **تَجْمَعُ النَّاسُ حَوْلَ الْمَسْجِدِ. (tajmaʿu al-nās ḥawla al-masjid.)** - People gather around the mosque.
+- **الْأَشْجَارُ حَوْلَ الْبَيْتِ. (al-ʾashjāru ḥawla al-bayt.)** - The trees are around the house.
+
+---
+
+#### 22. **بِجَانِبِ (bijānib)** - next to / beside
+
+**Meaning:** Indicates a position adjacent to something.
+
+**Grammatical Role:** 
+- **بِجَانِبِ** is a preposition that requires the following noun to be in the genitive case (مَجْرُورٌ).
+- It is used to express being alongside or in proximity to another object.
+
+**Examples:**
+- **الْمَكْتَبَةُ بِجَانِبِ الْمَدْرَسَةِ. (al-maktabah bijānib al-madrasa.)** - The library is next to the school.
+- **أَجْلِسُ بِجَانِبِ صَدِيقِي. (ajlisu bijānib ṣadīqī.)** - I sit beside my friend.
+- **الطَّائِرَةُ بِجَانِبِ الْمَطَارِ. (al-ṭā'irah bijānib al-maṭār.)** - The airplane is next to the airport.
+
+---
+
+#### 23. **بِدُونَ (bidūn)** - without
+
+**Meaning:** Indicates the absence of something.
+
+**Grammatical Role:** 
+- **بِدُونَ** is a preposition that requires the following noun to be in the genitive case (مَجْرُورٌ).
+- It is used to express the lack or non-existence of something.
+
+**Examples:**
+- **أَحْيَانًا أَشْعُرُ بِدُونَ أَصْدِقَاءِ. (aḥyānًا ašʿuru bidūn aṣdiqāʾ.)** - Sometimes I feel without friends.
+- **أَكَلْتُ بِدُونِ مِلْحٍ. (akaltu bidūn milḥin.)** - I ate without salt.
+- **يَسْتَحِيلُ العَيْشُ بِدُونِ حُبٍّ. (yastaḥīlu al-ʿayshu bidūn ḥubbin.)** - Living without love is impossible.
+
+---
+
+#### 24. **إِلَى جَانِبِ (ilā jānib)** - alongside
+Certainly! Here’s the continuation of the comprehensive guide to Arabic prepositions, with full diacritics, in-depth explanations, grammatical roles, and multiple examples for each.
+
+---
+
+#### 24. **إِلَى جَانِبِ (ilā jānib)** - alongside
+
+**Meaning:** Indicates a position next to or in addition to something.
+
+**Grammatical Role:** 
+- **إِلَى جَانِبِ** is a prepositional phrase that requires the following noun to be in the genitive case (مَجْرُورٌ).
+- It is used to express being next to or in proximity to another object, often implying a sense of partnership or companionship.
+
+**Examples:**
+- **أَجْلِسُ إِلَى جَانِبِ صَدِيقِي. (ajlisu ilā jānib ṣadīqī.)** - I sit alongside my friend.
+- **الْمَكْتَبَةُ إِلَى جَانِبِ الْمَدْرَسَةِ. (al-maktabah ilā jānib al-madrasa.)** - The library is alongside the school.
+- **أَحْتَاجُ إِلَى جَانِبِ الْمُعَلِّمِ. (aḥtāju ilā jānib al-muʿallim.)** - I need to be alongside the teacher.
+
+---
+
+#### 25. **بِسَبَبِ (bisabab)** - because of
+
+**Meaning:** Indicates a reason or cause.
+
+**Grammatical Role:** 
+- **بِسَبَبِ** is a preposition that requires the following noun to be in the genitive case (مَجْرُورٌ).
+- It is used to express the reason for an action or situation.
+
+**Examples:**
+- **تَأَخَّرْتُ بِسَبَبِ الزِّحَامِ. (taʾakhartu bisabab al-zihām.)** - I was late because of the traffic.
+- **أَشْعُرُ بِالْحُزْنِ بِسَبَبِ فَقْدِ صَدِيقِي. (aʾshʿuru bil-ḥuzn bisabab faqdi ṣadīqī.)** - I feel sad because of the loss of my friend.
+- **تَغَيَّرَ الْمَوْقِفُ بِسَبَبِ الْمَطَرِ. (taghayyara al-mawqifu bisabab al-maṭar.)** - The situation changed because of the rain.
+
+---
+
+#### 26. **مِنْ أَجْلِ (min ajl)** - for the sake of
+
+**Meaning:** Indicates purpose or intention.
+
+**Grammatical Role:** 
+- **مِنْ أَجْلِ** is a prepositional phrase that requires the following noun to be in the genitive case (مَجْرُورٌ).
+- It is used to express the purpose of an action or the reason behind it.
+
+**Examples:**
+- **أَعْمَلُ مِنْ أَجْلِ مُسَاعَدَةِ الْآخَرِينَ. (aʿmalu min ajl musāʿadat al-ākharīn.)** - I work for the sake of helping others.
+- **أَشْتَغِلُ مِنْ أَجْلِ تَحْسِينِ مَعِيشَتِي. (ashtaghilu min ajl taḥsīn maʿīshatī.)** - I work for the sake of improving my living conditions.
+- **أَكْتُبُ مِنْ أَجْلِ تَعْلِيمِ النَّاسِ. (aktubu min ajl taʿlīm al-nās.)** - I write for the sake of educating people.
+
+---
+
+#### 27. **تَجَاهَ (tijāh)** - towards
+
+**Meaning:** Indicates direction or orientation.
+
+**Grammatical Role:** 
+- **تَجَاهَ** is a preposition that requires the following noun to be in the accusative case (مَفْعُولٌ بِهِ).
+- It is used to express movement or orientation in the direction of something.
+
+**Examples:**
+- **أَسِيرُ تَجَاهَ الْمَدْرَسَةِ. (asīru tijāh al-madrasa.)** - I walk towards the school.
+- **أَشَارَ إِلَى الْبَابِ تَجَاهَ الْمَكَانِ.
+ Certainly! Here’s the continuation of the comprehensive guide to Arabic prepositions, with full diacritics, in-depth explanations, grammatical roles, and multiple examples for each.
+
+---
+
+#### 27. **تَجَاهَ (tijāh)** - towards
+
+**Meaning:** Indicates direction or orientation.
+
+**Grammatical Role:** 
+- **تَجَاهَ** is a preposition that requires the following noun to be in the accusative case (مَفْعُولٌ بِهِ).
+- It is used to express movement or orientation in the direction of something.
+
+**Examples:**
+- **أَسِيرُ تَجَاهَ الْمَدْرَسَةِ. (asīru tijāh al-madrasa.)** - I walk towards the school.
+- **أَشَارَ إِلَى الْبَابِ تَجَاهَ الْمَكَانِ. (ašāra ilā al-bāb tijāh al-makān.)** - He pointed to the door towards the place.
+- **نَظَرْتُ تَجَاهَ الشَّمْسِ. (naẓartu tijāh al-shams.)** - I looked towards the sun.
+
+---
+
+#### 28. **عِندَ (ʿinda)** - at / near
+
+**Meaning:** Indicates a specific location or proximity.
+
+**Grammatical Role:** 
+- **عِندَ** is a preposition that requires the following noun to be in the genitive case (مَجْرُورٌ).
+- It is used to express being at a specific place or near someone.
+
+**Examples:**
+- **أَنَا عِندَ الْمَكْتَبَةِ. (anā ʿinda al-maktabah.)** - I am at the library.
+- **تَجِدُهُ عِندَ الْبَابِ. (tajiduhu ʿinda al-bāb.)** - You will find him at the door.
+- **أَسْكُنُ عِندَ الْمَدِينَةِ. (askunu ʿinda al-madīnah.)** - I live near the city.
+
+---
+
+#### 29. **مِثْلَ (mithla)** - like / similar to
+
+**Meaning:** Indicates similarity or comparison.
+
+**Grammatical Role:** 
+- **مِثْلَ** is a preposition that requires the following noun to be in the accusative case (مَفْعُولٌ بِهِ).
+- It is used to express that one thing is similar to another.
+
+**Examples:**
+- **أَنَا مِثْلَ أَخِي. (anā mithla akhī.)** - I am like my brother.
+- **تَشْبَهُ السَّمَاءُ مِثْلَ الْبَحْرِ. (tashbahu al-samāʾu mithla al-baḥr.)** - The sky looks like the sea.
+- **يَجِبُ أَنْ تَعْمَلَ مِثْلَ الْمُحَامِي. (yajibu an taʿmala mithla al-muḥāmī.)** - You should work like a lawyer.
+
+---
+
+#### 30. **بِمُوجِبِ (bimūjib)** - by virtue of
+
+**Meaning:** Indicates a condition or basis for something.
+
+**Grammatical Role:** 
+- **بِمُوجِبِ** is a preposition that requires the following noun to be in the genitive case (مَجْرُورٌ).
+- It is used to express that something is done based on a specific rule or condition.
+
+**Examples:**
+- **بِمُوجِبِ الْقَانُونِ، يُحَظَّرُ السُّكْرُ. (bimūjib al-qānūn, yuḥaẓẓaru al-sukr.)** - By virtue of the law, drinking is prohibited.
+- **يَجِبُ عَلَيْكَ بِمُوجِبِ الْعَقْدِ. (yajibu ʿalayka bimūjib al-ʿaqd.)** - You must do it by virtue of the contract.
+- **بِمُوجِبِ التَّعَامُلِ، يُفْتَحُ الْمَكَانُ. (bimūjib al-taʿāmul, yuftaḥu al-makān.)** - By virtue of the agreement, the place is opened.
+
+---
+
+### Conclusion
+
+
+
 
 ### ---------------------------------------------
 
