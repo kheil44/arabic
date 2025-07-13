@@ -754,6 +754,42 @@ You've just built yourself a reference guide that many learners dream of — mad
 
 ### ---------------------------------------------
 
+Absolutely, Slip — here’s the expanded **Semantic Table of All 10 Arabic Verb Forms** using not just one, but **two root families side by side**:
+
+- 🌱 Root: **ق–ب–ل** (accept / receive / face)  
+- 🌱 Root: **د–ر–س** (study / teach / learn)
+
+This will show you how each verb form changes the **meaning** depending on the **intent of the form**, and how that compares across two real roots — bold Arabic, crystal structure, and paired meanings side by side.
+
+---
+
+## 🧠 All 10 Forms — Compared with Roots **ق–ب–ل** and **د–ر–س**
+
+| 🔢 **Form** | ✨ **Pattern Template**      | 💡 **Form Intent**                 | 📘 **ق–ب–ل Verb**                | 💬 **Meaning**                   | 📘 **د–ر–س Verb**                | 💬 **Meaning**                   |
+|------------|-----------------------------|------------------------------------|----------------------------------|----------------------------------|----------------------------------|----------------------------------|
+| **I**      | **فَــعَــلَ**               | Basic action                       | **قَــبِــلَ**                   | He accepted                     | **دَــرَــسَ**                   | He studied                      |
+| **II**     | **فَــعَّــلَ**              | Causative / intensified            | **قَــبَّــلَ**                  | He kissed                       | **دَــرَّــسَ**                  | He taught                       |
+| **III**    | **فَــاعَــلَ**              | Mutual / reciprocal action         | **قَــابَــلَ**                  | He met / confronted             | **دَارَسَ**                      | He studied with someone         |
+| **IV**     | **أَفْــعَــلَ**              | Directed causation / intent        | **أَقْــبَــلَ**                 | He approached / turned toward   | **أَدْرَسَ** *(rare)*            | He caused studying              |
+| **V**      | **تَــفَــعَّــلَ**          | Reflexive (internalized II)        | **تَــقَــبَّــلَ**               | He accepted deeply / embraced   | **تَــدَرَّسَ** *(rare)*         | He learned intensely            |
+| **VI**     | **تَــفَــاعَــلَ**          | Mutual reflexive (from III)        | **تَــقَــابَــلَ**               | They met each other             | **تَــدَارَسَ**                  | They studied together           |
+| **VII**    | **اِ نْــفَــعَــلَ**         | Passive (action done to subject)   | **اِ نْــقَــبَــلَ**             | It was accepted                 | **اِ نْــدَــرَــسَ**            | It was studied                  |
+| **VIII**   | **اِفْــتَــعَــلَ**          | Internal effort / automation       | **اِقْــتَــبَــلَ** *(rare)*     | He received intentionally       | **اِكْــتَــتَــبَ**             | He enrolled / signed up         |
+| **IX**     | **اِفْــعَلَّ**               | Physical states / colors           | — *(not applicable)*            | —                               | — *(not applicable)*            | —                               |
+| **X**      | **اِسْــتَــفْــعَــلَ**      | Seeking / requesting               | **اِسْــتَــقْــبَــلَ**           | He welcomed / received someone  | **اِسْــتَــدْــرَــسَ** *(rare)*| He tried to study / sought learning |
+
+---
+
+## 🧭 Takeaway
+
+- Both **ق–ب–ل** and **د–ر–س** show how one semantic root can **explode into a dozen meanings**, just by changing its pattern.
+- You’re not memorizing individual words — you’re **decoding the pattern + intent**.
+- Form tells you whether someone is doing, causing, exchanging, receiving, or seeking the root’s idea.
+
+---
+
+Want me to build flashcards or visual drills for each form where you match the intent, pattern, and meaning? We’ll turn this map into fluent conversation power 🚀📘🗣️.
+
 ### ---------------------------------------------
 
 ### ---------------------------------------------
