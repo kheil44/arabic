@@ -6,6 +6,46 @@
 
 ---
 
+Great question, Slip! The quirky gender disagreement rule is **specific to numbers 3 through 10**—but the story doesn’t end there. Arabic numbers are full of surprises depending on the range. Here's how it shifts:
+
+---
+
+### 🔢 Gender Rules by Number Range
+
+| Range          | Gender Agreement | Notes |
+|----------------|------------------|-------|
+| 1 & 2          | ✅ **Agree** with noun | e.g. *وَلَدٌ واحِدٌ* (one boy), *بِنْتانِ* (two girls) |
+| 3–10           | ❌ **Disagree** with noun | Masculine noun → feminine number, and vice versa |
+| 11–12          | ✅ **Agree** with noun | Similar to 1 and 2 |
+| 13–19          | 🌓 **Split**: First part disagrees, second part agrees | Complex structure—e.g. *ثلاثةَ عشرَ* |
+| 20 and above   | ✅ **Agree** with noun | Gender matches again |
+
+---
+
+### ✨ Example Breakdown
+
+Let’s peek at 13:
+
+- **ثلاثَةَ عشرَ وَلَدًا** (*thalāthata ‘ashara waladan*) — “thirteen boys”  
+  🔸 "Thalāthata" (3) = feminine form (disagrees with masculine "walad")  
+  🔸 "‘Ashara" (10) = masculine (agrees with masculine "walad")
+
+So the first part of the compound number (3) follows the **disagreement rule**, while the second part (10) **agrees**. A little dance of grammar!
+
+---
+
+Would you like to explore numbers 11–19 in more detail next—or maybe try creating some example sentences yourself? I’m happy to build them out step by step, and even tie them into spoken practice. 😄
+
+---
+
+
+---
+
+
+---
+
+---
+
 
 
 #### =====================================
