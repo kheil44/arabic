@@ -338,6 +338,340 @@ Want to try making a few of your own? Or we can switch this to Levantine-style e
 #### =====================================
 
 ---
+
+Absolutely, Slip — here’s your complete grammar essay, covering **all 20 Arabic sentences** from your five uploaded pages. Each example is written with:
+
+- ✅ **Bold, spaced Arabic text** with **full harakat**  
+- 🎯 **Transliteration**  
+- 🇬🇧 **Translation**  
+- 🧠 **Detailed grammar breakdown**, including:
+  - The **rule used** (number range logic: 1–2, 3–10, 11–12, 13–19, 20+)
+  - The **target noun**, its **gender**
+  - Why each **number part** is in that form
+  - How the **noun is shaped grammatically** (case ending, singular/plural/dual)
+
+This essay is designed to match exactly what you asked for — so let’s dive into it!
+
+---
+
+# 📘 **Mastering Arabic Numbers and Gender Agreement: A Sentence-by-Sentence Study**
+
+---
+
+## 🔵 **PAGE 1: Compound Numbers — 11 to 18**
+
+---
+
+### 🧾 Sentence 1  
+**قَــرَأْتُ اِثْنَتَا عَــشْــرَةَ رِــوَايَــةً**  
+**Transliteration:** *qara’tu ithnatā ‘ashrata riwāyatan*  
+**Translation:** “I read twelve novels”
+
+**Explanation:**  
+- Target noun: **رِوَايَة** (*novel*) — **feminine**  
+- Number: **12**  
+- Rule: **Numbers 11 & 12** must **fully agree with gender**  
+- اِثْنَتَا = feminine "two" ✅  
+- عَشْرَةَ = feminine "ten" ✅  
+- رِوَايَةً is **singular accusative**  
+**Rule Applied:** 12 → full **gender agreement**
+
+---
+
+### 🧾 Sentence 2  
+**اِلْتَقَيْتُ بِاِثْنَتَا عَــشْــرَةَ رِوَائِيَّــةً**  
+**Transliteration:** *iltaqaytu bi-ithnatā ‘ashrata riwā’iyyatan*  
+**Translation:** “I met twelve female novelists”
+
+**Explanation:**  
+- Target noun: **رِوَائِيَّة** — **feminine**  
+- Number = 12 → full agreement ✅  
+- Preposition **بِـ** triggers **accusative**  
+**Rule Applied:** 12 → **full gender match**
+
+---
+
+### 🧾 Sentence 3  
+**عَــمِلْتُ لِــمُدَّةِ أَحَــدَ عَــشَــرَ عَــامًا**  
+**Transliteration:** *‘amiltu limuddati ‘aḥada ‘ashara ‘āman*  
+**Translation:** “I worked for eleven years”
+
+**Explanation:**  
+- Target noun: **عَام** (*year*) — **masculine**  
+- Number = 11 → both parts match noun gender  
+- أَحَــدَ = masculine “one” ✅  
+- عَــشَــرَ = masculine “ten” ✅  
+**Rule Applied:** 11 → **full match**
+
+---
+
+### 🧾 Sentence 4  
+**بَــنَيْــتُ ثَــمَــانِــيَــةَ عَــشَــرَ بَيْــتًا جَــدِيدًا**  
+**Transliteration:** *banaytu thamāniyata ‘ashara baytan jadīdan*  
+**Translation:** “I built eighteen new houses”
+
+**Explanation:**  
+- Target noun: **بَيْت** — **masculine**  
+- Number = 18 → uses **split rule**:  
+  - Unit (ثمانية) disagrees → **feminine form** ✅  
+  - Ten (عَشَرَ) matches noun → **masculine** ✅  
+**Rule Applied:** 13–19 → **split gender rule**
+
+---
+
+## 🟢 **PAGE 2: Mixed Numbers — 16, 18, 20**
+
+---
+
+### 🧾 Sentence 5  
+**تَــبَــرَّعْــتُ بِــثَــمَــانِــيَــةَ عَــشَــرَ بَيْــتًا**  
+**Transliteration:** *tabarra‘tu bi-thamāniyata ‘ashara baytan*  
+**Translation:** “I donated eighteen houses”
+
+**Explanation:**  
+- Same noun (**بَيْت**) as previous  
+- Same split rule applies — unit disagrees, ten agrees ✅  
+- بــ makes the noun accusative  
+**Rule Applied:** 13–19 → split gender pattern
+
+---
+
+### 🧾 Sentence 6  
+**قَــرَأْتُ سِــتَّ عَــشْــرَةَ صَــفْــحَــةً مِنْ رِوَايَــةٍ جَــدِيدَةٍ**  
+**Transliteration:** *qara’tu sittata ‘ashara ṣafḥatan min riwāyatin jadīdah*  
+**Translation:** “I read sixteen pages from a new novel”
+
+**Explanation:**  
+- Target noun: **صَفْحَة** — **feminine**  
+- Split rule:  
+  - سِتَّ = feminine “six” → mismatches ✅  
+  - عَشْرَةَ = feminine ten → matches ✅  
+**Rule Applied:** 13–19 → unit ≠ noun, ten = noun
+
+---
+
+### 🧾 Sentence 7  
+**صُــمْــتُ لِــمُدَّةِ عِــشْــرِينَ سَــاعَــةً**  
+**Transliteration:** *ṣumtu limuddati ‘ishrīna sā‘atan*  
+**Translation:** “I fasted for twenty hours”
+
+**Explanation:**  
+- Target noun: **سَاعَة** — **feminine**  
+- Number 20 → fixed tens form used  
+- Number agrees naturally with noun  
+**Rule Applied:** 20+ → simple agreement pattern
+
+---
+
+### 🧾 Sentence 8  
+**قَــضَيْــتُ مُــدَّةَ عِــشْــرِينَ سَــاعَــةً فِي الطَّــائِــرَةِ**  
+**Transliteration:** *qaḍaytu muddata ‘ishrīna sā‘atan fī aṭ-ṭā’irah*  
+**Translation:** “I spent twenty hours on the plane”
+
+**Explanation:**  
+- Identical structure to previous sentence  
+**Rule Applied:** 20 → fixed number, noun is accusative, singular ✅
+
+---
+
+## 🟡 **PAGE 3: Numbers 30–90**
+
+---
+
+### 🧾 Sentence 9  
+**سَــوْفَ أُسَــافِــرُ لِــتِــسْــعِينَ يَــوْمًا**  
+**Transliteration:** *sawfa usāfiru li-tis‘īna yawman*  
+**Translation:** “I will travel for ninety days”
+
+**Explanation:**  
+- Target noun: **يَوْم** — **masculine**  
+- Number = 90 → tens value, matches noun gender  
+**Rule Applied:** 20+ → match noun, use singular accusative
+
+---
+
+### 🧾 Sentence 10  
+**اِلْتَقَيْتُ بِــثَــلَاثِينَ شَــخْصًا فِي آخِــرِ الْأُسْــبُــوعِ الْــمَاضِــي**  
+**Transliteration:** *iltaqaytu bi-thalāthīna shakhsan fī ākhiri al-usbū‘i al-māḍī*  
+**Translation:** “I met thirty people at the end of last week”
+
+**Explanation:**  
+- Target noun: **شَخْص** — masculine  
+- Number = 30 → agrees directly  
+**Rule Applied:** 30 → tens match, noun accusative
+
+---
+
+### 🧾 Sentence 11  
+**سَــوْفَ أَدْرُسُ اللُّــغَــةَ الْــعَــرَبِــيَّــةَ لِــتِــسْــعِينَ يَــوْمًا**  
+**Transliteration:** *sawfa adrusu al-lughata al-‘arabiyyata li-tis‘īna yawman*  
+**Translation:** “I will study Arabic for ninety days”
+
+**Explanation:**  
+- Same noun and number as Sentence 9  
+**Rule Applied:** 90 → identical agreement pattern
+
+---
+
+### 🧾 Sentence 12  
+**سَــأَبْــقَــى لِــتِــسْــعِينَ يَــوْمًا فِي دُبَــيِّ لِــدِرَاسَــةِ اللُّــغَــةِ الْــعَــرَبِــيَّــةِ**  
+**Transliteration:** *sa-abqā li-tis‘īna yawman fī Dubayy li-dirāsati al-lughati al-‘arabiyyah*  
+
+### 🧾 Sentence 12  
+**سَــأَبْــقَــى لِــتِــسْــعِينَ يَــوْمًا فِي دُبَــيِّ لِــدِرَاسَــةِ اللُّــغَــةِ الْــعَــرَبِــيَّــةِ**  
+**Transliteration:** *sa-abqā li-tis‘īna yawman fī Dubayy li-dirāsati al-lughah al-‘arabiyyah*  
+**Translation:** “I will stay in Dubai for ninety days to study Arabic”
+
+**Explanation:**  
+- Target noun: **يَــوْم** (*day*) — masculine  
+- Number: **90**, a tens value  
+- Form used: **تِــسْــعِــيــنَ** → masculine agreement  
+- Noun: **يَــوْمًا** → singular accusative  
+- Additional phrase: **لِــدِرَاسَــةِ اللُّــغَــةِ** = genitive structure (for studying the language)  
+**Rule Applied:** 90 → agree with noun gender; singular accusative noun
+
+---
+
+## 🟣 **PAGE 4: Numbers 1, 2, 30 with Adjective Agreement**
+
+---
+
+### 🧾 Sentence 13  
+**هُــنَــاكَ ثَــلَاثُــونَ شَــخْصًا فِي الصَّــفِّ**  
+**Transliteration:** *hunāka thalāthūna shakhsan fī aṣ-ṣaff*  
+**Translation:** “There are thirty people in the class”
+
+**Explanation:**  
+- Target noun: **شَــخْص** (*person*) — masculine  
+- Number: **30** → masculine form **ثَــلَاثُــونَ**  
+- Noun: **شَــخْصًا** → singular accusative  
+- **هُــنَــاكَ** (“there is”) introduces the sentence  
+**Rule Applied:** 30 → agree with noun, singular accusative after the number
+
+---
+
+### 🧾 Sentence 14  
+**حَــضَــرَ مُــدِيرٌ وَاحِــدٌ لِلِاجْتِــمَاعِ**  
+**Transliteration:** *ḥaḍara mudīrun wāḥidun lil-ijtimā‘*  
+**Translation:** “One male director attended the meeting”
+
+**Explanation:**  
+- Target noun: **مُــدِير** (*director*) — masculine  
+- Number: **1**  
+- Adjective: **وَاحِــدٌ** follows the noun and agrees with gender ✅  
+- Noun: **مُــدِيرٌ** → nominative (subject position)  
+**Rule Applied:** Number 1 → noun first, adjective agrees in gender
+
+---
+
+### 🧾 Sentence 15  
+**حَــضَــرَتْ مُــدِيرَةٌ وَاحِــدَةٌ لِلِاجْتِــمَاعِ**  
+**Transliteration:** *ḥaḍarat mudīrah wāḥidah lil-ijtimā‘*  
+**Translation:** “One female director attended the meeting”
+
+**Explanation:**  
+- Target noun: **مُــدِيرَة** — feminine  
+- Number: **1**  
+- Adjective: **وَاحِــدَةٌ** = feminine form ✅  
+- Same noun-adjective structure as previous sentence  
+**Rule Applied:** 1 → adjective agrees with gender, placed after the noun
+
+---
+
+### 🧾 Sentence 16  
+**حَــضَــرَتْ طَــالِــبَــتَــانِ إِلَــى الصَّــفِّ**  
+**Transliteration:** *ḥaḍarat ṭālibatān ilā aṣ-ṣaff*  
+**Translation:** “Two female students came to class”
+
+**Explanation:**  
+- Target noun: **طَــالِــبَــة** (*student*) — feminine  
+- Number: **2** → no actual digit used, just **dual form**  
+- **طَــالِــبَــتَــانِ** = dual nominative form ✅  
+- Verb: **حَــضَــرَتْ** = feminine singular past form ✅  
+**Rule Applied:** Number 2 → use **dual noun form**, no number word
+
+---
+
+## 🟤 **PAGE 5: Numbers 2, 3–10**
+
+---
+
+### 🧾 Sentence 17  
+**لَــدَيَّ خَــمْــسَ أَكْــيَــاسٍ فِي السَّــيَّــارَةِ**  
+**Transliteration:** *ladayya khamsa akyāsin fī as-sayyārah*  
+**Translation:** “I have five bags in the car”
+
+**Explanation:**  
+- Target noun: **أَكْــيَــاس** (*bags*) — masculine plural  
+- Number: **5**  
+- Rule: Numbers 3–10 → number must **disagree in gender**  
+- **خَــمْــسَ** = feminine form ✅  
+- Noun: plural **genitive** (أَكْــيَــاسٍ)  
+**Rule Applied:** 3–10 → number ≠ noun gender; noun must be plural genitive
+
+---
+
+### 🧾 Sentence 18  
+**اِشْتَــرَيْــتُ عُــلْــبَــتَــيْــنِ مِــنَ الْــحَــلْــوَيَــاتِ**  
+**Transliteration:** *ishtaraytu ‘ulbatayn mina al-ḥalawiyāt*  
+**Translation:** “I bought two boxes of sweets”
+
+**Explanation:**  
+- Target noun: **عُــلْــبَــة** (*box*) — feminine  
+- Number = 2 → expressed using **dual noun form**  
+- **عُــلْــبَــتَــيْــنِ** = accusative dual ✅  
+- No number word is used  
+**Rule Applied:** Number 2 → dual noun form only
+
+---
+
+### 🧾 Sentence 19  
+**لَــدَيَّ عَــشْــرَ مُــكَعَّــبَــاتٍ مِــنَ الثَّــلْــجِ فِي الْــفِــرِيزِر**  
+**Transliteration:** *ladayya ‘ashara muk‘abbātin mina ath-thalj fī al-freezer*  
+**Translation:** “I have ten ice cubes in the freezer”
+
+**Explanation:**  
+- Target noun: **مُــكَعَّــبَــات** — feminine plural  
+- Number: **10**  
+- Rule: Numbers 3–10 → **number disagrees with gender**  
+- **عَــشْــرَ** = masculine ten ✅  
+- Noun: plural genitive  
+**Rule Applied:** 3–10 → mismatch gender, noun is plural genitive
+
+---
+
+### 🧾 Sentence 20  
+**أَكَــلْــتُ ثَــلَاثَ حَــبَّــاتٍ مِــنَ الْــفَــرَاوِلَــةِ**  
+**Transliteration:** *akaltu thalātha ḥabbātin mina al-farāwilah*  
+**Translation:** “I ate three strawberries”
+
+**Explanation:**  
+- Target noun: **حَــبَّــات** (*units/grains*) — feminine plural  
+- Number: **3**  
+- Rule: Numbers 3–10 → number must **disagree**  
+- **ثَــلَاثَ** = masculine three ✅  
+- Noun: plural genitive  
+**Rule Applied:** 3–10 → mismatch gender, noun is plural genitive
+
+---
+
+## ✅ Summary of Key Rules Applied
+
+| Number Range | Rule                            | Noun Form      | Number Form               |
+|--------------|----------------------------------|----------------|----------------------------|
+| 1            | Number agrees; adjective follows | Singular       | واحد / واحدة              |
+| 2            | Dual noun form only              | Dual (ـانِ / ـينِ) | No number word            |
+| 3–10         | Number **disagrees** with noun   | Plural + Genitive | Feminine if noun is masculine and vice versa |
+| 11–12        | Number parts **agree** with noun | Singular + Accusative | Match noun gender       |
+| 13–19        | Unit part **disagrees**, Ten part **agrees** | Singular + Accusative | Unit = mismatch, Ten = match |
+| 20–99        | Number **agrees**, noun singular accusative | Singular       | Tens word agrees in gender |
+
+---
+
+You've just built yourself a reference guide that many learners dream of — made from real, contextual examples. If you'd like this turned into audio drills, flashcards, or a printable handout next, I’d be thrilled to help build it. Let’s turn all this effort into fluency. 🚀📘🗣️
+
+
+
 ---
 
 
