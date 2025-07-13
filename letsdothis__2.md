@@ -152,25 +152,110 @@ Let’s peek at 13:
 
 So the first part of the compound number (3) follows the **disagreement rule**, while the second part (10) **agrees**. A little dance of grammar!
 
----
-
-Would you like to explore numbers 11–19 in more detail next—or maybe try creating some example sentences yourself? I’m happy to build them out step by step, and even tie them into spoken practice. 😄
-
----
-
-
----
-
-
----
-
----
-
-
 
 #### =====================================
 
+You're diving deep now, Slip—this is where Arabic number grammar gets juicy! 🍊 Let’s unpack this “split” rule for numbers **13–19**, and then I’ll give you paired examples for each.
+
+---
+
+### 🌗 What Does “Split” Mean in Numbers 13–19?
+
+Arabic numbers 13–19 are **compound numbers**—they're made of:
+- **Units part** (3–9): which follows the **gender disagreement rule**
+- **Tens part** (10): which **agrees** in gender with the noun
+
+So if your noun is **masculine**, you:
+- Use **feminine** form for the 3–9 part
+- Use **masculine** form for the 10 part
+
+🔹 Example: **ثلاثةَ عشرَ وَلَدًا** (*thalāthata ‘ashara waladan*) — “thirteen boys”  
+- “Walad” is masculine  
+- “Thalātha” (3) = **feminine** form → **gender disagreement**
+- “‘Ashara” (10) = **masculine** form → **gender agreement**
+
+---
+
+### 🧮 Examples for Each Number (13–19)
+
+I’ll give:
+- ✅ Correct usage
+- ❌ Incorrect usage with explanation
+
+All examples follow the pattern:  
+**[Number] + [Noun accusative]**
+
+---
+
+#### 🔸 13
+
+- ✅ **ثَلاثَةَ عَشَرَ وَلَدًا** (*thalāthata ‘ashara waladan*) — “13 boys”  
+- ❌ **ثَلاثُ عَشَرَ وَلَدًا** — wrong gender for unit; “thalāthu” matches noun but **should mismatch**
+
+---
+
+#### 🔸 14
+
+- ✅ **أَرْبَعَةَ عَشَرَ طَالِبًا** (*arba‘ata ‘ashara ṭāliban*) — “14 students”  
+- ❌ **أَرْبَعُ عَشَرَ طَالِبًا** — unit part agrees in gender when it **should disagree**
+
+---
+
+#### 🔸 15
+
+- ✅ **خَمْسَةَ عَشَرَ قَلَمًا** (*khamsata ‘ashara qalaman*) — “15 pens”  
+- ❌ **خَمْسُ عَشَرَ قَلَمًا** — feminine number + masculine noun = correct in range 3–10, but not in 13–19 compound
+
+---
+
+#### 🔸 16
+
+- ✅ **سِتَّةَ عَشَرَ كِتَابًا** (*sittata ‘ashara kitāban*) — “16 books”  
+- ❌ **سِتُّ عَشَرَ كِتَابًا** — gender of 6 wrongly agrees with noun
+
+---
+
+#### 🔸 17
+
+- ✅ **سَبْعَةَ عَشَرَ رَجُلًا** (*sab‘ata ‘ashara rajulan*) — “17 men”  
+- ❌ **سَبْعُ عَشَرَ رَجُلًا** — unit part wrongly matches noun gender
+
+---
+
+#### 🔸 18
+
+- ✅ **ثَمَانِيَةَ عَشَرَ طِفْلًا** (*thamāniyata ‘ashara ṭiflan*) — “18 children”  
+- ❌ **ثَمَانِيُ عَشَرَ طِفْلًا** — spelling issue **and** incorrect gender pairing
+
+---
+
+#### 🔸 19
+
+- ✅ **تِسْعَةَ عَشَرَ طَالِبًا** (*tis‘ata ‘ashara ṭāliban*) — “19 students”  
+- ❌ **تِسْعُ عَشَرَ طَالِبًا** — unit should be feminine (to mismatch), not masculine
+
+---
+
+Want to try making a few of your own? Or we can switch this to Levantine-style expressions next. You’re picking up on some really smart nuances here—seriously impressive! 💡
+
 #### =====================================
+
+---
+---
+
+
+
+
+---
+
+
+---
+
+---
+
+
+
+
 
 #### =====================================
 
