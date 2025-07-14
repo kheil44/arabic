@@ -5,44 +5,39 @@
 ### ---------------------------------------------
 
 ---
+Here’s your **family relationships chart in tabular form** with the Arabic terms in **bold and enlarged script** (compatible with Markdown formatting). This structure is great for studying visually and tracking generational layers. Let’s level it up! 🌳
 
-              أنتَ / أنتِ
-               (You)
+---
 
-├─ الْوَالِدَانِ (Parents)
-│   ├─ وَالِدٌ (Father)
-│   │    ├─ جَدُّ الأَبِ (Paternal Grandfather)
-│   │    └─ جَدَّةُ الأَبِ (Paternal Grandmother)
-│   └─ وَالِدَةٌ (Mother)
-│        ├─ جَدُّ الأُمِّ (Maternal Grandfather)
-│        └─ جَدَّةُ الأُمِّ (Maternal Grandmother)
+### 👪 **شجرة العلاقات الأسرية – Family Tree Chart**
 
-├─ الْأَخَوَةُ (Siblings)
-│   ├─ أَخٌ (Brother)
-│   └─ أُخْتٌ (Sister)
+| 👤 **Relation**              | 🗣️ **Arabic (Bold + Diacritics)**                          | 🇬🇧 **English Translation**           |
+|-----------------------------|-------------------------------------------------------------|--------------------------------------|
+| **Self**                    | **أَنْتَ / أَنْتِ**                                         | You (m) / You (f)                    |
+| **Parents**                 | **الْوَالِدَانِ**                                           | Parents                              |
+| — Father                    | **وَالِدٌ**                                                 | Father                               |
+| — Mother                    | **وَالِدَةٌ**                                               | Mother                               |
+| **Grandparents (Paternal)** | **جَدُّ الأَبِ** / **جَدَّةُ الأَبِ**                        | Father's Father / Father's Mother    |
+| **Grandparents (Maternal)** | **جَدُّ الأُمِّ** / **جَدَّةُ الأُمِّ**                      | Mother's Father / Mother's Mother    |
+| **Great Grandparents**      | **جَدُّ جَدِّ الأَبِ** / **جَدُّ جَدِّ الأُمِّ**             | Great-Grandfather (Paternal/Maternal)|
+|                             | **جَدَّةُ جَدِّ الأَبِ** / **جَدَّةُ جَدِّ الأُمِّ**         | Great-Grandmother (Paternal/Maternal)|
+| **Siblings**                | **أَخٌ** / **أُخْتٌ**                                       | Brother / Sister                     |
+| **Uncles (Paternal)**       | **عَمٌّ**                                                   | Paternal Uncle                       |
+| **Aunts (Paternal)**        | **عَمَّةٌ**                                                 | Paternal Aunt                        |
+| **Uncles (Maternal)**       | **خَالٌ**                                                   | Maternal Uncle                       |
+| **Aunts (Maternal)**        | **خَالَةٌ**                                                 | Maternal Aunt                        |
+| **Cousins (Paternal)**      | **ابْنُ العَمِّ** / **ابْنَةُ العَمِّ**                      | Son / Daughter of Paternal Uncle     |
+|                             | **ابْنُ العَمَّةِ** / **ابْنَةُ العَمَّةِ**                  | Son / Daughter of Paternal Aunt      |
+| **Cousins (Maternal)**      | **ابْنُ الخَالِ** / **ابْنَةُ الخَالِ**                      | Son / Daughter of Maternal Uncle     |
+|                             | **ابْنُ الخَالَةِ** / **ابْنَةُ الخَالَةِ**                  | Son / Daughter of Maternal Aunt      |
+| **Nephews / Nieces**        | **ابْنُ الأَخِ** / **ابْنَةُ الأَخِ**                        | Son / Daughter of Brother            |
+|                             | **ابْنُ الأُخْتِ** / **ابْنَةُ الأُخْتِ**                    | Son / Daughter of Sister             |
+| **In-laws**                 | **حَمٌّ** / **حَمَاةٌ**                                     | Father-in-law / Mother-in-law        |
+|                             | **كَنِينٌ** / **كَنَّانَةٌ**                                 | Son-in-law / Daughter-in-law         |
 
-├─ الْعَمَّاتُ وَالْأَعْمَامُ (Aunts & Uncles)
-│   ├─ مِنْ نَاحِيَةِ الأَبِ (Paternal)
-│   │    ├─ عَمٌّ (Paternal Uncle)
-│   │    └─ عَمَّةٌ (Paternal Aunt)
-│   └─ مِنْ نَاحِيَةِ الأُمِّ (Maternal)
-│        ├─ خَالٌ (Maternal Uncle)
-│        └─ خَالَةٌ (Maternal Aunt)
+---
 
-├─ أَبْنَاءُ وَبَنَاتُ (Nieces & Nephews)
-│   ├─ ابْنُ الأَخِ (Son of Brother – Nephew)
-│   ├─ ابْنَةُ الأَخِ (Daughter of Brother – Niece)
-│   ├─ ابْنُ الأُخْتِ (Son of Sister – Nephew)
-│   └─ ابْنَةُ الأُخْتِ (Daughter of Sister – Niece)
-
-└─ أَبْنَاءُ وَبَنَاتُ الْعَمِّ وَالْخَالِ (Cousins)
-    ├─ مِنْ نَاحِيَةِ الأَبِ (Paternal Cousins)
-    │    ├─ ابْنُ الْعَمِّ (Male Cousin)
-    │    └─ ابْنَةُ الْعَمِّ (Female Cousin)
-    └─ مِنْ نَاحِيَةِ الأُمِّ (Maternal Cousins)
-         ├─ ابْنُ الْخَالِ (Male Cousin)
-         └─ ابْنَةُ الْخَالِ (Female Cousin)
-
+I can also give you this as a **printable study sheet with transliteration**, or build it into a **semantic learning chart**, if that suits your learning style better. Want to take it even further with example sentences or cultural context for each term?
 ---
 ---
 ---
