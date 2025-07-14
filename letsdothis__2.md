@@ -9,42 +9,39 @@
               أنتَ / أنتِ
                (You)
 
-├─ الوالدان (Parents)
-│   ├─ والِدٌ (Father)
+├─ الْوَالِدَانِ (Parents)
+│   ├─ وَالِدٌ (Father)
 │   │    ├─ جَدُّ الأَبِ (Paternal Grandfather)
 │   │    └─ جَدَّةُ الأَبِ (Paternal Grandmother)
-│   └─ والِدَةٌ (Mother)
+│   └─ وَالِدَةٌ (Mother)
 │        ├─ جَدُّ الأُمِّ (Maternal Grandfather)
 │        └─ جَدَّةُ الأُمِّ (Maternal Grandmother)
 
-├─ الأخوَةُ (Siblings)
+├─ الْأَخَوَةُ (Siblings)
 │   ├─ أَخٌ (Brother)
 │   └─ أُخْتٌ (Sister)
 
-├─ العَمَّاتُ والأَعْمامُ (Aunts & Uncles)
-│   ├─ من ناحية الأب (Paternal)
+├─ الْعَمَّاتُ وَالْأَعْمَامُ (Aunts & Uncles)
+│   ├─ مِنْ نَاحِيَةِ الأَبِ (Paternal)
 │   │    ├─ عَمٌّ (Paternal Uncle)
 │   │    └─ عَمَّةٌ (Paternal Aunt)
-│   └─ من ناحية الأم (Maternal)
+│   └─ مِنْ نَاحِيَةِ الأُمِّ (Maternal)
 │        ├─ خَالٌ (Maternal Uncle)
 │        └─ خَالَةٌ (Maternal Aunt)
 
-├─ الأَبْنَاءُ والبَنَاتُ (Nieces & Nephews)
+├─ أَبْنَاءُ وَبَنَاتُ (Nieces & Nephews)
 │   ├─ ابْنُ الأَخِ (Son of Brother – Nephew)
 │   ├─ ابْنَةُ الأَخِ (Daughter of Brother – Niece)
 │   ├─ ابْنُ الأُخْتِ (Son of Sister – Nephew)
 │   └─ ابْنَةُ الأُخْتِ (Daughter of Sister – Niece)
 
-└─ الأَبْنَاءُ والأَبْنَاتُ (Cousins)
-    ├─ من ناحية الأب (Paternal Cousins)
-    │    ├─ ابْنُ العَمِّ (Male Cousin)
-    │    └─ ابْنَةُ العَمِّ (Female Cousin)
-    └─ من ناحية الأم (Maternal Cousins)
-         ├─ ابْنُ الخَالِ (Male Cousin)
-         └─ ابْنَةُ الخَالِ (Female Cousin)
-
-
-
+└─ أَبْنَاءُ وَبَنَاتُ الْعَمِّ وَالْخَالِ (Cousins)
+    ├─ مِنْ نَاحِيَةِ الأَبِ (Paternal Cousins)
+    │    ├─ ابْنُ الْعَمِّ (Male Cousin)
+    │    └─ ابْنَةُ الْعَمِّ (Female Cousin)
+    └─ مِنْ نَاحِيَةِ الأُمِّ (Maternal Cousins)
+         ├─ ابْنُ الْخَالِ (Male Cousin)
+         └─ ابْنَةُ الْخَالِ (Female Cousin)
 
 ---
 ---
