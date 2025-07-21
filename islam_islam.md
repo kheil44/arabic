@@ -3,13 +3,45 @@
 
 ## بِسْمِ اللَّهِ الرَّحْمَٰنِ الرَّحِيمِ
 
+---
+
 ### ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
 shapes;;
 # ☕   ⛐  ☢   ♻️ ⛤ ⛔ ♥ ★ ☆ ⛷ ☹ ☺ ☪ ☛ ☚ ☻ 💰💎 📈 🌟 🏆  🥇 💖 🎉 💝 🤠 🎩 🧢 ✦ ✦
 🟰🟰
 • • • • 
 
+### Emojis
+
+- 🕌 (Mosque)
+- 🌙 (Crescent Moon)
+- ⭐ (Star)
+- 📖 (Open Book)
+- 🙏 (Folded Hands)
+- 🕋 (Kaaba)
+- 🕊️ (Dove)
+- 🌿 (Herb)
+- 🕌🌙 (Mosque with Crescent Moon)
+- 🧕 (Woman with Headscarf)
+- 🧔 (Man with Beard)
+- 🕌✨ (Mosque with Sparkles)
+- 🌍 (Earth Globe)
+- 🕯️ (Candle)
+- 🧺 (Basket)
+- 🌼 (Blossom)
+- 🕌❤️ (Mosque with Heart)
+
+### Additional Symbols
+
+- **Allah**: الله
+- **Islam**: الإسلام
+- **Peace**: سلام
+
+Feel free to combine these elements or modify them to create your own representations! If you need more specific types of ASCII art or emojis, let me know!
+
 ### ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
+
+---
 
 
 ---
@@ -30,10 +62,105 @@ shapes;;
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
 
+---
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
 
-🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
+Here is a detailed, authenticated summary of the **pillars (arkān), obligations (wājibāt), and sunnah (recommended acts)** of ṣalāh, with direct sources and explanations.
 
+## 1. PILLARS (ARKĀN) OF SALĀH  
+**(If ANY are omitted, intentionally or forgetfully, the prayer is invalid and must be repeated.)**
+
+**Number:** 14
+
+**List:**
+1. **Standing** (if able)  
+2. **Opening Takbeer** (“Allāhu akbar”)  
+3. **Recitation of Sūrat al-Fātiḥah** (in every rakʿah)  
+4. **Rukūʿ** (bowing)  
+5. **Rising from rukūʿ**  
+6. **Standing upright** after rukūʿ  
+7. **Sujūd** (prostration) on all seven body parts  
+8. **Rising from sujūd**  
+9. **Sitting between the two sujūd**  
+10. **Remaining tranquil (ṭuma’nīnah)** in all the arkaan  
+11. **Maintaining the correct order** (doing these actions in sequence)  
+12. **Final Tashahhud**  
+13. **Sitting for the final tashahhud and taslīm**  
+14. **Two taslīms** (saying “as-salāmu ʿalaykum wa raḥmatullāh” at the end)  
+
+**Details and references:**  
+- [IslamQA: 14 Pillars of Prayer](https://islamqa.info/en/answers/65847)[1]  
+- [AbuKhadeejah.com: Pillars of Prayer explained](https://abukhadeejah.com/conditions-shurut-of-the-prayer-pillars-arkan-obligations-wajibat-sunnahs/)[3]  
+- [Al-Ibaanah e-Book: Conditions, Pillars, and Requirements](https://abdurrahman.org/wp-content/uploads/2014/08/the-conditions-pilliars-and-requirements-of-prayer-shaykh-abdul-wahab-al-ibaanah-com.pdf)[2]  
+- [Another full exposition with table](https://abdurrahman.org/2011/12/03/the-conditionsshuroot-pillarsarkaan-and-requirementswaajibaat-of-the-prayer/)[4]
+
+## 2. OBLIGATORY PARTS (WĀJIBĀT)  
+**(If omitted intentionally, prayer is invalid. If omitted by mistake, compensated by sujūd as-sahw—prostration of forgetfulness—before taslīm.)**  
+**Number:** 8
+
+**List:**
+1. All takbīrs other than the opening (e.g., moving between positions)
+2. Saying “Subḥāna Rabbiy al-ʿAẓīm” in rukūʿ  
+3. Saying “Samiʿa Allāhu liman ḥamidah” (for imam and one praying alone; not for ma’mūm)  
+4. Saying “Rabbana wa lakal-ḥamd” (for everyone praying)  
+5. Saying “Subḥāna Rabbiy al-Aʿlā” in sujūd  
+6. Saying “Rabbighfir lī” between the two sujūd  
+7. The **first tashahhud**  
+8. Sitting for the first tashahhud  
+
+**References:**  
+- [IslamQA: Obligatory parts of prayer](https://islamqa.info/en/answers/65847)[1]  
+- [AbuKhadeejah: Obligations of Salah](https://abukhadeejah.com/conditions-shurut-of-the-prayer-pillars-arkan-obligations-wajibat-sunnahs/)[3]  
+- [Al-Ibaanah e-Book, pp. 9-10](https://abdurrahman.org/wp-content/uploads/2014/08/the-conditions-pilliars-and-requirements-of-prayer-shaykh-abdul-wahab-al-ibaanah-com.pdf)[2]  
+- Table summary: [abdurrahman.org](https://abdurrahman.org/2011/12/03/the-conditionsshuroot-pillarsarkaan-and-requirementswaajibaat-of-the-prayer/)[4]
+
+## 3. SUNNAH ACTS OF SALĀH  
+**(Highly recommended; leaving them does not invalidate the prayer and no sujūd as-sahw if missed. They include words and actions from the practice of the Prophet ﷺ not counted among the pillars/wājibāt.)**
+
+**Some examples:**
+- Placing the right hand over the left on the chest after the opening takbeer
+- Reading a duʿāʾ al-istiftāḥ (opening supplication)
+- Seeking refuge (istiʿādhah) before al-Fātiḥah
+- Saying “Amīn” after al-Fātiḥah
+- Additional tasbīḥ (more than once) in rukūʿ and sujūd  
+- Supplications between positions and at the end  
+- Pointing the finger in tashahhud  
+- Sitting in “tawarruk” in the last tashahhud  
+- Gaze at place of sujūd, stillness, humility, calmness, etc.
+
+**References:**  
+- [IslamQA: Sunnah acts of prayer](https://islamqa.info/en/answers/65847)[1]  
+- [AbuKhadeejah: Sunnahs of the Prayer](https://abukhadeejah.com/conditions-shurut-of-the-prayer-pillars-arkan-obligations-wajibat-sunnahs/)[3]  
+- [Al-Ibaanah Full List & Explanations](https://abdurrahman.org/wp-content/uploads/2014/08/the-conditions-pilliars-and-requirements-of-prayer-shaykh-abdul-wahab-al-ibaanah-com.pdf)[2]  
+
+### **Quick Table Summary**
+
+| Category        | Number | What Happens If Omitted                          | Direct sources                |
+|-----------------|--------|-------------------------------------------------|-------------------------------|
+| **Pillars**     | 14     | Prayer invalid; must be repeated                 | [1][2][3][4]                  |
+| **Wājibāt**     | 8      | Deliberate: prayer invalid. Forgotten: sujūd sahw| [1][2][3][4]                  |
+| **Sunnah**      | Many   | No effect on validity, no sujūd sahw             | [1][2][3]                     |
+
+**For further detail and textual evidence, see:**  
+- [IslamQA: Obligatory Parts and Sunnah Acts of Prayer](https://islamqa.info/en/answers/65847)[1]  
+- [AbuKhadeejah: Pillars, Obligations, and Sunnahs](https://abukhadeejah.com/conditions-shurut-of-the-prayer-pillars-arkan-obligations-wajibat-sunnahs/)[3]  
+- [Al-Ibaanah eBook full PDF](https://abdurrahman.org/wp-content/uploads/2014/08/the-conditions-pilliars-and-requirements-of-prayer-shaykh-abdul-wahab-al-ibaanah-com.pdf)[2]
+
+**If you would like a printable chart, full Arabic/English list, or source breakdown for each school (madhhab), let me know!**
+
+[1] https://islamqa.info/en/answers/65847
+[2] https://abdurrahman.org/wp-content/uploads/2014/08/the-conditions-pilliars-and-requirements-of-prayer-shaykh-abdul-wahab-al-ibaanah-com.pdf
+[3] https://abukhadeejah.com/conditions-shurut-of-the-prayer-pillars-arkan-obligations-wajibat-sunnahs/
+[4] https://abdurrahman.org/2011/12/03/the-conditionsshuroot-pillarsarkaan-and-requirementswaajibaat-of-the-prayer/
+[5] https://learn-islam.org/class-3-arkaan-waajibaat-sunan
+[6] https://www.islamic-relief.org.uk/resources/knowledge-base/five-pillars-of-islam/
+[7] https://aboutislam.net/counseling/ask-about-islam/14-pillars-prayer/
+[8] https://www.youtube.com/watch?v=oyyGw2s14oE
+[9] https://en.wikipedia.org/wiki/Sunnah_prayer
+[10] https://www.khanacademy.org/humanities/ap-art-history/introduction-cultures-religions-apah/islam-apah/a/the-five-pillars-of-islam
+
+🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
+---
 
 ---
 
