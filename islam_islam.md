@@ -1603,6 +1603,22 @@ It was the personal duʿāʾ of **the Prophet ﷺ before night prayer**, and it 
 
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
+Here’s the revised chart with the Arabic script and relevant emojis for a more visually appealing presentation:
+
+| English Phrase               | Arabic Script | Transliteration | Explanation                                      | Emojis         |
+|------------------------------|---------------|------------------|--------------------------------------------------|----------------|
+| My Lord                      | رَبِّي        | rabbi            | This phrase is used to refer to "my Lord" in a personal context, indicating a close relationship with God. | 🙏              |
+| Our Lord                     | رَبُّنَا      | rabbunā          | This phrase means "our Lord," used to express collective acknowledgment of God by a group or community. | 🕌              |
+| Your Lord (singular)        | رَبُّكَ      | rabbuka          | This phrase means "your Lord," addressing one person directly, indicating a personal relationship with God. | 🤲              |
+| Your Lord (plural)          | رَبُّكُمْ     | rabbukum         | This phrase means "your Lord," addressing multiple people, acknowledging God in a communal context. | 👫              |
+
+### Explanation of Terms:
+- **رَبِّي (rabbi)**: Indicates a personal relationship with God, often used in prayers and supplications.
+- **رَبُّنَا (rabbunā)**: Used to express a collective relationship with God, often found in communal prayers and gatherings.
+- **رَبُّكَ (rabbuka)**: A direct address to an individual, reminding them of their relationship with God.
+- **رَبُّكُمْ (rabbukum)**: A direct address to a group, emphasizing the shared relationship with God among the individuals.
+
+This format provides a clear understanding of the phrases along with relevant emojis to enhance the presentation!
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
 
