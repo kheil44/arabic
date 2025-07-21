@@ -18,6 +18,11 @@ https://www.youtube.com/watch?v=QC28bKBlb5I&t=198s
 ### How Does One Perform Sajda al-Sahū
 https://www.youtube.com/watch?v=zwWOK9HhBGI
 
+#### wrong way [hanafi];
+
+https://www.youtube.com/watch?v=FWWuthoU22c
+
+
 #### Short prayer  [couldnt find any hadith but ;]
 https://www.youtube.com/shorts/ys0x5-3Bl8A
 https://youtu.be/v_wJp2Cc_nU?t=74
