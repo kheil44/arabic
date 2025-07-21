@@ -286,8 +286,11 @@ Muslim (2725) narrated it as follows: “Indeed, Allah has one hundred parts of 
 
 ---
 
+#### 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋
+
 #  ========  N a m a z  ☪ ☪ ========
 https://www.youtube.com/watch?v=QC28bKBlb5I&t=198s
+#### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 ### How Does One Perform Sajda al-Sahū [ or Sujood As-Sahw ]
 https://www.youtube.com/watch?v=zwWOK9HhBGI
 
@@ -302,8 +305,9 @@ https://www.youtube.com/watch?v=PNtUREOgTb8
 
 https://www.youtube.com/watch?v=FWWuthoU22c
 
+#### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
-#### Short prayer  [couldnt find any hadith but ;]
+#### Short prayer   [couldnt find any hadith but ;]  🕋 🕋
 https://www.youtube.com/shorts/ys0x5-3Bl8A
 https://youtu.be/v_wJp2Cc_nU?t=74
 
@@ -339,6 +343,9 @@ Here is the **full story**, Arabic duʿāʾ, English translation, and **all majo
 
 
 =--------------------------------
+
+---
+#### 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋 🕋
 
  **entire 4 rakʿah Sunnah prayer**, 
  
