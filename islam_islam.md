@@ -22,6 +22,141 @@ shapes;;
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
 
+🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
+
+🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
+
+🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
+
+🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
+
+🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
+
+🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
+
+
+---
+
+🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
+## 💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰
+
+**Tahiyyatul Wudu’**
+
+Riyad Us-Saliheen (Gardens of the Righteous)
+
+Chapter 209
+The Excellence of Performing two Rak'ah of Voluntary Prayer after Ablution
+
+1146. Abu Hurairah (May Allah be pleased with him) reported: The Messenger of Allah (PBUH) said to Bilal (May Allah be pleased with him) "Tell me about the most hopeful act (i.e., one which you deem the most rewarding with Allah) you have done since your acceptance of Islam because I heard the sound of the steps of your shoes in front of me in Jannah.'' Bilal said: "I do not consider any act more hopeful than that whenever I make Wudu' (or took a bath) in an hour of night or day, I would immediately perform Salat (prayer) for as long as was destined for me to perform.''
+[Al-Bukhari and Muslim].
+
+Commentary: The word "Tuhur'' is used for "Wudu", Ghusl and Tayammum because one gets the ritual purity by all these means and then one can perform Salat freely. It means that everytime during the day or night Bilal made Wudu'' or Ghusl, he would invariably perform some Nafl prayer. Some of the Ahadith explicitly say two Rak`ah. This act of his so much pleased Allah that he was blessed with the distinction which was witnessed by the Prophet (PBUH) himself. This Hadith proves the merit of performing two Rak`ah prayer after ablution. Some `Ulama' hold that this two Rak`ah prayer as well as Tahiyyat-ul-Masjid  are permissible even in hours when Salat is Makruh (undesirable), while others stick to the injunctions which regard Nafl Salat after Fajr and `Asr prayer undesirable.
+
+## 💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰
+
+
+
+## The Two Rak‘ah Prayer After Wudu:  
+### Qur’anic Practice, Hadith Proofs, Rewards, and Details
+
+Praying two rak‘ahs (units) after performing wudu is a well-established, highly-rewarded Sunnah of the Prophet Muhammad ﷺ, with strong proofs in both **Sahih al-Bukhari** and **Sahih Muslim**.
+
+### 1️⃣ **Direct Proof from Sahih al-Bukhari**
+
+**Narrated by Humran (the freed slave of ‘Uthman):**
+
+> “‘Uthman bin ‘Affan called for water to perform wudu. He washed his hands three times... (full description of wudu follows) ... Then ‘Uthman said:  
+> I saw Allah’s Messenger (ﷺ) perform ablution like this and the Prophet said:
+>
+> **“Whoever performs ablution like this wudu of mine, and prays two rak‘at without letting his mind wander in them, all his previous sins will be forgiven.”**
+>
+> — [Sahih al-Bukhari, Book 4 (Wudu’), Hadith 159-164; see [bukhari:164 on Sunnah.com](https://sunnah.com/bukhari:164)]  
+> — Also referenced in [IslamQA](https://islamqa.info/en/answers/45730), [QuestionsOnIslam](https://questionsonislam.com/question/there-hadith-about-offering-two-rakah-prayer-after-making-wudu-ablution)[5]
+
+### 2️⃣ **Direct Proof from Sahih Muslim**
+
+**Narrated by ‘Uqbah bin ‘Amir:**
+
+> “No Muslim performs ablution and performs it well, then stands and prays two rak‘ahs, turning his face and heart (towards Allah), without Paradise being guaranteed for him.”
+>
+> — [Sahih Muslim, Book 2 (Purification), Hadith 234a; see [muslim:234a on Sunnah.com](https://sunnah.com/muslim:234a)]  
+> — [IslamBasics](https://islambasics.com/chapter/the-excellence-of-performing-two-rakah-of-voluntary-prayer-after-ablution/)[1], [Fiqh Islam Online](https://fiqh.islamonline.net/en/virtues-of-praying-two-rakahs-after-wudu/)[6]
+
+Another narration in Muslim from ‘Umar ibn al-Khattab (رضي الله عنه):
+
+> “There is no one among you who performs wudu and does it well, then says:  
+> *Ashhadu an la ilaha illallah wahdahu la sharika lah, wa ashhadu anna Muhammadan ʿabduhu wa rasuluhu*  
+> (I bear witness that there is no god except Allah alone with no partner, and I bear witness that Muhammad is His servant and Messenger)  
+> — but the eight gates of Paradise will be opened for him, and he may enter through whichever one he wishes.”
+>
+> — [Sahih Muslim 234](https://sunnah.com/muslim:234a)[3]
+
+### 3️⃣ **The Story of Bilal (Bukhari & Muslim)**
+
+**Narrated Abu Hurairah:**
+
+> The Messenger of Allah ﷺ said to Bilal (رضي الله عنه):  
+> **“Tell me about the most hopeful act (i.e., one which you deem the most rewarding with Allah) you have done since your acceptance of Islam, because I heard the sound of your footsteps in front of me in Jannah.”**  
+> Bilal said:  
+> “I do not consider any act more hopeful than that whenever I make wudu (at any hour of night or day), I would immediately perform prayer as much as I was destined to perform.”
+>
+> — [Sahih al-Bukhari, Book 21, Hadith 1146 & 1149](https://islambasics.com/chapter/the-excellence-of-performing-two-rakah-of-voluntary-prayer-after-ablution/)[1]  
+> — [Muslim; see Fiqh Islam Online](https://fiqh.islamonline.net/en/virtues-of-praying-two-rakahs-after-wudu/)[6]
+
+### 4️⃣ **Scholarly Summary**
+
+- Majority of scholars of Islam agree that this two rakaʿh prayer (known as **Tahiyyatul Wudu’**) is a **highly recommended Sunnah**[5][6].
+- Some scholars even recommend praying it **immediately after wudu**, and even during times generally discouraged for other voluntary prayers (due to the specific cause)[1][6][7].
+
+### 5️⃣ **How to Pray the Two Rakʿahs After Wudu**
+
+- **Intention:** Make niyyah (intention) in your heart for the two rakʿahs after wudu.
+- **Pray:** Stand and offer two rakʿahs as you would for any Sunnah.  
+- **Recommended:** Focus completely, minimizing distractions—“without letting his mind wander.”
+- Some recommend reciting **Surah Al-Kafirun** in the first rakʿah and **Surah Al-Ikhlas** in the second[7].
+
+### 6️⃣ **Virtues and Rewards**
+
+- **Forgiveness of all past sins**[2][5].
+- **Guaranteed entry to Paradise**[5][6][10].
+- **Special spiritual rank (like Bilal)**[1][6].
+- **Opening of all eight Gates of Paradise (for those who recite the shahādah dua after wudu)**[3].
+
+### 7️⃣ **Direct Hadith Links & References**
+
+- **Sahih al-Bukhari 164**:  
+  [https://sunnah.com/bukhari:164](https://sunnah.com/bukhari:164)
+- **Sahih Muslim 234a**:  
+  [https://sunnah.com/muslim:234a](https://sunnah.com/muslim:234a)
+- **Islam Q&A (with extra references and commentary):**  
+  [https://islamqa.info/en/answers/45730](https://islamqa.info/en/answers/45730)
+- **Virtues of the prayer after wudu (IslamOnline):**  
+  [https://fiqh.islamonline.net/en/virtues-of-praying-two-rakahs-after-wudu/](https://fiqh.islamonline.net/en/virtues-of-praying-two-rakahs-after-wudu/)
+- **Scholarly summary with hadith links:**  
+  [https://questionsonislam.com/question/there-hadith-about-offering-two-rakah-prayer-after-making-wudu-ablution](https://questionsonislam.com/question/there-hadith-about-offering-two-rakah-prayer-after-making-wudu-ablution)
+
+### **In Summary**
+
+Both **Sahih al-Bukhari** and **Sahih Muslim**, plus all major scholars, confirm the **high virtue and reward of the two rakʿahs after wudu**.  
+- The Prophet ﷺ promised complete forgiveness and Jannah for those who pray them with full presence and devotion.  
+- This has been established by multiple chains through the companions, especially Uthman and Bilal رضي الله عنهما.
+
+**It is a simple act with massive reward—don’t miss it!**
+
+[1] https://islambasics.com/chapter/the-excellence-of-performing-two-rakah-of-voluntary-prayer-after-ablution/
+[2] https://yahyaibrahim.com/courses/small-deeds-massive-rewards/lessons/modules/topic/pray-2-rakats-units-of-prayer-after-taking-wudhu/
+[3] https://islamqa.info/en/answers/45730
+[4] https://www.youtube.com/watch?v=DQqZi_mXHBY
+[5] https://questionsonislam.com/question/there-hadith-about-offering-two-rakah-prayer-after-making-wudu-ablution
+[6] https://fiqh.islamonline.net/en/virtues-of-praying-two-rakahs-after-wudu/
+[7] https://seekersguidance.org/answers/hanafi-fiqh/best-time-perform-two-cycles-prayer-performing-ritual-ablution/
+[8] https://islam.stackexchange.com/questions/28218/is-this-hadith-authentic-he-who-makes-wudu-and-prays-two-rakat-allah-will
+[9] https://muslimmatters.org/2022/04/13/small-deeds-massive-rewards-2-rakats-of-prayer-after-wudu/
+[10] https://sunnah.com/muslim:234a
+
+
+🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
+
 ---
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
