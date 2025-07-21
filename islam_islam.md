@@ -318,6 +318,7 @@ Muslim (2725) narrated it as follows: “Indeed, Allah has one hundred parts of 
 
 #  ========  N a m a z  ☪ ☪ ========
 https://www.youtube.com/watch?v=QC28bKBlb5I&t=198s
+
 #### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 ## How Does One Perform Sajda al-Sahū [ or Sujood As-Sahw ]
 
@@ -326,6 +327,9 @@ https://www.youtube.com/watch?v=QC28bKBlb5I&t=198s
 - If you subtracted
 - If in Doubt
 
+### _31 Sharh Akhsar al-Mukhtasarat : Sujood as-Sahw_
+#### _Very good explaination, just this video alone should be sufficient [inshallah. Allah know best] ._
+https://www.youtube.com/watch?v=rGRBZLXAONs
   
 https://www.youtube.com/watch?v=zwWOK9HhBGI
 
