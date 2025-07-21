@@ -11,7 +11,7 @@ shapes;;
 🕌 (Mosque) 🌙 (Crescent Moon) ⭐ (Star) 📖 (Open Book) 🙏 (Folded Hands) 🕋 (Kaaba) 🕊️ (Dove) 🌿 (Herb) 🕌🌙 (Mosque with Crescent Moon) 🧕 (Woman with Headscarf) 🧔 (Man with Beard) 🕌✨ (Mosque with Sparkles) 🌍 (Earth Globe) 🕯️ (Candle) 🧺 (Basket) 🌼 (Blossom) 🕌❤️ (Mosque with Heart)
 
  ☕   ⛐  ☢   ♻️ ⛤ ⛔ ♥ ★ ☆ ⛷ ☹ ☺ ☪ ☛ ☚ ☻ 💰💎 📈 🌟 🏆  🥇 💖 🎉 💝 🤠 🎩 🧢 ✦ ✦
- 🎓 📚 🏫 🏛️ 📖 ✏️ 📝 📅 🧑‍🎓 👩‍🏫 👨‍🏫 🔬 🔭 🌍 💻 📊 📈 📉 🧠 🗣️
+ 🎓 📚 🏫 🏛️ 📖 ✏️ 📝 📅 🧑‍🎓 👩‍🏫 👨‍🏫 🔬 🔭 🌍 💻 📊 📈 📉 🧠 🗣️    🙏 👐 🤲 🕋 🌙
 🟰🟰
 • • • • 
 
@@ -1376,8 +1376,219 @@ Just say the word.
 
 
 ---
+🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰
+### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
+# Duas , Praying , Praising Allah
+
+####  How to praise Allah before making Dua Proper etiquette of making Dua 
+https://www.youtube.com/watch?v=42DsXENKySo
+
+### ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
 
 
+## 🟩 **Full Hadith (with Reference)**
+**Narrated by Ibn Abbas (رضي الله عنهما):**
+
+> **When the Prophet (ﷺ) got up at night to offer the Tahajjud prayer, he used to say:**
+>
+> **اللَّهُمَّ لَكَ الْحَمْدُ، أَنْتَ قَيِّمُ السَّمَاوَاتِ وَالأَرْضِ وَمَنْ فِيهِنَّ.  
+وَلَكَ الْحَمْدُ، لَكَ مُلْكُ السَّمَاوَاتِ وَالأَرْضِ وَمَنْ فِيهِنَّ.  
+وَلَكَ الْحَمْدُ، أَنْتَ نُورُ السَّمَاوَاتِ وَالأَرْضِ وَمَنْ فِيهِنَّ.  
+وَلَكَ الْحَمْدُ، أَنْتَ المَلِكُ السَّمَاوَاتِ وَالأَرْضِ.  
+وَلَكَ الْحَمْدُ، أَنْتَ الْحَقُّ، وَوَعْدُكَ الْحَقُّ، وَلِقَاؤُكَ حَقٌّ، وَقَوْلُكَ حَقٌّ، وَالجَنَّةُ حَقٌّ، وَالنَّارُ حَقٌّ، وَالنَّبِيُّونَ حَقٌّ، وَمُحَمَّدٌ حَقٌّ، وَالسَّاعَةُ حَقٌّ.  
+اللَّهُمَّ لَكَ أَسْلَمْتُ، وَبِكَ آمَنْتُ، وَعَلَيْكَ تَوَكَّلْتُ، وَإِلَيْكَ أَنَبْتُ، وَبِكَ خَاصَمْتُ، وَإِلَيْكَ حَاكَمْتُ، فَاغْفِرْ لِي مَا قَدَّمْتُ وَمَا أَخَّرْتُ وَمَا أَسْرَرْتُ وَمَا أَعْلَنْتُ، أَنْتَ الْمُقَدِّمُ وَأَنْتَ الْمُؤَخِّرُ، لَا إِلَهَ إِلَّا أَنْتَ (أَوْ لَا إِلَهَ غَيْرُكَ)"**
+>
+> “O Allah! For You is all praise. You are the Sustainer of the heavens and earth and those in them. For You is all praise. To You belongs the dominion of the heavens and the earth and those in them. For You is all praise. You are the Light of the heavens and the earth and whoever is in them. For You is all praise; You are the King of the heavens and the earth. For You is all praise; You are the Truth, Your promise is true, Your Word is true, the Meeting with You is true, Paradise is true, Hellfire is true, the Prophets are true, Muhammad is true, the Hour is true.  
+O Allah, to You I submit, in You I believe, on You I rely, to You I turn, with Your help I argue, to You I refer for judgement. So forgive me my past and future sins, what I have done secretly and what I have done openly. You are the One Who brings forward, and You are the One Who puts back. There is none to be worshipped except You (or: There is no god but You).”
+
+### 🤲🤲🤲🤲🤲🤲🤲
+
+
+# 🌙 The Night Duʿāʾ of the Prophet ﷺ Before Tahajjud  
+### From Ṣaḥīḥ al-Bukhārī 1120 — With Word-by-Word Explanation
+
+## 🟩 Background
+
+This profound duʿā’ was recited by the Prophet ﷺ **when he rose for Tahajjud (the night prayer)**. It appears in **Ṣaḥīḥ al-Bukhārī** and other major collections, narrated authentically by **ʿAbdullāh ibn ʿAbbās رضي الله عنه**.
+
+It is a model of divine praise (ḥamd), submission, and deep heartfelt devotion—and it affirms all the key pillars of Islamic ʿaqīdah (faith).
+
+## 🌟 Full Hadith Reference  
+**Source:** Ṣaḥīḥ al-Bukhārī, Book 21: Tahajjud, Hadith [1120](https://sunnah.com/bukhari:1120)  
+**Narrator:** Ibn ʿAbbās (رضي الله عنه)
+
+# 🕌 The Duʿāʾ, Line by Line
+
+### **1.**
+
+**اللَّهُمَّ لَكَ الْحَمْدُ، أَنْتَ قَيِّمُ السَّمَاوَاتِ وَالْأَرْضِ وَمَنْ فِيهِنَّ**
+
+**Transliteration:**  
+Allāhumma laka al-ḥamdu, anta qayyimus-samāwāti wal-arḍi waman fīhinna
+
+**Translation:**  
+O Allah, to You belongs all praise; You are the Maintainer of the heavens and the earth and whoever is in them.
+
+📚 **Vocabulary Table:**
+
+| Arabic              | Root      | Function               | Meaning                                             |
+|---------------------|-----------|------------------------|-----------------------------------------------------|
+| اللَّهُمَّ           | ا ل هـ     | Vocative particle       | O Allah! (calling upon Allah in duʿā)               |
+| لَكَ                | ل / ك      | Preposition + pronoun   | To You (belongs)                                    |
+| الْحَمْدُ            | ح م د      | Noun (definite)         | All praise                                           |
+| أَنْتَ              | أ ن ت      | Pronoun                 | You                                                 |
+| قَيِّمُ             | ق و م      | Intensive noun (ism)    | Sustainer, Maintainer, Controller                   |
+| السَّمَاوَاتِ        | س م و      | Noun (plural)           | The heavens                                         |
+| وَالْأَرْضِ          | أ ر ض      | Noun                    | The earth                                           |
+| وَمَنْ فِيهِنَّ       | م ن / ف ي / ـن | Pronoun phrase     | And whosoever is in them                            |
+
+### **2.**
+
+**وَلَكَ الْحَمْدُ، لَكَ مُلْكُ السَّمَاوَاتِ وَالْأَرْضِ وَمَنْ فِيهِنَّ**
+
+**Transliteration:**  
+Wa laka al-ḥamdu, laka mulku as-samāwāti wal-arḍi waman fīhinna
+
+**Translation:**  
+And to You belongs all praise; to You belongs the dominion of the heavens and the earth and whoever is in them.
+
+📚 **Vocabulary Table:**
+
+| Arabic         | Root    | Function               | Meaning                                      |
+|----------------|---------|------------------------|----------------------------------------------|
+| وَلَكَ          | و / ل / ك | Conjunction & pronoun  | And to You                                   |
+| الْحَمْدُ        | ح م د    | Noun                  | The praise                                   |
+| مُلْكُ          | م ل ك    | Noun (construct)        | Dominion, kingdom                            |
+| وَمَنْ فِيهِنَّ   | م ن / ف ي | Relative phrase         | And whoever is in them                        |
+
+### **3.**
+
+**وَلَكَ الْحَمْدُ، أَنْتَ نُورُ السَّمَاوَاتِ وَالْأَرْضِ وَمَنْ فِيهِنَّ**
+
+**Transliteration:**  
+Wa laka al-ḥamdu, anta nūru as-samāwāti wal-arḍi waman fīhinna
+
+**Translation:**  
+And to You belongs all praise; You are the Light of the heavens and the earth and whoever is in them.
+
+📚 **Vocabulary Table:**
+
+| Arabic          | Root  | Function | Meaning                |
+|-----------------|-------|----------|------------------------|
+| نُورُ            | ن و ر  | Noun     | Light / source of illumination |
+
+### **4.**
+
+**وَلَكَ الْحَمْدُ، أَنْتَ مَلِكُ السَّمَاوَاتِ وَالْأَرْضِ**
+
+**Transliteration:**  
+Wa laka al-ḥamdu, anta maliku as-samāwāti wal-arḍ
+
+**Translation:**  
+And to You belongs all praise; You are the King of the heavens and the earth.
+
+📚 **Vocabulary Table:**
+
+| Arabic     | Root  | Function | Meaning               |
+|------------|-------|----------|------------------------|
+| مَلِكُ       | م ل ك | Noun     | King, sovereign         |
+
+### **5.**
+
+**أَنْتَ الْحَقُّ، وَوَعْدُكَ الْحَقُّ، وَلِقَاؤُكَ حَقٌّ، وَقَوْلُكَ حَقٌّ، وَالْجَنَّةُ حَقٌّ، وَالنَّارُ حَقٌّ، وَالنَّبِيُّونَ حَقٌّ، وَمُحَمَّدٌ حَقٌّ، وَالسَّاعَةُ حَقٌّ**
+
+**Transliteration:**  
+Anta al-ḥaqq, wa waʿduka al-ḥaqq, wa liqāʾuka ḥaqq, wa qawluka ḥaqq,  
+wa al-jannatu ḥaqq, wa an-nāru ḥaqq, wa an-nabiyyūna ḥaqq,  
+wa Muḥammadun ḥaqq, wa as-sāʿatu ḥaqq
+
+**Translation:**  
+You are the Truth. Your promise is the truth. Meeting You is true.  
+Your word is true. Paradise is true, and Hellfire is true.  
+The prophets are true, Muhammad is true, and the Hour is surely true.
+
+📚 **Vocabulary Table:**
+
+| Arabic        | Root   | Meaning                 |
+|---------------|--------|-------------------------|
+| حَقٌّ          | ح ق ق   | True / Real / Certain   |
+| وَعْدُكَ        | و ع د   | Your promise            |
+| لِقَاؤُكَ       | ل ق ي   | Your meeting            |
+| قَوْلُكَ        | ق و ل   | Your statement / speech |
+| الْجَنَّةُ       | ج ن ن   | Paradise                |
+| النَّارُ         | ن و ر   | The Fire (Hell)         |
+| النَّبِيُّونَ     | ن ب أ   | The Prophets            |
+| السَّاعَةُ       | س و ع   | The Hour (Day of Judgment) |
+
+### **6.**
+
+**اللَّهُمَّ لَكَ أَسْلَمْتُ، وَبِكَ آمَنْتُ، وَعَلَيْكَ تَوَكَّلْتُ، وَإِلَيْكَ أَنَبْتُ، وَبِكَ خَاصَمْتُ، وَإِلَيْكَ حَاكَمْتُ**
+
+**Transliteration:**  
+Allāhumma laka aslamtu, wa bika āmantu, wa ʿalayka tawakkaltu,  
+wa ilayka anabtu, wa bika khāṣamtu, wa ilayka ḥākamtu
+
+**Translation:**  
+O Allah, to You I’ve submitted. In You I believe. On You I rely.  
+To You I turn in repentance. By You I argue. To You I resort for judgment.
+
+📚 **Vocabulary Table:**
+
+| Arabic       | Root   | Meaning                                     |
+|--------------|--------|---------------------------------------------|
+| أَسْلَمْتُ     | س ل م  | I have submitted (become Muslim)            |
+| آمَنْتُ       | أ م ن  | I have believed                             |
+| تَوَكَّلْتُ     | و ك ل  | I have relied                                |
+| أَنَبْتُ       | أ ن ب  | I have repented to You                       |
+| خَاصَمْتُ      | خ ص م  | I have argued / taken side by You           |
+| حَاكَمْتُ      | ح ك م  | I have judged / sought judgment with You     |
+
+### **7.**
+
+**فَاغْفِرْ لِي مَا قَدَّمْتُ وَمَا أَخَّرْتُ، وَمَا أَسْرَرْتُ وَمَا أَعْلَنتُ، أَنْتَ الْمُقَدِّمُ وَأَنْتَ الْمُؤَخِّرُ، لَا إِلَهَ إِلَّا أَنْتَ**
+
+**Transliteration:**  
+Fāghfir lī mā qaddamtu wa mā akhkhartu, wa mā asrartu wa mā aʿlantu,  
+anta al-muqaddim wa anta al-mu’akhkhir, lā ilāha illā anta
+
+**Translation:**  
+So forgive me for what I have done before and after,  
+what I have done secretly and openly.  
+You are the One who brings forward and the One who delays.  
+There is no god but You.
+
+📚 **Vocabulary Table:**
+
+| Arabic         | Root      | Meaning                                                 |
+|----------------|-----------|----------------------------------------------------------|
+| فَاغْفِرْ لِي     | غ ف ر       | So forgive me                                          |
+| قَدَّمْتُ         | ق د م       | What I’ve done early/passed                            |
+| أَخَّرْتُ         | أ خ ر       | What I’ve delayed / left for later                     |
+| أَسْرَرْتُ        | س ر ر       | What I’ve kept private                                 |
+| أَعْلَنتُ         | ع ل ن       | What I’ve made public                                  |
+| الْمُقَدِّمُ       | ق د م       | The One Who brings forward                            |
+| الْمُؤَخِّرُ       | أ خ ر       | The One Who delays                                    |
+| لَا إِلَهَ إِلَّا أَنْتَ | أ ل ه       | No deity worthy except You                             |
+
+## 🌟 Final Thoughts
+
+This duʿāʾ shows us the ideal model for:
+- **Praising Allah's majesty**
+- **Affirming beliefs of the unseen (`ʿaqīdah`)**
+- **Turning fully to tawḥīd and seeking forgiveness**
+
+It was the personal duʿāʾ of **the Prophet ﷺ before night prayer**, and it is transmitted to us through authentic hadith and preserved words.
+
+## 🔗 Direct Source
+
+- [Ṣaḥīḥ al-Bukhārī 1120 — sunnah.com/bukhari:1120](https://sunnah.com/bukhari:1120)
+
+
+
+### ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
+
+### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
+🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰
 
 
 ---
