@@ -1385,6 +1385,9 @@ https://www.youtube.com/watch?v=42DsXENKySo
 
 ### ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
 
+link to hadith;
+
+https://sunnah.com/bukhari:1120
 
 ## 🟩 **Full Hadith (with Reference)**
 **Narrated by Ibn Abbas (رضي الله عنهما):**
