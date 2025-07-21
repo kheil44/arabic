@@ -22,7 +22,28 @@ shapes;;
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
 
+---
+
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
+
+### 🏆
+https://sunnah.com/riyadussalihin:420
+
+https://islamqa.info/en/answers/330743/the-difference-between-mercy-that-is-created-and-mercy-that-is-a-divine-attribute
+
+...........
+...........
+...........
+
+The mercy of Allah is of two types:
+
+The first type is an attribute of the Essence of Allah, may He be exalted. This is not created and it is infinite, for He is the Most Gracious (ar-Rahman), the Most Merciful (ar-Rahim). {And your Lord is the Forgiving, full of mercy} [al-Kahf 18:58].
+
+The second type is created mercy, which is composed of one hundred parts of which Allah sent down one in this world, and He has kept the other ninety-nine parts by which He will show mercy to His slaves on the Day of Resurrection.
+
+Al-Bukhari (6469) narrated that Abu Hurayrah (may Allah be pleased with him) said: I heard the Messenger of Allah (blessings and peace of Allah be upon him) say: “Indeed Allah created mercy, on the day He created it, in one hundred parts. Then He kept ninety-nine parts of it with Him and sent one part for all of His creation. If the disbeliever knew of all that there is with Allah of mercy, he would never despair of Paradise, and if the believer knew of all that there is with Allah of punishment, he would never feel safe from the Fire.”
+
+Muslim (2725) narrated it as follows: “Indeed, Allah has one hundred parts of mercy, of which He sent one part to be shared between the jinn, humankind, the animals and the vermin. By virtue of it they show compassion to one another and show mercy to one another, and by virtue of it the wild animal shows compassion to its offspring. And Allah has kept behind ninety-nine parts of mercy, by which He will show mercy to His slaves on the Day of Resurrection.”
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
 
