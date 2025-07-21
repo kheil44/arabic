@@ -330,7 +330,9 @@ https://www.youtube.com/watch?v=QC28bKBlb5I&t=198s
 ### _31 Sharh Akhsar al-Mukhtasarat : Sujood as-Sahw_
 #### _Very good explaination, just this video alone should be sufficient [inshallah. Allah know best] ._
 https://www.youtube.com/watch?v=rGRBZLXAONs
-  
+
+Others;
+
 https://www.youtube.com/watch?v=zwWOK9HhBGI
 
 https://www.youtube.com/watch?v=WrRGDQBXux4
