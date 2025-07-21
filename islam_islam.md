@@ -23,6 +23,7 @@ https://www.youtube.com/shorts/ys0x5-3Bl8A
 https://youtu.be/v_wJp2Cc_nU?t=74
 
 =-------------------------------
+
 Here is the **full story**, Arabic duʿāʾ, English translation, and **all major references** regarding the incident involving **Ammar ibn Yasir** and the "short" prayer:
 
 ## **THE FULL INCIDENT**
