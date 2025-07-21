@@ -38,7 +38,7 @@ shapes;;
 ---
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
-## 💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰
+## 💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰
 
 **Tahiyyatul Wudu’**
 
@@ -52,7 +52,7 @@ The Excellence of Performing two Rak'ah of Voluntary Prayer after Ablution
 
 Commentary: The word "Tuhur'' is used for "Wudu", Ghusl and Tayammum because one gets the ritual purity by all these means and then one can perform Salat freely. It means that everytime during the day or night Bilal made Wudu'' or Ghusl, he would invariably perform some Nafl prayer. Some of the Ahadith explicitly say two Rak`ah. This act of his so much pleased Allah that he was blessed with the distinction which was witnessed by the Prophet (PBUH) himself. This Hadith proves the merit of performing two Rak`ah prayer after ablution. Some `Ulama' hold that this two Rak`ah prayer as well as Tahiyyat-ul-Masjid  are permissible even in hours when Salat is Makruh (undesirable), while others stick to the injunctions which regard Nafl Salat after Fajr and `Asr prayer undesirable.
 
-## 💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰
+## 💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰
 
 
 
