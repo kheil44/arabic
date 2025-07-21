@@ -11,12 +11,40 @@ shapes;;
 🕌 (Mosque) 🌙 (Crescent Moon) ⭐ (Star) 📖 (Open Book) 🙏 (Folded Hands) 🕋 (Kaaba) 🕊️ (Dove) 🌿 (Herb) 🕌🌙 (Mosque with Crescent Moon) 🧕 (Woman with Headscarf) 🧔 (Man with Beard) 🕌✨ (Mosque with Sparkles) 🌍 (Earth Globe) 🕯️ (Candle) 🧺 (Basket) 🌼 (Blossom) 🕌❤️ (Mosque with Heart)
 
  ☕   ⛐  ☢   ♻️ ⛤ ⛔ ♥ ★ ☆ ⛷ ☹ ☺ ☪ ☛ ☚ ☻ 💰💎 📈 🌟 🏆  🥇 💖 🎉 💝 🤠 🎩 🧢 ✦ ✦
+ 🎓 📚 🏫 🏛️ 📖 ✏️ 📝 📅 🧑‍🎓 👩‍🏫 👨‍🏫 🔬 🔭 🌍 💻 📊 📈 📉 🧠 🗣️
 🟰🟰
 • • • • 
 
 ### ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
 
 ---
+
+### Tafsir 📖 📖 📖 [ Famous One ]
+
+1- Tafsir by Al-Tabari
+2- Tafsir byIbn Kathir
+
+#### 🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫
+
+## Scholar
+
+Ibn Taymiyya 
+https://en.wikipedia.org/wiki/Ibn_Taymiyya
+
+✦✦✦✦✦✦✦✦ new  ✦✦✦✦✦✦✦✦
+
+
+Abdul-Rahman al-Sa'di  b.1889  [📖 📖 📖 tafsir ++++ ]
+https://en.wikipedia.org/wiki/Abdul-Rahman_al-Sa%27di
+
+Ibn Baz b.21 November 1912
+https://en.wikipedia.org/wiki/Ibn_Baz
+
+Al-Albani b.1914
+https://en.wikipedia.org/wiki/Al-Albani
+
+al-Uthaymin  b.	(27th of Ramadan) March 9, 1929
+https://en.wikipedia.org/wiki/Al-Uthaymin
 
 
 ---
