@@ -21,8 +21,8 @@ shapes;;
 
 ### Tafsir 📖 📖 📖 [ Famous One ]
 
-1- Tafsir by Al-Tabari
-2- Tafsir byIbn Kathir
+- 📖 Tafsir by Al-Tabari
+- 📖 Tafsir byIbn Kathir
 
 #### 🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫
 
