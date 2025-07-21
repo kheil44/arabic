@@ -7,37 +7,12 @@
 
 ### ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
 shapes;;
-# ☕   ⛐  ☢   ♻️ ⛤ ⛔ ♥ ★ ☆ ⛷ ☹ ☺ ☪ ☛ ☚ ☻ 💰💎 📈 🌟 🏆  🥇 💖 🎉 💝 🤠 🎩 🧢 ✦ ✦
+
+🕌 (Mosque) 🌙 (Crescent Moon) ⭐ (Star) 📖 (Open Book) 🙏 (Folded Hands) 🕋 (Kaaba) 🕊️ (Dove) 🌿 (Herb) 🕌🌙 (Mosque with Crescent Moon) 🧕 (Woman with Headscarf) 🧔 (Man with Beard) 🕌✨ (Mosque with Sparkles) 🌍 (Earth Globe) 🕯️ (Candle) 🧺 (Basket) 🌼 (Blossom) 🕌❤️ (Mosque with Heart)
+
+ ☕   ⛐  ☢   ♻️ ⛤ ⛔ ♥ ★ ☆ ⛷ ☹ ☺ ☪ ☛ ☚ ☻ 💰💎 📈 🌟 🏆  🥇 💖 🎉 💝 🤠 🎩 🧢 ✦ ✦
 🟰🟰
 • • • • 
-
-### Emojis
-
-- 🕌 (Mosque)
-- 🌙 (Crescent Moon)
-- ⭐ (Star)
-- 📖 (Open Book)
-- 🙏 (Folded Hands)
-- 🕋 (Kaaba)
-- 🕊️ (Dove)
-- 🌿 (Herb)
-- 🕌🌙 (Mosque with Crescent Moon)
-- 🧕 (Woman with Headscarf)
-- 🧔 (Man with Beard)
-- 🕌✨ (Mosque with Sparkles)
-- 🌍 (Earth Globe)
-- 🕯️ (Candle)
-- 🧺 (Basket)
-- 🌼 (Blossom)
-- 🕌❤️ (Mosque with Heart)
-
-### Additional Symbols
-
-- **Allah**: الله
-- **Islam**: الإسلام
-- **Peace**: سلام
-
-Feel free to combine these elements or modify them to create your own representations! If you need more specific types of ASCII art or emojis, let me know!
 
 ### ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
 
