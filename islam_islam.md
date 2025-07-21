@@ -18,6 +18,9 @@ https://www.youtube.com/watch?v=QC28bKBlb5I&t=198s
 ### How Does One Perform Sajda al-Sahū
 https://www.youtube.com/watch?v=zwWOK9HhBGI
 
+https://www.youtube.com/watch?v=WrRGDQBXux4
+
+
 #### wrong way [hanafi];
 
 https://www.youtube.com/watch?v=FWWuthoU22c
