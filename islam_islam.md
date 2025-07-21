@@ -14,7 +14,6 @@
 
 #  ========  N a m a z  ========
 https://www.youtube.com/watch?v=QC28bKBlb5I&t=198s
-#
 ### How Does One Perform Sajda al-Sahū [ or Sujood As-Sahw ]
 https://www.youtube.com/watch?v=zwWOK9HhBGI
 
