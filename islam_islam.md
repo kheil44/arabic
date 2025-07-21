@@ -14,6 +14,9 @@
 
 #  ========  N a m a z  ========
 https://www.youtube.com/watch?v=QC28bKBlb5I&t=198s
+#
+### How Does One Perform Sajda al-Sahū
+https://www.youtube.com/watch?v=zwWOK9HhBGI
 
 #### Short prayer  [couldnt find any hadith but ;]
 https://www.youtube.com/shorts/ys0x5-3Bl8A
