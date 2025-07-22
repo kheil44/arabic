@@ -1620,7 +1620,99 @@ Here’s the revised chart with the Arabic script and relevant emojis for a more
 
 This format provides a clear understanding of the phrases along with relevant emojis to enhance the presentation!
 
-🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
+🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰 
+
+Yes, there are multiple well-sourced, classical and contemporary references confirming the report: **Imam Mālik only began issuing fatwā (legal rulings) and teaching publicly after receiving explicit approval from seventy of his teachers or senior scholars of Madinah.**
+
+## 🟩 The Quote and Its Wording
+
+The traditional report is generally formulated as:
+
+**"Imam Mālik said: 'I did not start to give fatwā or lecture in fiqh and hadith until I was declared eligible to do so by 70 teachers of hadith and fiqh.'"**  
+— sometimes worded as “I did not issue fatwa unless 70 scholars had permitted me…”
+
+## 🟩 Primary and Secondary Sources
+
+### 1. **Arab News (Respected Contemporary Source)**
+> “He mastered the science of Hadith at the age of 17 and began to issue Fatwa after 70 scholars confirmed his eligibility for the purpose.”  
+([Arab News](https://www.arabnews.com/news/456413))  
+> “Imam Malik said: ‘I did not start to give lecture in Fiqh and Hadith until I was declared eligible to do so by 70 teachers of Hadith and Fiqh.’”  
+([Arab News, feature article](https://www.arabnews.com/%5Btermalias-raw%5D/imam-malik-star-among-scholars))【2】
+
+### 2. **Imam Mālik’s Own Words (Attributed Quote)**
+> “He was once quoted as saying:  
+‘I did not give fatwā until seventy scholars testified that I was worthy to do so.’”  
+And: “He said: 'I showed my book to 70 scholars of Madinah and every single one of them approved it, so I named it 'Muwatta' (The Approved One).'”【2】
+
+### 3. **Islamic Biographical & Academic Texts**
+- “Imam Malik was then honored by 70 great scholars at the age of 17, therefore he was permitted to teach and give fatwas in the Mosque of Nabawi at the beginning.”  
+([Studocu](https://www.studocu.com/my/document/international-islamic-college/diploma-in-law/school-of-law-in-islam-mazhab-maliki/16140460))【5】
+- “Imam Malik received recognition from 70 scholars of his time, and was allowed to teach at Masjid Nabawi and issue fatwa at the age of 17...”  
+([Masjid Maarof](https://masjidmaarof.sg/imam-malik-bin-anas/))【3】
+
+### 4. **Early Islamic Biography (Tabaqat/Manaqib)**
+
+Many works of *Tabaqat* (biographies) and Maliki manāqib works quote these lines—often as:  
+- “ما أفتيت حتى شهد لي سبعون أني أهل لذلك”
+  - "I did not give fatwa until seventy [scholars] bore witness I was fit for that."
+
+### 5. **Other References**
+- “He never gave fatwa (legal verdicts) until he was given permission by 70 scholars.”  
+([Mukhtas](https://mukhtas.wordpress.com/2012/04/29/imaam-maalik/))【4】
+- “Imam Malik mastered the science of Hadith at the age of 17 and began to issue Fatwa after 70 scholars of Madina confirmed his eligibility.”  
+([Al-Madina Studio](https://www.almadina.org/studio/videos/muslim-superheroes-ep-9-malik-bin-anas))【9】
+- "After completing his education, with the approval and guidance of his teachers, he began teaching hadith."  
+([al-Hakam](https://www.alhakam.org/hazrat-imam-malik/))【8】
+
+## 🟩 Summary Table of Main Points
+
+| Source/Scholar                  | Wording of Report                                                  |
+|---------------------------------|--------------------------------------------------------------------|
+| **Imam Malik (attributed quote)**        | “I did not give fatwa until 70 teachers declared me able.”        |
+| **Arab News/Contemporary**      | “Began to issue Fatwa after 70 scholars confirmed eligibility.”     |
+| **Masjid Maarof / Studocu / Mukhtas** | “Allowed to teach/give fatwa after 70 scholars' approval.”       |
+
+## 🟩 Additional Context
+
+- The **“70 teachers”** is reported widely in Islamic scholarship and biographies (see works such as "Tarikh Madinat Dimashq," "Siyar Aʿlam an-Nubalāʾ" by al-Dhahabi, and others).
+- This was both **for permission to issue fatwa** and for the compilation/approval of his book **al-Muwaṭṭaʼ**, which he submitted to over 70 scholars for approval before making public.
+- **What does it mean?** This demonstrates the strict scholarly tradition of requiring broad recognition before a scholar could independently issue religious verdicts.
+
+## 🟩 Arabic Original (attributed):
+
+ما أفتيت حتى شهد لي سبعون أني أهل لذلك
+
+**Transliteration:**  
+Mā aftaytu ḥattā shahida lī sabʿūna annī ahlun li-dhālik.
+
+**Translation:**  
+“I did not give fatwa until seventy (scholars) bore witness/testified that I was qualified for that.”
+
+## 🟩 References (Direct Links)
+
+- [Arab News "Imam Malik — A great scholar of Hadith"](https://www.arabnews.com/news/456413)
+- [Arab News "Imam Malik: A star among scholars"](https://www.arabnews.com/%5Btermalias-raw%5D/imam-malik-star-among-scholars)
+- [Masjid Maarof biography](https://masjidmaarof.sg/imam-malik-bin-anas/)
+- [Studocu course note](https://www.studocu.com/my/document/international-islamic-college/diploma-in-law/school-of-law-in-islam-mazhab-maliki/16140460)
+- [Mukhtas biography](https://mukhtas.wordpress.com/2012/04/29/imaam-maalik/)
+- [Al-Madina video short bio](https://www.almadina.org/studio/videos/muslim-superheroes-ep-9-malik-bin-anas)
+- [Al-Hakam summary](https://www.alhakam.org/hazrat-imam-malik/)
+
+**In summary:** The claim that Imam Mālik did not give fatwa without the permission or recognition of seventy of his teachers is reported in wide circles of Islamic tradition, widely cited in biographical and scholarly works, and tied to both his issuance of fatwa and the approval of his magnum opus, al-Muwaṭṭaʼ. The generally quoted original Arabic is:  
+**ما أفتيت حتى شهد لي سبعون أني أهل لذلك**
+
+If you need references from major Arabic biographical works (e.g., Siyar Aʿlām an-Nubalā'), let me know!
+
+[1] https://www.arabnews.com/news/456413
+[2] https://www.arabnews.com/%5Btermalias-raw%5D/imam-malik-star-among-scholars
+[3] https://masjidmaarof.sg/imam-malik-bin-anas/
+[4] https://mukhtas.wordpress.com/2012/04/29/imaam-maalik/
+[5] https://www.studocu.com/my/document/international-islamic-college/diploma-in-law/school-of-law-in-islam-mazhab-maliki/16140460
+[6] https://cdnc.heyzine.com/flip-book/pdf/fa9c59368cf225b63091137f28bb1566dc94faa6-1.pdf
+[7] https://www.youtube.com/watch?v=TDKGs3Af078
+[8] https://www.alhakam.org/hazrat-imam-malik/
+[9] https://www.almadina.org/studio/videos/muslim-superheroes-ep-9-malik-bin-anas
+[10] https://isb.org.uk/wp-content/uploads/2024/01/Imam-Malik-and-the-Sunnah.pdf
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
 
