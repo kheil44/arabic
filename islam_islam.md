@@ -8,6 +8,7 @@ Index
 - [Namaz](#Namaz-4-Rakat)
 - [Duas for Wudu](#Wudu)
 - [Translations of Quran](#Translations-of-Quran)
+- 
 
 ### ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
 shapes;;
