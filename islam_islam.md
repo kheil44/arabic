@@ -5,7 +5,7 @@
 
 ---
 Index
-- [Namaz](#Namaz 4 Rakat)
+- [Namaz](#Namaz-4-Rakat)
 
 ### ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
 shapes;;
