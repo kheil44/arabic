@@ -7,6 +7,7 @@
 Index
 - [Namaz](#Namaz-4-Rakat)
 - [Duas for Wudu](#Wudu)
+- [Translations of Quran](#Translations-of-Quran)
 
 ### ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
 shapes;;
@@ -1867,9 +1868,84 @@ Let me know and I’ll be happy to provide it!
 
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
+
 ---
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
+
+---
+
+### Translations of Quran
+
+### _Recommended by by Sheikh Navaid Aziz_
+
+## 🟢 1. **Saheeh International**
+
+### 🔹 Full Name:
+**"The Noble Qur'an: Translation of the Meanings of the Noble Qur'an in the English Language"**  
+by **Saheeh International**
+
+### 🔹 About Saheeh International:
+- **Saheeh International** is a team of **three American Muslim women converts** who were living in Saudi Arabia.  
+- Their names are:
+  - **Umm Muhammad (Amatullah Bantley)**  
+  - **Mary Kennedy**  
+  - **Amatullah al-Muqatari**  
+- Their translation was **first published in 1997** under the supervision of **Dar Abul-Qasim Publishing** in Jeddah, Saudi Arabia.
+- It remains one of the most **widely used** and **concise modern translations** of the Qur’an.
+
+### 🔹 Characteristics:
+- Emphasis on **clarity and simplicity** in modern English.
+- **Avoids archaic language** ("thee", "thou", etc.).
+- Translations are **aligned with classical Sunni interpretations** (e.g., Ibn Kathīr).
+- It is widely used for daʿwah and Islamic education.
+
+### 🔹 Popularity:
+- Used by **Islamic websites** like [Quran.com](https://quran.com), [IslamQA](https://islamqa.info), and education platforms.
+- Recommended for beginners and general readers.
+
+## 🟢 2. **Abdul Haleem Translation**
+
+### 🔹 Full Name:
+**"The Qur’an: A New Translation"**  
+by **M. A. S. Abdel Haleem**
+
+### 🔹 About the Translator:
+- **M. A. S. Abdel Haleem** is a **professor of Islamic Studies** at **SOAS, University of London**.
+- Originally from Egypt; a native Arabic speaker.
+- His translation was **first published in 2004** by **Oxford University Press**.
+
+### 🔹 Characteristics:
+- Uses **literary and academic English**—very smooth and readable.
+- Aimed at **general readers** as well as students of religion.
+- Includes **thoughtful footnotes** and context-based explanations.
+- Sometimes chooses **interpretive paraphrasing** over literal translation.
+
+### 🔹 Reception:
+- Highly regarded in academic circles.
+- Used in universities and classroom settings across the Western world.
+
+## 🔁 Comparison Chart: Saheeh International vs. M.A.S. Abdel Haleem
+
+| Feature                     | Saheeh International                         | M.A.S. Abdel Haleem                         |
+|----------------------------|----------------------------------------------|---------------------------------------------|
+| Publisher                  | Dar Abul-Qasim (Saudi Arabia)               | Oxford University Press (UK)               |
+| Language Style             | Clear, modern English (literal leaning)     | Smooth, academic English (interpretative)  |
+| Authorship                 | 3 Muslim women translators                   | Professor M.A.S. Abdel Haleem (Egypt)      |
+| Religious Perspective      | Traditional Sunni interpretation             | Balanced academic tone; non-sectarian       |
+| First Published            | 1997                                         | 2004                                        |
+| Readability Level          | Muslims, daʿwah, new readers                 | Academic readers, seekers, scholars         |
+| Footnotes/Annotations      | Minimal                                      | Moderate footnotes explaining verses        |
+
+## ✅ Recommendation by Usage:
+
+| User Type                  | Recommended Translation                   |
+|---------------------------|-------------------------------------------|
+| New Muslims / general readers | ✅ **Saheeh International**                  |
+| Academic study / critical reading  | ✅ **Abdel Haleem**                            |
+| Deep tafsir reference     | Use both with **Tafsir Ibn Kathīr**, Arabic sources |
+
+Feel free to ask if you want **side-by-side verse comparisons** between these translations for a particular āyah.
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
 
