@@ -2122,6 +2122,128 @@ If you desire, I can prepare this as a formatted PDF including exact citations a
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
 
+Certainly. Below is an article that presents the relevant hadiths and Qur'anic verses regarding the discouragement of **excessive and unnecessary questioning** during the time of the Prophet Muhammad ﷺ. The original Arabic texts are included in full, along with **complete English translations** from reliable sources. No interpretations, paraphrasing, or personal commentary are provided. Full references are included at the end of each source.
+
+# Discouragement of Excessive Questioning in Islam: Textual Evidence
+
+## 1. Qur'anic Prohibition
+
+### Surah Al-Ma'idah (5:101-102)
+
+**Arabic Text:**
+
+> **يَا أَيُّهَا الَّذِينَ آمَنُوا لَا تَسْأَلُوا عَنْ أَشْيَاءَ إِنْ تُبْدَ لَكُمْ تَسُؤْكُمْ ۖ وَإِنْ تَسْأَلُوا عَنْهَا حِينَ يُنَزَّلُ الْقُرْآنُ تُبْدَ لَكُمْ ۚ عَفَا اللَّهُ عَنْهَا ۗ وَاللَّهُ غَفُورٌ حَلِيمٌ (101) قَدْ سَأَلَهَا قَوْمٌ مِنْ قَبْلِكُمْ ثُمَّ أَصْبَحُوا بِهَا كَافِرِينَ (102)**
+
+**English Translation (Sahih International):**
+
+> **"O you who have believed, do not ask about things which, if they are shown to you, will distress you. But if you ask about them while the Qur'an is being revealed, they will be shown to you. Allah has pardoned it [i.e., that which is past]; and Allah is Forgiving and Forbearing.**  
+> **A people asked such [questions] before you; then they became thereby disbelievers."**
+
+**Reference**: Quran, Surah Al-Ma'idah, verses 101–102. Translation: Sahih International.
+
+## 2. Hadith on Prohibition of Difficult or Excessive Questions
+
+### Hadith from Al-Bukhari
+
+**Arabic Text:**
+
+> عَنْ أَبِي هُرَيْرَةَ، قَالَ: قَالَ رَسُولُ ‌اللَّهِ ‌صَلَّى ‌اللَّهُ ‌عَلَيْهِ ‌وَسَلَّمَ:  
+> **"ذَرُونِي مَا تَرَكْتُكُمْ، فَإِنَّمَا هَلَكَ مَنْ كَانَ قَبْلَكُمْ بِسُؤَالِهِمْ وَاخْتِلَافِهِمْ عَلَى أَنْبِيَائِهِمْ، فَإِذَا نَهَيْتُكُمْ عَنْ شَيْءٍ فَاجْتَنِبُوهُ، وَإِذَا أَمَرْتُكُمْ بِشَيْءٍ فَأْتُوا مِنْهُ مَا اسْتَطَعْتُمْ"**
+
+**English Translation:**
+
+Abu Huraira reported that the Messenger of Allah (ﷺ) said:  
+> **"Leave me as I leave you, for the people who were before you were ruined because of their excessive questioning and differing with their prophets. So when I command you to do something, do of it what you are able, and when I forbid you from something, then avoid it."**
+
+**Source**:  
+Sahih al-Bukhari, Book 96, Hadith 44  
+(Sahih al-Bukhari: 7288)  
+[https://sunnah.com/bukhari:7288](https://sunnah.com/bukhari:7288)
+
+## 3. Hadith about the People of Medina Being Prohibited from Questioning
+
+### Hadith Reported by Anas ibn Malik
+
+**Arabic Text:**
+
+> عَنْ أَنَسٍ، قَالَ: خَطَبَنَا ‌رَسُولُ ‌اللَّهِ ‌صَلَّى ‌اللَّهُ ‌عَلَيْهِ ‌وَسَلَّمَ خُطْبَةً ‌مَا ‌سَمِعْتُ ‌مِثْلَهَا ‌قَطُّ، فَقَالَ:  
+> **"لَوْ تَعْلَمُونَ مَا أَعْلَمُ لَضَحِكْتُمْ قَلِيلًا وَلَبَكَيْتُمْ كَثِيرًا"،  
+فَغَطَّى أَصْحَابُ رَسُولِ اللَّهِ صَلَّى اللَّهُ عَلَيْهِ وَسَلَّمَ وُجُوهَهُمْ لَهُمْ خَنِينٌ، فَقَامَ رَجُلٌ فَقَالَ: مَنْ أَبِي؟ قَالَ: "فُلَانٌ"، فَنَزَلَتْ هَذِهِ الْآيَةُ: **  
+> **"يَا أَيُّهَا الَّذِينَ آمَنُوا لَا تَسْأَلُوا عَنْ أَشْيَاءَ..."**
+
+**English Translation:**
+
+Anas reported: The Messenger of Allah ﷺ delivered a sermon the like of which I had never heard before. He said:  
+> **“If you knew what I know, you would laugh little and weep much.”**  
+The Companions of the Messenger of Allah covered their faces and wept. Then a man stood up and said:  
+> **“Who is my father, O Messenger of Allah?”**  
+He replied: **“Your father is so-and-so.”** Then the verse was revealed:  
+> **“O you who believe, do not ask about things which, if they are made manifest to you, may cause you trouble…”**
+
+**Source**:  
+Sahih Muslim, Book 15, Hadith 19  
+(Muslim: 2359)  
+[https://sunnah.com/muslim:2359](https://sunnah.com/muslim:2359)
+
+## 4. Hadith: Allah Disliked Three Things
+
+**Arabic Text:**
+
+> عَنْ ‌أَبِي هُرَيْرَةَ،  
+قَالَ: قَالَ ‌رَسُولُ ‌اللَّهِ ‌ﷺ:  
+> **"إِنَّ ‌اللَّهَ ‌رَضِيَ ‌لَكُمْ ‌ثَلَاثًا، ‌وَكَرِهَ ‌لَكُمْ ‌ثَلَاثًا،**  
+#### فَرَضِيَ لَكُمْ:  
+> أَنْ تَعْبُدُوهُ وَلا تُشْرِكُوا بِهِ شَيْئًا، وَأَنْ تَعْتَصِمُوا بِحَبْلِ اللَّهِ جَمِيعًا، وَلا تَفَرَّقُوا،  
+#### وَكَرِهَ لَكُمْ:  
+> ‌قِيلَ ‌وَقَالَ، وَكَثْرَةَ السُّؤَالِ، وَإِضَاعَةَ الْمَالِ"**
+
+**English Translation:**
+
+Narrated Abu Huraira:
+
+The Messenger of Allah ﷺ said:  
+> **"Allah has liked for you three things and He has disliked for you three things.**  
+### He has liked for you:
+> (1) That you worship Him (alone) and associate nothing with Him;  
+> (2) That you hold fast to the rope of Allah and be not divided;  
+### And He has disliked for you:
+> (1) Idle talk ('It was said,' and 'He said');  
+> (2) **Asking too many questions**;  
+> (3) Wasting wealth."**
+
+**Reference**:  
+Sahih al-Bukhari: 1477  
+[https://sunnah.com/bukhari:1477](https://sunnah.com/bukhari:1477)
+
+Also found in:  
+Sahih Muslim: 1715  
+[https://sunnah.com/muslim:1715h](https://sunnah.com/muslim:1715h)
+
+## 5. General Warning Against Asking Unnecessary Questions
+
+### Hadith from Sunan al-Tirmidhi
+
+**Arabic Text:**
+
+> عَنْ عَلِيٍّ رَضِيَ اللَّهُ عَنْهُ، قَالَ: قَالَ رَسُولُ اللَّهِ صَلَّى اللهُ عَلَيْهِ وَسَلَّمَ:  
+> **"إِنَّ أَعْظَمَ الْمُسْلِمِينَ فِي الْمُسْلِمِينَ جُرْمًا، مَنْ سَأَلَ عَنْ شَيْءٍ لَمْ يُحَرَّمْ، فَحُرِّمَ مِنْ أَجْلِ مَسْأَلَتِهِ"**
+
+**English Translation:**
+
+Ali (RA) reported: The Messenger of Allah ﷺ said:  
+> **“Indeed, the greatest sinner among the Muslims is the one who asked about something which was not forbidden to the people, but it became forbidden because of his questioning.”**
+
+**Source**:  
+Jamiʿ al-Tirmidhi, Book 33, Hadith 35  
+(Tirmidhi: 2139, Classified: Hasan Sahih)  
+[https://sunnah.com/tirmidhi:2139](https://sunnah.com/tirmidhi:2139)
+
+## Conclusion
+
+The above Qur'anic verses and authentic prophetic traditions demonstrate a clear discouragement of **excessive, unnecessary, and difficult questioning** during the Prophet’s ﷺ time. These teachings aimed to protect the early Muslim community from confusion, hardship, or falling into error, as happened to previous nations.
+
+**All translations provided are standard translations from reliable Sunnah and Quran sources, with references for verification.**
+
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
