@@ -547,35 +547,53 @@ Repeat Duʿās as above.
 ## 🟩 STEP 9: **REPEAT FOR RAḲʿAH TWO**  
 Repeat Steps 2 through 8.
 
-## 🟩 STEP 10: **Tashahhud – التَّشَهُّدُ (Final Sitting)**
+## 🟩 STEP 10: **Tashahhud (Final Sitting) – التَّشَهُّدُ**
 
-**التَّحِيَّاتُ لِلَّهِ، وَالصَّلَوَاتُ وَالطَّيِّبَاتُ،  
-السَّلَامُ عَلَيْكَ أَيُّهَا النَّبِيُّ وَرَحْمَةُ اللَّهِ وَبَرَكَاتُهُ،  
-السَّلَامُ عَلَيْنَا وَعَلَىٰ عِبَادِ اللَّهِ الصَّالِحِينَ،  
-أَشْهَدُ أَنْ لَا إِلٰهَ إِلَّا اللَّهُ،  
-وَأَشْهَدُ أَنَّ مُحَمَّدًا عَبْدُهُ وَرَسُولُهُ**
+> While sitting (after the 2nd sujood of the 2nd rak‘ah), recite the following:
 
-*All greetings, prayers, and pure words are for Allah...*
+### 🔹 **Arabic:**
 
-### 📘 Vocabulary & Notes:
-| Arabic                  | Meaning                            | Notes |
-|--------------------------|-------------------------------------|-------|
-| **التَّحِيَّاتُ**           | Greetings                          | Includes all verbal forms of respect.  
-| **اللَّهِ**                | To Allah                           | Genitive case.  
-| **الصَّلَوَاتُ**           | Prayers                            | From **ṣalāh**, includes both duʿāʾ and formal salah.  
-| **الطَّيِّبَاتُ**           | Good/pure words/actions            | Root: **ṭ-y-b** (pure, pleasant).  
-| **السَّلَامُ عَلَيْكَ**     | Peace be upon you                  | Addressed to Prophet ﷺ.  
-| **أَيُّهَا النَّبِيُّ**     | O noble Prophet!                   | Vocative case using “yā ayyuhā...”  
-| **وَرَحْمَةُ اللَّهِ**      | and the mercy of Allah             | Typical in Islamic greetings.  
-| **وَبَرَكَاتُهُ**          | and His blessings                  | From root **b-r-k** (increase, benefit)  
-| **السَّلَامُ عَلَيْنَا**    | Peace be upon us                   | Including other worshippers.  
-| **عِبَادِ اللَّهِ**         | Servants of Allah                  | From **ʿabd**—servant, plural genitive.  
-| **الصَّالِحِينَ**          | The righteous                      | From **ṣ-l-ḥ** — one who does good deeds and is upright.  
-| **أَشْهَدُ**               | I bear witness                     | Verb of testimony: **form I**  
-| **لَا إِلٰهَ إِلَّا اللَّهُ** | None worthy of worship but Allah  | Tawḥīd — the foundation of Islam.  
-| **مُحَمَّدًا عَبْدُهُ...**   | Muhammad is His servant…          | “ʿabd” = slave/worshipper; “rasul” = messenger.
+**التَّحِيَّاتُ لِلَّهِ، وَالصَّلَوَاتُ وَالطَّيِّبَاتُ،**  
+**السَّلَامُ عَلَيْكَ أَيُّهَا النَّبِيُّ، وَرَحْمَةُ اللَّهِ وَبَرَكَاتُهُ،**  
+**السَّلَامُ عَلَيْنَا وَعَلَىٰ عِبَادِ اللَّهِ الصَّالِحِينَ،**  
+**أَشْهَدُ أَنْ لَا إِلَٰهَ إِلَّا اللَّهُ،**  
+**وَأَشْهَدُ أَنَّ مُحَمَّدًا عَبْدُهُ وَرَسُولُهُ**
 
-## 🟩 STEP 11: **Ṣalawāt – Sending prayers on the Prophet ﷺ**
+### 🔹 **English Translation:**
+
+**“All greetings, prayers, and pure words are for Allah.  
+Peace be upon you, O Prophet, and the mercy of Allah and His blessings.  
+Peace be upon us and upon the righteous servants of Allah.  
+I bear witness that there is no god except Allah,  
+and I bear witness that Muhammad is His servant and messenger.”**
+
+### 🔍 **Vocabulary and Linguistic Notes:**
+
+| **Arabic**                    | **Meaning**                                   | **Notes**                                                                 |
+|------------------------------|-----------------------------------------------|--------------------------------------------------------------------------|
+| **التَّحِيَّاتُ**              | All greetings / expressions of respect        | Plural of **تَحيّة**; includes verbal salutations, honorifics, etc.     |
+| **لِلَّهِ**                   | Belong to Allah                              | **لِـ** (for/to) + **اللَّهِ** (Allah) – genitive (possessive) structure |
+| **وَالصَّلَوَاتُ**             | And the prayers                              | Plural of **صلاة** – includes all forms of worship/devotion              |
+| **وَالطَّيِّبَاتُ**            | And the good/pure words/deeds                | From **ط-ي-ب** (pure, good, wholesome) – covers speech and actions        |
+| **السَّلَامُ عَلَيْكَ**        | Peace be upon you                            | Standard duʿāʾ; nominative case used in greetings                        |
+| **أَيُّهَا النَّبِيُّ**        | O noble Prophet                              | **أَيُّهَا** = vocative prefix for attention; **النَّبِيّ** = the Prophet |
+| **وَرَحْمَةُ اللَّهِ**         | and the mercy of Allah                       | **رَحمة** = mercy; a key divine attribute                                |
+| **وَبَرَكَاتُهُ**             | and His blessings                            | Plural of **بركة** (blessing); **ـهُ** = His                             |
+| **السَّلَامُ عَلَيْنَا**       | Peace be upon us                             | Praying for oneself and fellow believers present                        |
+| **وَعَلَىٰ عِبَادِ اللَّهِ**    | and upon the servants of Allah               | **عِبَاد** = servants/slaves, plural of **عبد**                          |
+| **الصَّالِحِينَ**             | The righteous                                | From **ص-ل-ح** – upright, pious people                                   |
+| **أَشْهَدُ**                  | I bear witness                               | Verb, form I, first person singular – legal/formal testimony              |
+| **أَنْ**                      | That (connector in verbal phrases)           | Introduces a clause                                                    |
+| **لَا إِلَٰهَ إِلَّا اللَّهُ**   | No deity except Allah                        | Absolute monotheism (Tawḥīd)                                            |
+| **أَنَّ مُحَمَّدًا**           | That Muhammad                                | Accusative form due to **أَنَّ**                                         |
+| **عَبْدُهُ**                  | His servant                                  | **عبد** (slave, servant) + **هُ** (His)                                 |
+| **وَرَسُولُهُ**               | And His messenger                            | **رَسُول** = messenger/envoy; **هُ** = His                              |
+
+## 🟩 STEP 11: **Ṣalawāt (Prayers upon the Prophet ﷺ) – الصَّلَاةُ عَلَى النَّبِيِّ**
+
+> Immediately after Tashahhud, recite Ṣalāh upon the Prophet ﷺ and his family:
+
+### 🔹 **Arabic:**
 
 **اللَّهُمَّ صَلِّ عَلَىٰ مُحَمَّدٍ وَعَلَىٰ آلِ مُحَمَّدٍ،  
 كَمَا صَلَّيْتَ عَلَىٰ إِبْرَاهِيمَ وَعَلَىٰ آلِ إِبْرَاهِيمَ،  
@@ -583,6 +601,34 @@ Repeat Steps 2 through 8.
 اللَّهُمَّ بَارِكْ عَلَىٰ مُحَمَّدٍ وَعَلَىٰ آلِ مُحَمَّدٍ،  
 كَمَا بَارَكْتَ عَلَىٰ إِبْرَاهِيمَ وَعَلَىٰ آلِ إِبْرَاهِيمَ،  
 إِنَّكَ حَمِيدٌ مَجِيدٌ**
+
+### 🔹 **English Translation:**
+
+**“O Allah, send blessings upon Muhammad and upon the family of Muhammad,  
+just as You sent blessings upon Ibrahim and upon the family of Ibrahim.  
+Indeed, You are Praiseworthy, Glorious.  
+O Allah, bless Muhammad and the family of Muhammad,  
+just as You blessed Ibrahim and the family of Ibrahim.  
+Indeed, You are Praiseworthy, Glorious.”**
+
+### 🔍 **Vocabulary and Linguistic Notes:**
+
+| **Arabic**                  | **Meaning**                            | **Notes**                                                                 |
+|-----------------------------|----------------------------------------|--------------------------------------------------------------------------|
+| **اللَّهُمَّ**               | O Allah                                | Vocative of **يَا اللَّهُ**; invocation term in duʿāʾ                    |
+| **صَلِّ**                   | Send prayers/blessings (command)       | From **ص-ل-و** (to pray); form II verb here (intensive action)          |
+| **عَلَىٰ مُحَمَّدٍ**        | Upon Muhammad                          | **عَلَىٰ** shows direction; prepositional phrase                        |
+| **وَعَلَىٰ آلِ مُحَمَّدٍ**   | and upon the family of Muhammad        | **آل** = family/household; **مُحَمَّد** in genitive after “ʿāli”         |
+| **كَمَا**                   | Just as                                 | Comparative conjunction                                                 |
+| **صَلَّيْتَ**                | You sent prayers                       | Form II, past tense, 2nd person singular                                 |
+| **عَلَىٰ إِبْرَاهِيمَ**      | Upon Ibrahim (Abraham)                 | Proper noun in accusative (object) case                                 |
+| **وَعَلَىٰ آلِ إِبْرَاهِيمَ**| And upon the family of Ibrahim         | Mirror structure for symmetry in duʿāʾ                                   |
+| **إِنَّكَ**                 | Indeed, You                             | Emphatic particle **إِنَّ** + pronoun **-كَ** (You)                      |
+| **حَمِيدٌ**                 | Praiseworthy                           | Root: **ح-م-د** – deserving of all praise                               |
+| **مَجِيدٌ**                 | Glorious                               | Root: **م-ج-د** – exalted in honor and nobility                         |
+| **بَارِكْ**                 | Bless (command form)                   | From root **ب-ر-ك** – to grant abundance or increase                     |
+
+
 
 # ✦ STEP : Final Supplication before Salām (Duʿāʾ)
 # ✦ CHECK footnote of this section for numerous Alternatives.
