@@ -416,7 +416,49 @@ Here is the **full story**, Arabic duʿāʾ, English translation, and **all majo
 | **اللَّهُ**    | Allah               | Proper name of the One true God in Islam.  
 | **أَكْبَرُ**    | Greater / Greatest | Comparative/superlative form of **كَبِير (Kabīr)** meaning great or big. Used here to affirm Allah's absolute greatness.
 
-## 🟩 STEP 2: **Standing – Sūrat al-Fātiḥah (الفاتحة)**  
+## 🟩 STEP 2: **Standing – Sūrat al-Fātiḥah but SUBHA first (الفاتحة)**  
+
+
+**سُبْحَانَكَ اللَّهُمَّ وَبِحَمْدِكَ، وَتَبَارَكَ اسْمُكَ، وَتَعَالَى جَدُّكَ، وَلَا إِلٰهَ غَيْرُكَ**
+
+### 🌍 **Accurate English Translation (One Complete Line):**
+
+**Glory is to You, O Allah, and with Your praise; blessed is Your Name, exalted is Your Majesty, and there is no deity besides You.**
+
+### 📘 Vocabulary Table – *Duʿāʾ al-Istiftāḥ*
+
+| Arabic Phrase             | Root / Form                          | Meaning / Explanation                                        |
+|---------------------------|--------------------------------------|--------------------------------------------------------------|
+| **سُبْحَانَكَ**            | س-ب-ح (verbal noun) + suffix "كَ"    | Glory be to You — declaring Allah free from imperfection     |
+| **اللَّهُمَّ**             | Unique vocative of اللَّه              | O Allah — used only in addressing Allah                      |
+| **وَبِحَمْدِكَ**           | ح-م-د (praise) + بِ (with) + كَ       | And with Your praise — praising Allah as You glorify Him     |
+| **تَبَارَكَ**              | ب-ر-ك (verb)                         | Blessed is — great, full of blessing                         |
+| **اسْمُكَ**                | س-م-و (noun: name) + كَ (your)        | Your Name                                                    |
+| **تَعَالَى**               | ع-ل-و (verb - to be exalted)         | Exalted is — above all, supremely high                       |
+| **جَدُّكَ**                | ج-د-د (noun - might, majesty)        | Your Majesty — dignity, greatness, nobility                  |
+| **وَلَا إِلٰهَ غَيْرُكَ**  | negation + deity + "other than you" | And there is no deity besides You — declaration of tawḥīd    |
+
+## ✅ 2. **Seeking Refuge (Istiʿādha)** — *Sunnah*
+
+### 📖 **Arabic (One Complete Line):**
+
+**أَعُوذُ بِاللَّهِ مِنَ الشَّيْطَانِ الرَّجِيمِ**
+
+### 🌍 **Accurate English Translation (One Complete Line):**
+
+**I seek refuge with Allah from the accursed devil.**
+
+### 📘 Vocabulary Table – *Istiʿādha*
+
+| Arabic Phrase           | Root / Form                          | Meaning / Explanation                                   |
+|-------------------------|--------------------------------------|---------------------------------------------------------|
+| **أَعُوذُ**              | ع-و-ذ (verb - 1st person)            | I seek refuge — asking for divine protection            |
+| **بِاللَّهِ**            | Preposition بِ + اللَّه              | With Allah — seeking help or refuge through Him         |
+| **مِنَ**                 | Preposition                         | From — indicating source of harm to avoid               |
+| **الشَّيْطَانِ**         | ش-ط-ن (noun)                        | The devil — Shayṭān, the evil one                       |
+| **الرَّجِيمِ**           | ر-ج-م (passive adjective)            | The accursed — cast away, rejected from Allah’s mercy   |
+
+
 
 **بِسْمِ اللَّهِ الرَّحْمَٰنِ الرَّحِيمِ**  
 *In the name of Allah, the Most Gracious, the Most Merciful.*
