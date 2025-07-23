@@ -634,6 +634,7 @@ Indeed, You are Praiseworthy, Glorious.”**
 # ✦ CHECK footnote of this section for numerous Alternatives.
 
 https://www.youtube.com/watch?v=7rrRtl7z-8s
+
 https://islam.stackexchange.com/questions/60212/saying-this-dua-before-salam
 
 
