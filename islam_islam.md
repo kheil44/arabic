@@ -399,48 +399,11 @@ Here is the **full story**, Arabic duʿāʾ, English translation, and **all majo
  
 # 🕌 Complete Guide — 4 Rakʿah Sunnah Salah (e.g. before  Ẓuhr or after ʿIshāʾ)
 
-## ✦ STEP 1: **Intention (النيَّة)**
 
-### 🟩 Arabic (with full diacritics)
-
-**نَوَيْتُ أَنْ أُصَلِّيَ أَرْبَعَ رَكَعَاتٍ سُنَّةً لِلَّهِ تَعَالَى**
-
-### 🔤 Transliteration:
-
-**Nawaytu ʾan ʾuṣalliya ʾarbaʿa rakaʿātin sunnatan lillāhi taʿālā**
-
-### 📖 Translation:
-
-"I intend to pray four rakʿahs of sunnah prayer for Allah, the Exalted."
-
-### 📚 Word-by-word Vocabulary
-
-| Arabic          | Root     | Grammatical Role       | Meaning / Explanation                                |
-|------------------|----------|-------------------------|-------------------------------------------------------|
-| نَوَيْتُ         | ن و ي     | Verb (1st person perf.) | I intended                                            |
-| أَنْ             | ـ        | Particle                | To (introduces subjunctive verb)                     |
-| أُصَلِّيَ         | ص ل و     | Verb (1st person imperf.)| (That) I pray                                         |
-| أَرْبَعَ          | ر ب ع     | Numeral                | Four                                                  |
-| رَكَعَاتٍ         | ر ك ع     | Plural noun (feminine) | Units of prayer (rakʿahs)                             |
-| سُنَّةً           | س ن ن     | Noun (singular)        | Sunnah—voluntary prayer established by the Prophet    |
-| لِلَّهِ           | ا ل ه     | Preposition + noun     | For Allah                                             |
-| تَعَالَى         | ع ل و     | Verb (3rd person)      | The Most High, Exalted                                |
-
-➤ You make this intention in your **heart**, silently. You **do not need to say it out loud**.
-
-## ✦ STEP 2: **Opening Takbīr (تَكْبِيرَةُ الإِحْرَامِ)**
-
-### 🟩 Arabic:
 
 **اللَّهُ أَكْبَرُ**
 
-### 🔤 Transliteration:
 
-**Allāhu ʾakbar**
-
-### 📖 Translation:
-
-**"Allah is the Greatest."**
 
 ### 📚 Vocabulary
 
@@ -449,18 +412,6 @@ Here is the **full story**, Arabic duʿāʾ, English translation, and **all majo
 | اللَّهُ     | ا ل هـ | Proper noun   | Allah – the uniquely named God          |
 | أَكْبَرُ     | ك ب ر  | Comparative adj. | Greater / Greatest                        |
 
-**Action:** Raise both hands to ears (men) or shoulders (women), fingers open, palms facing Qiblah. After takbīr, place hands as:
-- **Men**: right over left below the navel or on the chest (different madhāhib)
-- **Women**: right over left on the chest
-
-(Because of message length limits, this answer will continue in the next post…)
-
-Certainly. Continuing from **Step 3** onward — this is the **complete 4-rakʿah Sunnah Salah**, with:
-- ✅ **Full Arabic (with vowel marks)**
-- ✅ **Word-by-word vocabulary & meanings**
-- ✅ **Line-by-line English translations**
-- 🌙 Based on authentic sunnah and classical fiqh  
-(We already finished niyyah and takbīrah)
 
 ## ✦ STEP 3: Opening Supplication  
 **دعاء الاستفتاح (Duʿāʾ al-Istiftāḥ)**
@@ -543,60 +494,6 @@ Then recite full **Surah al-Fātiḥah** with diacritics:
 (🚨 Message is growing long — due to character limitations, I will now continue the **next rakʿah steps (step 6 onward: Surah after Fātiḥah, rukuʿ, sujūd, tashahhud, salawat, final duʿā, taslīm, etc.)** in the **next reply** — same format: full Arabic, translation, vocabulary. Stay with me.)
 
 
-Absolutely! Let's continue the **complete 4-Rakʿah Sunnah Prayer** where we left off — from **Step 6**, after the recitation of **Sūrat al-Fātiḥah**, moving into:
-
-- A second surah (Surah al-Ikhlāṣ here as an example)  
-- Rukūʿ and Sujūd  
-- All other remaining movements and utterances, **every rakʿah and sitting position included**, until final salām  
-- All phrases:  
- ✅ Fully vowelized **Arabic (with correct ḥarakāt)**  
- ✅ Full **line-by-line translation**  
- ✅ Detailed **word-by-word vocabulary** for every phrase
-
-## ✦ STEP 6: Recite Additional Surah  
-(optional after Fātiḥah in **Sunnah** prayers, sunnah muʾakkadah)
-
-### 📖 Example: Surah al-Ikhlāṣ (Sūrat al-Ikhlāṣ – Chapter 112)
-
-### 🟩 Arabic (with full diacritics):
-
-1. **قُلْ هُوَ اللَّهُ أَحَدٌ**  
-2. **اللَّهُ الصَّمَدُ**  
-3. **لَمْ يَلِدْ وَلَمْ يُولَدْ**  
-4. **وَلَمْ يَكُن لَّهُ كُفُوًا أَحَدٌ**
-
-### 🔤 Transliteration:
-
-1. Qul huwa Allāhu aḥad  
-2. Allāhu ṣ-ṣamad  
-3. Lam yalid wa lam yūlad  
-4. Wa lam yakun lahu kufuwan aḥad
-
-### 📖 Translation:
-
-1. Say: He is Allah, the One  
-2. Allah, the Eternal Refuge  
-3. He neither begets nor is born  
-4. Nor is there anything comparable to Him
-
-### 📚 Word-by-word Vocabulary:
-
-| Arabic         | Root    | Meaning                              |
-|----------------|---------|--------------------------------------|
-| قُلْ            | ق و ل    | Say                                  |
-| هُوَ            | ه و     | He                                   |
-| اللَّهُ         | ا ل هـ    | Allah                                |
-| أَحَدٌ          | و ح د    | One, Unique                          |
-| الصَّمَدُ        | ص م د    | The Self-Sufficient, Eternal Refuge  |
-| لَمْ يَلِدْ       | و ل د    | Did not beget (did not have children)|
-| وَلَمْ يُولَدْ     | و ل د    | Was not begotten (was not born)      |
-| وَلَمْ يَكُن     | ك و ن    | And was not / never was              |
-| لَّهُ كُفُوًا     | ك ف أ    | Comparable / equal                   |
-| أَحَدٌ          | و ح د    | Anyone / any one                     |
-
-## ✦ STEP 7: Bowing Position (Rukūʿ – الرُّكُوع)
-
-### 🟩 Arabic
 
 **اللَّهُ أَكْبَرُ** *(While going into rukūʿ)*  
 **سُبْحَانَ رَبِّيَ الْعَظِيمِ** *(Say it 3x while in rukūʿ)*
@@ -700,98 +597,8 @@ Absolutely! Let's continue the **complete 4-Rakʿah Sunnah Prayer** where we lef
 | اغْفِرْ         | غ ف ر    | Forgive (imperative verb)           |
 | لِي             | ل ي      | For me                              |
 
-## ✦ STEP 11: Second Sujūd
 
-Repeat same Sujūd as above:
-
-- **اللَّهُ أَكْبَرُ**
-- **سُبْحَانَ رَبِّيَ الْأَعْلَى**
-
-## ✦ STEP 12: Stand for 2nd Rakʿah
-
-After second sujūd say **Allāhu Akbar** and stand up for second rakʿah. Repeat steps:
-
-- Basmala  
-- Sūrat al-Fātiḥah  
-- 2nd surah  
-- Rukūʿ  
-- Qawmah  
-- Sujūd (×2)  
-- Then sit for **Tashahhud**
-
-## ✦ STEP 13: First Tashahhud (التَّشَهُّدُ الأَوَّل)
-
-📌 This comes **after 2 rakʿahs** — then you **stand for 3rd rakʿah.**
-
-### 🟩 Arabic:
-
-**التَّحِيَّاتُ لِلَّهِ، وَالصَّلَوَاتُ، وَالطَّيِّبَاتُ، السَّلَامُ عَلَيْكَ أَيُّهَا النَّبِيُّ وَرَحْمَةُ اللَّهِ وَبَرَكَاتُهُ، السَّلَامُ عَلَيْنَا وَعَلَىٰ عِبَادِ اللَّهِ الصَّالِحِينَ، أَشْهَدُ أَنْ لَا إِلَٰهَ إِلَّا اللَّهُ، وَأَشْهَدُ أَنَّ مُحَمَّدًا عَبْدُهُ وَرَسُولُهُ**
-
-### 🔤 Transliteration:
-
-**At-taḥiyyātu lillāhi, waṣ-ṣalawātu, waṭ-ṭayyibātu.  
-As-salāmu ʿalayka ayyuhā an-nabiyyu wa raḥmatullāhi wa barakātuh.  
-As-salāmu ʿalaynā wa ʿalā ʿibādillāhi aṣ-ṣāliḥīn.  
-Ashhadu an lā ilāha illā Allāh,  
-wa ashhadu anna Muḥammadan ʿabduhū wa rasūluh.**
-
-### 📖 Translation:
-
-> All greetings, prayers, and pure words are for Allah.  
-Peace be upon you, O Prophet, and the mercy of Allah and His blessings.  
-Peace be upon us and upon the righteous servants of Allah.  
-I bear witness that there is no deity except Allah,  
-and I bear witness that Muhammad is His servant and His Messenger.
-
-📌 (Due to character limits, we will continue next with:  
-- Rakʿahs 3 and 4  
-- Final full tashahhud  
-- Salawat al-Ibrahīmiyyah  
-- Final duʿā  
-- Final Salām  
-All in same level of detail as above.)
-
-Certainly! Let's now continue the complete and fully detailed **4 rakʿah Sunnah prayer**, picking up from:
-
-> ✅ After the **first Tashahhud** (after 2 rakʿahs),  
-and continuing through:
-
-- 3rd and 4th rakʿahs  
-- Final Tashahhud  
-- Ṣalāt al-Ibrāhīmiyyah  
-- Duʿā before Salām  
-- Final Taslīm  
-All presented with:  
-✅ Full vowelized **Arabic**,  
-✅ Transliteration,  
-✅ Accurate **English translation**,  
-✅ Full **word-by-word vocabulary breakdown**.
-
-# ✦ STEP 14: Third & Fourth Rakʿah (الرَّكْعَةُ الثَّالِثَةُ وَالرَّابِعَةُ)
-
-### 🔸 These rakʿahs consist of:
-
-- **Takbīr**  
-- **Surah al-Fātiḥah** (no additional surah is required — although not prohibited in Sunnah prayers)  
-- **Rukūʿ**  
-- **Qawmah** (standing after bowing)  
-- **Sujūd (×2)**  
-- No tashahhud after the 3rd rakʿah — only after the **4th**
-
-⮞ Repeat the same phrases & actions as in rakʿahs 1 and 2:
-
-- **اللَّهُ أَكْبَرُ**  
-- **Surat al-Fātiḥah**  
-- **Rukūʿ:**  
-  ــ "سُبْحَانَ رَبِّيَ الْعَظِيمِ" ×3  
-- **Samiʿa Allāhu liman ḥamidah**  
-- **Rabbana wa laka al-ḥamd**  
-- **Sujūd (×2):**  
-  ــ "سُبْحَانَ رَبِّيَ الأَعْلَى" ×3  
-  ــ "رَبِّ اغْفِرْ لِي" between sujūd
-
-⬇️ After completing the **second sujūd of the fourth rakʿah**, stay seated for the **final tashahhud**.
-
+📌 (ʿahs)
 # ✦ STEP 15: Final Tashahhud  
 (التَّشَهُّد الأخير)
 
