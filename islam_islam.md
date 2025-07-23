@@ -644,6 +644,9 @@ https://islam.stackexchange.com/questions/60212/saying-this-dua-before-salam
 وَمِنْ فِتْنَةِ الْمَحْيَا وَالْمَمَاتِ،  
 وَمِنْ شَرِّ فِتْنَةِ الْمَسِيحِ الدَّجَّالِ**
 
+recitation;
+https://www.youtube.com/watch?v=tbVHY-8wuB0
+
 🔤 Transliteration:
 
 **Allāhumma innī aʿūdhu bika min ʿadhābi jahannam,  
