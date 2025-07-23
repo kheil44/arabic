@@ -2246,7 +2246,10 @@ The above Qur'anic verses and authentic prophetic traditions demonstrate a clear
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
 
-Mention of massah over socks; right at the end of the video.
+Wiping over sock.Mention of massah over socks; right at the end of the video.
+
+https://youtu.be/V4pY2-AgGvg?list=PLANmApGKw_OoBaN2C0Y983cwJGL47842I&t=3239
+
 
 https://www.youtube.com/watch?v=V4pY2-AgGvg&list=PLANmApGKw_OoBaN2C0Y983cwJGL47842I&index=13
 
