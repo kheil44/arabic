@@ -1188,6 +1188,139 @@ Just say the word.
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 # Duas , Praying , Praising Allah
 
+Here are the complete and authenticated supplications (duʿās) for:
+
+- **Entering the masjid (mosque)**
+- **Exiting the masjid**
+- **Wearing shoes**
+- **Removing shoes**
+- With:  
+   - Accurate Arabic text  
+   - English translation  
+   - Word-by-word vocabulary + explanation  
+   - The Sunnah method for shoes (right/left order)
+
+## 🕌 Entering the Masjid
+
+### Arabic (most authentic wording):
+
+**اللَّهُمَّ افْتَحْ لِي أَبْوَابَ رَحْمَتِكَ**
+
+### English Translation:
+**O Allah, open for me the doors of Your mercy.**
+
+#### Vocabulary and Explanation
+
+| Arabic                     | Root / Grammar                      | Meaning / Function                                 |
+|----------------------------|-------------------------------------|----------------------------------------------------|
+| اللَّهُمَّ                  | Unique vocative of "Allah"           | O Allah                                            |
+| افْتَحْ                    | ف-ت-ح (verb, imperative)             | Open! (command, i.e. "allow"/"grant access")       |
+| لِي                         | لِ (to/for) + ي (me)                 | For me                                             |
+| أَبْوَابَ                   | ب-و-ب (plural noun)                  | Doors (plural of باب "door")                       |
+| رَحْمَتِكَ                  | ر-ح-م (noun "mercy") + كَ (your)      | Your mercy                                         |
+
+**Hadith Source:** Ṣaḥīḥ Muslim 713a, Sunan Abi Dawud 465, others[2][5][7].
+
+#### Sunnah Method (how to enter):
+
+- **Enter with your right foot first.**
+
+## 🕌 Exiting the Masjid
+
+### Arabic (most authentic wording):
+
+**اللَّهُمَّ إِنِّي أَسْأَلُكَ مِنْ فَضْلِكَ**
+
+### English Translation:
+**O Allah, I ask You for Your bounty (grace/favor).**
+
+#### Vocabulary and Explanation
+
+| Arabic                     | Root / Grammar                           | Meaning / Function                                 |
+|----------------------------|------------------------------------------|----------------------------------------------------|
+| اللَّهُمَّ                  | Unique vocative of "Allah"                | O Allah                                            |
+| إِنِّي                      | إِنَّ (indeed) + ي (I, pronoun)           | Indeed I; surely I                                 |
+| أَسْأَلُكَ                  | س-أ-ل (verb, I ask) + كَ (you)            | I ask You                                          |
+| مِنْ                        | Preposition (from)                        | From                                               |
+| فَضْلِكَ                    | ف-ض-ل (noun, bounty/favor) + كَ (your)    | Your bounty/grace                                  |
+
+**Hadith Source:** Ṣaḥīḥ Muslim 713a, Sunan Abi Dawud 465[2][5][7].
+
+#### Sunnah Method (how to exit):
+
+- **Exit with your left foot first.**
+
+## 🥿 Wearing and Removing Shoes (and method)
+
+### Duʿāʾ When Wearing Shoes
+
+There is no explicit duʿāʾ reported authentically just for wearing shoes, but the Sunnah is:
+
+- **Start with the right foot first** when putting on shoes or sandals.
+- **End with the left foot when removing shoes.**
+
+**Hadith Source:** Sahih al-Bukhari #5855, Sahih Muslim #2097.
+
+#### Text and Practical Sunnah
+
+### Method When Wearing Shoes:
+- **Start by putting on the right shoe/foot first, then the left.**
+
+### When Taking Shoes Off:
+- **Remove the left shoe/foot first, then the right.**
+
+#### Messenger of Allah ﷺ said:
+> "When you put on your shoes, start with the right foot; and when you take them off, start with the left."  
+> **(Sahih al-Bukhari 5855, Sahih Muslim 2097)**
+
+#### General Duʿāʾ for Clothing (can be used for shoes):
+
+**اللّهُمَّ إِنِّي أَسْأَلُكَ مِنْ خَيْرِهِ وَخَيْرِ مَا صُنِعَ لَهُ وَأَعُوذُ بِكَ مِنْ شَرِّهِ وَشَرِّ مَا صُنِعَ لَهُ**
+
+**Translation:**  
+“O Allah, I ask You for the good of it and the good for which it was made, and I seek refuge in You from its evil and the evil for which it was made.”  
+**(Abu Dawud 4020, Tirmidhi 1767 — clothing in general)**
+
+#### Vocabulary
+
+| Arabic                        | Root / Grammar                          | Explanation                           |
+|-------------------------------|-----------------------------------------|---------------------------------------|
+| اللّهُمَّ                      | Vocative of Allah                       | O Allah                               |
+| إِنِّي                         | إِنَّ + ي (indeed, I)                    | Indeed I                              |
+| أَسْأَلُكَ                     | س-أ-ل (ask) + ـكَ (you)                  | I ask You                             |
+| مِنْ خَيْرِهِ                   | من (from), خير (good), ـه (it)           | For its good                          |
+| خَيْرِ مَا صُنِعَ لَهُ          | خير (good), ما (that which), صنع له (made for it) | Good for which it was made            |
+| أَعُوذُ بِكَ                    | ع-و-ذ (seek refuge) + بك (in You)        | I seek refuge with You                |
+| مِنْ شَرِّهِ                    | من (from), شر (evil), ـه (it)            | From its evil                         |
+| شَرِّ مَا صُنِعَ لَهُ           | شر (evil), ما (that which), صنع له (made for it)  | Evil for which it was made            |
+
+## 📝 Summary Table of Methods
+
+| Action           | Which Foot First   | Duʿāʾ to Recite                                                |
+|------------------|-------------------|----------------------------------------------------------------|
+| Entering Masjid  | Right              | اللَّهُمَّ افْتَحْ لِي أَبْوَابَ رَحْمَتِكَ                   |
+| Exiting Masjid   | Left               | اللَّهُمَّ إِنِّي أَسْأَلُكَ مِنْ فَضْلِكَ                    |
+| Wearing Shoes    | Right              | (No specific duʿāʾ, use right first; can use duʿāʾ for clothing)|
+| Removing Shoes   | Left               | (No specific duʿāʾ, use left first)                            |
+
+All these actions and supplications are supported by authentic hadith in **Ṣaḥīḥ al-Bukhārī**, **Ṣaḥīḥ Muslim**, **Abu Dawud**, **Tirmidhi**, and major fiqh works[2][5][7].
+
+If you want each duʿāʾ visually separated or with more advanced vocabulary parsing/explanation, let me know.
+
+[1] https://www.islamicfinder.org/duas/masnoon/upon-entering-mosque/
+[2] https://myislam.org/dua-for-entering-and-leaving-masjid/
+[3] https://www.youtube.com/watch?v=6YBkJN94aMg
+[4] https://alhamdulillah.one/dua-while-entering-mosque-arabic-translation-sunnah/
+[5] https://islamqa.org/hanafi/qibla-hanafi/36638/essential-prophetic-supplications-upon-entering-the-mosque/
+[6] https://islamqa.org/hanafi/seekersguidance-hanafi/32675/supplication-upon-entering-the-mosque/
+[7] https://maainternational.org.au/dua-before-entering-and-leaving-mosque-masjid/
+[8] https://www.mydualist.com/dua-for-entering-and-leaving-masjid/
+[9] https://matwproject.org/duas/dua-for-entering-masjid-2/
+[10] https://primaryilm.com/dua-for-entering-masjid/
+
+
+
+
 ####  How to praise Allah before making Dua Proper etiquette of making Dua 
 https://www.youtube.com/watch?v=42DsXENKySo
 
@@ -2092,6 +2225,49 @@ https://www.youtube.com/watch?v=V4pY2-AgGvg&list=PLANmApGKw_OoBaN2C0Y983cwJGL478
 
 
 ✨ 3. أَشْهَدُ أَنْ لا إِلَـهَ إِلاّ اللَّهُ وَحْدَهُ لا شَريكَ لَـهُ، وَأَشْهَدُ أَنَّ مُحَمَّداً عَبْدُهُ وَرَسُولُهُ
+
+🕌 Entering the Masjid
+
+اللَّهُمَّ افْتَحْ لِي أَبْوَابَ رَحْمَتِكَ
+
+🕌 Exiting the Masjid
+اللَّهُمَّ إِنِّي أَسْأَلُكَ مِنْ فَضْلِكَ
+
+
+Duʿāʾ after Eating
+
+Arabic:
+الْحَمْدُ لِلَّهِ الَّذِي أَطْعَمَنِي هذا، وَرَزَقَنِيهِ مِنْ غَيْرِ حَوْلٍ مِنِّي وَلَا قُوَّةٍ
+
+Translation:
+“All praise is for Allah, Who gave me this food and provided it for me, though I had no power or ability.”
+
+Leaving the House
+
+Arabic:
+بِسْمِ اللهِ تَوَكَّلْتُ عَلَى اللَّهِ، وَلَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِاللهِ
+“In the name of Allah, I place my trust in Allah, and there is no might nor power except with Allah.”
+Authenticity: Abu Dawud, Tirmidhi, classed as sahih.
+7. Entering the Toilet
+
+Arabic:
+اللَّهُمَّ إِنِّي أَعُوذُ بِكَ مِنَ الْخُبُثِ وَالْخَبَائِثِ
+“O Allah, I seek protection with You from evil and evil-doers (male and female Jinn).”
+
+Authenticity: Ṣaḥīḥ al-Bukhārī, Muslim.
+
+Entering the House
+Arabic:
+
+بِسْمِ اللَّهِ، تَوَكَّلْتُ عَلَى اللَّهِ، وَلَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِاللَّهِ
+English:
+
+“In the name of Allah, I place my trust in Allah, and there is no might nor power except with Allah.”
+
+
+
+
+
 
 ---
 
