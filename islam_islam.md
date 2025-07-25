@@ -2188,6 +2188,50 @@ https://youtu.be/V4pY2-AgGvg?list=PLANmApGKw_OoBaN2C0Y983cwJGL47842I&t=3239
 https://www.youtube.com/watch?v=V4pY2-AgGvg&list=PLANmApGKw_OoBaN2C0Y983cwJGL47842I&index=13
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
+Pardon and Forgive so that Allah will pardon and forgive you....regarding this there are few verses;
+
+
+
+🌙 **Pardon and Forgiveness in the Qur’an** 🤲
+
+
+
+🤝 **2. Encouragement to Pardon and Forgive One Another**  
+**Surah An-Nur (24:22)**
+
+**وَلْيَعْفُوا وَلْيَصْفَحُوا ۗ أَلَا تُحِبُّونَ أَن يَغْفِرَ اللَّهُ لَكُمْ ۗ وَاللَّهُ غَفُورٌ رَّحِيمٌ**
+
+**Transliteration**  
+Wal-yaʿfū wal-yaṣfaḥū, alā tuḥibbūna an yaghfira Allāhu lakum, wa-Allāhu ghafūrun raḥīm.
+
+**Translation:**  
+"Let them pardon and forgive. Do you not love that Allah should forgive you? And Allah is All-Forgiving, Most Merciful."
+
+💖 **3. Overlooking and Forgiving as the Noble Path**  
+**Surah At-Taghabun (64:14)**
+
+**وَإِن تَعْفُوا وَتَصْفَحُوا وَتَغْفِرُوا فَإِنَّ اللَّهَ غَفُورٌ رَّحِيمٌ**
+
+**Transliteration**  
+Wa in taʿfū wa taṣfaḥū wa taghfirū fa-inna Allāha ghafūrun raḥīm.
+
+**Translation:**  
+"But if you pardon, overlook, and forgive, then indeed Allah is All-Forgiving, Most Merciful."
+
+🌿 **Reflection**
+
+These verses teach us:
+
+- **Seek Allah’s forgiveness** for ourselves and each other.
+- **Forgive people** and overlook faults, so Allah will forgive us in return.
+- **Make mercy and pardon a habit**—these are values that elevate and purify us.
+
+**اللَّهُمَّ إِنَّكَ عَفُوٌّ كَرِيمٌ تُحِبُّ العَفْوَ فَاعْفُ عَنَّا**  
+“O Allah, You are Most Forgiving, Generous, and You love to forgive, so forgive us.”
+
+✨ **May Allah make us people of pardon, forgiveness, and mercy!**
+#IslamicReminders #Forgiveness #Quran
+
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
 
