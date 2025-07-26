@@ -1226,12 +1226,13 @@ The Messenger of Allah (ﷺ) said:
 [Read the hadith on Sunnah.com](https://sunnah.com/muslim/48/158)
 
 **Arabic Text:**
+
 بِسْمِ اللَّهِ And Salam +
 
 ### 🏡 Dua for Exiting the House
 
 **Arabic Text:**
-بِسْمِ اللَّهِ تَوَكَّلْتُ عَلَى اللَّهِ، لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِاللَّهِ
+بِسْمِ اللَّهِ تَوَكَّلْـتُ عَلَى اللَّهِ، وَلاَ حَوْلَ وَلاَ قُـوَّةَ إِلاَّ بِاللَّهِ.
 
 **Translation:**
 "In the name of Allah, I place my trust in Allah; there is no might and no power except with Allah."
