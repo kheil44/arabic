@@ -24,11 +24,11 @@ Certainly! Here is the phrase **"بِإِذْنِ اللَّهِ تَعَالَ�
 ---
 Index
 - [Namaz](#Namaz-4-Rakat) ━━━━━━━━━━ - [# Going to Bed](#Going-to-Bed)
-- [Duas for Wudu](#Wudu)                              -
-- [Translations of Quran](#Translations-of-Quran)     -
-- [Six Hadith](#Six-Hadith)                           -
-- [Random](#Random-Temp)                              -
-- [Tabligh Jamat Ref](#Tabligh-Jamat)                 -
+- [Duas for Wudu](#Wudu) ━━━━━━━━━━                             -
+- [Translations of Quran](#Translations-of-Quran)━━━━━━━━━━     -
+- [Six Hadith](#Six-Hadith) ━━━━━━━━━━                           -
+- [Random](#Random-Temp) ━━━━━━━━━━                              -
+- [Tabligh Jamat Ref](#Tabligh-Jamat) ━━━━━━━━━━━━━━━━━━━━━━  -
 
 ### ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
 shapes;;
