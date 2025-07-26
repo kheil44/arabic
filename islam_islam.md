@@ -23,12 +23,12 @@ Certainly! Here is the phrase **"بِإِذْنِ اللَّهِ تَعَالَ�
 
 ---
 Index
-- [Namaz](#Namaz-4-Rakat)
-- [Duas for Wudu](#Wudu)
-- [Translations of Quran](#Translations-of-Quran)
-- [Six Hadith](#Six-Hadith)
-- [Random](#Random-Temp)
-- [Tabligh Jamat Ref](#Tabligh-Jamat)
+- [Namaz](#Namaz-4-Rakat)                             - [# Going to Bed](#Going-to-Bed)
+- [Duas for Wudu](#Wudu)                              -
+- [Translations of Quran](#Translations-of-Quran)     -
+- [Six Hadith](#Six-Hadith)                           -
+- [Random](#Random-Temp)                              -
+- [Tabligh Jamat Ref](#Tabligh-Jamat)                 -
 
 ### ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
 shapes;;
@@ -2251,10 +2251,206 @@ These verses teach us:
 ✨ **May Allah make us people of pardon, forgiveness, and mercy!**
 #IslamicReminders #Forgiveness #Quran
 
+---
+
+🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
+### Going to Bed
+
+# 🛏️🌙 The Islamic Way of Going to Bed: Complete Step-by-Step Guide with Authentic Qur’anic Verses and Hadith Texts 🕌✨
+
+## 1️⃣ Perform Wudu (Ablution) Before Sleeping 💧👐  
+
+The Prophet Muhammad (ﷺ) said:  
+**«إِذَا أَوَى أَحَدُكُمْ إِلَى فِرَاشِهِ، فَلْيَتَوَضَّأْ وُضُوءَهُ لِلصَّلَاةِ»**  
+*(“When any one of you goes to bed, he should perform wudu as he does for prayer.”)*  
+— Sahih al-Bukhari, Book 4 (Ablutions / Wudu), Hadith 228  
+[Source Link: Sahih al-Bukhari 232 (In another numbering system)](https://sunnah.com/bukhari:232)
+
+#### 3. **Supporting Narrations About Angels and Forgiveness for One Who Sleeps with Wudu**
+
+Abu Huraira reported the Prophet (ﷺ) said:
+
+**«مِنْ بَاتَ طَاهِرًا بَاتَ فِي شِعَارِهِ مَلَكٌ لَا يَسْتَيْقِظُ سَاعَةً مِنَ اللَّيْلِ إِلَّا قَالَ الْمَلَكُ اللَّهُمَّ اغْفِرْ لِعَبْدِكَ فُلَانٍ فَإِنَّهُ بَاتَ طَاهِرًا»**
+
+*"Whoever goes to sleep in a state of purity, there is an angel with him in his bed who keeps asking Allah to forgive him."*  
+Source: Al-Da’wāt al-Kabīr 358 (graded Hasan by Al-Albani)  
+Detailed link and explanation: [Al-Maktabah al-Shamilah / IslamicQA](https://islamqa.info/en/answers/160973)
+
+
+## 2️⃣ Sleep on Your Right Side 🛌➡️  
+
+Narrated Abdullah ibn Abbas (رضي الله عنهما):  
+**«كَانَ رَسُولُ اللَّهِ ﷺ يَتَوَكَّأُ عَلَى يَمِينِهِ فِي نَوْمِهِ»**  
+*(“The Messenger of Allah used to lie on his right side when he slept.”)*  
+— Sahih al-Bukhari, Book 75 (The Prostration during Recital of the Qur'an), Hadith 309  
+[Source Link: Sahih al-Bukhari 2454](https://sunnah.com/bukhari:2454)  
+(Similar in Sahih Muslim)
+
+## 3️⃣ Seek Refuge from Shaytan Before Sleeping 🙏🕊️
+
+Say:  
+**«أَعُوذُ بِاللَّهِ مِنَ الشَّيْطَانِ الرَّجِيمِ»**  
+*(“I seek refuge in Allah from the accursed Shaytan.”)*  
+
+This is the standard Isti‘aadhah before reciting Qur'an or sleeping.
+
+## 4️⃣ Recite Ayat al-Kursi (Qur’an 2:255) Before Sleep 📖🛡️  
+
+The Prophet (ﷺ) said:  
+**«مَنْ قَرَأَ آيَةَ الْكُرْسِيِّ حِينَ يَنْامُ، لَمْ يَزَلْ عَلَيْهِ مَلَكٌ يَحْفَظُهُ حَتَّى يُصْبِحَ»**  
+*(“Whoever recites Ayat al-Kursi when going to sleep will have an angel who guards him until morning.”)*  
+— Sahih al-Bukhari, Book 21 (Prayer at Night), Hadith 192  
+[Source Link: Sahih al-Bukhari 5016](https://sunnah.com/bukhari:5016)
+
+Full Verse — **آيَةُ الْكُرْسِيِّ (سورة البقرة: ٢٥٥):**
+
+**اللَّهُ لَا إِلَٰهَ إِلَّا هُوَ الْحَيُّ الْقَيُّومُ ۚ  
+لَا تَأْخُذُهُ سِنَةٌ وَلَا نَوْمٌ ۚ  
+لَهُ مَا فِي السَّمَاوَاتِ وَمَا فِي الْأَرْضِ ۗ  
+مَن ذَا الَّذِي يَشْفَعُ عِندَهُ إِلَّا بِإِذْنِهِ ۚ  
+يَعْلَمُ مَا بَيْنَ أَيْدِيهِمْ وَمَا خَلْفَهُمْ ۖ  
+وَلَا يُحِيطُونَ بِشَيْءٍ مِّنْ عِلْمِهِ إِلَّا بِمَا شَاءَ ۚ  
+وَسِعَ كُرْسِيُّهُ السَّمَاوَاتِ وَالْأَرْضَ ۖ  
+وَلَا يَئُودُهُ حِفْظُهُمَا ۚ  
+وَهُوَ الْعَلِيُّ الْعَظِيمُ**
+
+_(“Allah! There is no deity except Him, the Ever-Living, the Sustainer of existence. Neither drowsiness overtakes Him nor sleep. To Him belongs whatever is in the heavens and whatever is on the earth. Who is it that can intercede with Him except by His permission? He knows what is before them and what will be after them, and they cannot encompass any of His knowledge except what He wills. His Kursi extends over the heavens and the earth, and preserving them does not tire Him. And He is the Most High, the Most Great.”)_
+
+## 5️⃣ Recite the Last Two Verses of Surah Al-Baqarah (2:285-286) 📜🌟  
+
+The Prophet (ﷺ) said:  
+**«مَنْ قَرَأَ بِاللَّيْلِ آخِرَ آيَتَيْنِ مِنْ سُورَةِ الْبَقَرَةِ كَفَاهُ»**  
+*(“Whoever recites the last two verses of Surah Al-Baqarah at night, it will suffice him.”)*  
+— Sahih al-Bukhari, Book 61 (Virtues of the Quran), Hadith 5358  
+[Source Link: Sahih al-Bukhari 5009](https://sunnah.com/bukhari:5009)
+
+**Verse 285:**  
+**آمَنَ الرَّسُولُ بِمَا أُنزِلَ إِلَيْهِ مِن رَّبِّهِ وَالْمُؤْمِنُونَ ۚ  
+كُلٌّ آمَنَ بِاللَّهِ وَمَلَائِكَتِهِ وَكُتُبِهِ وَرُسُلِهِ  
+لَا نُفَرِّقُ بَيْنَ أَحَدٍ مِّن رُّسُلِهِ ۚ  
+وَقَالُوا سَمِعْنَا وَأَطَعْنَا ۖ  
+غُفْرَانَكَ رَبَّنَا وَإِلَيْكَ الْمَصِيرُ**
+
+**Verse 286:**  
+**لَا يُكَلِّفُ اللَّهُ نَفْسًا إِلَّا وُسْعَهَا ۗ  
+لَهَا مَا كَسَبَتْ وَعَلَيْهَا مَا اكْتَسَبَتْ ۗ  
+رَبَّنَا لَا تُؤَاخِذْنَا إِن نَّسِينَا أَوْ أَخْطَأْنَا ۚ  
+رَبَّنَا وَلَا تَحْمِلْ عَلَيْنَا إِصْرًا كَمَا حَمَلْتَهُ عَلَى الَّذِينَ مِن قَبْلِنَا ۚ  
+رَبَّنَا وَلَا تُحَمِّلْنَا مَا لَا طَاقَةَ لَنَا بِهِ ۥ  
+وَاعْفُ عَنَّا وَاغْفِرْ لَنَا وَارْحَمْنَا ۚ  
+أَنتَ مَوْلَانَا فَانصُرْنَا عَلَى الْقَوْمِ الْكَافِرِينَ**
+
+_(Translation):_  
+*The Messenger has believed in what was revealed to him from his Lord, and so have the believers. All believe in Allah, His angels, His books, and His messengers, saying, "We make no distinction between any of His messengers." And they say, "We hear and we obey. (We seek) Your forgiveness, our Lord, and to You is the final destination."*  
+
+*Allah does not burden any soul with more than it can bear. It gets what it earns and is responsible for what it does. Our Lord, do not punish us if we forget or make mistakes; Our Lord, do not place a burden on us like that which You placed on those before us; Our Lord, do not allow us to bear what we have no strength to bear; pardon us, forgive us, and have mercy on us. You are our protector, so help us against the disbelieving people.*
+
+## 6️⃣ Recite the Three Qul’s for Protection (Surah Al-Ikhlas, Al-Falaq, An-Naas) 🛡️🔒  
+
+The Prophet (ﷺ) used to recite these three chapters before sleeping, blow into his hands, then wipe over his body for protection.
+
+### Surah Al-Ikhlas (112):
+
+**قُلْ هُوَ اللَّهُ أَحَدٌ  
+اللَّهُ الصَّمَدُ  
+لَمْ يَلِدْ وَلَمْ يُولَدْ  
+وَلَمْ يَكُن لَّهُ كُفُوًا أَحَدٌ**
+
+*(Say: "He is Allah, the One and Only; Allah, the Eternal, Absolute; He begets not, nor is He begotten; and there is none like unto Him.")*  
+[Source: Sahih al-Bukhari 4872](https://sunnah.com/bukhari:4872)
+
+### Surah Al-Falaq (113):  
+
+**قُلْ أَعُوذُ بِرَبِّ الْفَلَقِ  
+مِن شَرِّ مَا خَلَقَ  
+وَمِن شَرِّ غَاسِقٍ إِذَا وَقَبَ  
+وَمِن شَرِّ النَّفَّاثَاتِ فِي الْعُقَدِ  
+وَمِن شَرِّ حَاسِدٍ إِذَا حَسَدَ**
+
+*(Say, "I seek refuge in the Lord of daybreak, from the evil of that which He created, from the evil of darkness when it settles, from the evil of those who blow on knots, and from the evil of an envier when he envies.")*  
+[Source: Sahih al-Bukhari 4873](https://sunnah.com/bukhari:4873)
+
+### Surah An-Naas (114):
+
+**قُلْ أَعُوذُ بِرَبِّ النَّاسِ  
+مَلِكِ النَّاسِ  
+إِلَٰهِ النَّاسِ  
+مِن شَرِّ الْوَسْوَاسِ الْخَنَّاسِ  
+الَّذِي يُوَسْوِسُ فِي صُدُورِ النَّاسِ  
+مِنَ الْجِنَّةِ وَالنَّاسِ**
+
+*(Say, "I seek refuge in the Lord of mankind, the Sovereign of mankind, the God of mankind, from the evil of the whisperer who withdraws, who whispers in the hearts of mankind, from among the jinn and mankind.")*  
+[Source: Sahih al-Bukhari 4874](https://sunnah.com/bukhari:4874)
+
+## 7️⃣ Recite the Tasbih (SubhanAllah, Alhamdulillah, Allahu Akbar) Before Sleep 🌙✨  
+
+The Prophet Muhammad (ﷺ) said:  
+**«مَن قالَ، سُبْحانَ اللّهِ وَالْحَمْدُ لِلّهِ وَاللّهُ أَكْبَرُ، مائةَ مرةٍ غُفِرَت ذُنوبُه»**  
+*(“Whoever says: ‘Subḥānallāh, al-ḥamdulillāh, Allāhu akbar’ one hundred times, his sins will be forgiven.”)*  
+— Sahih Muslim, Hadith 2691  
+[Source Link: Sahih Muslim 2691](https://sunnah.com/muslim:2691)
+
+Recommended count before sleep according to another version:  
+- **سُبْحَانَ اللَّهِ** 33 times (Glory be to Allah)  
+- **الْحَمْدُ لِلَّهِ** 33 times (Praise be to Allah)  
+- **اللَّهُ أَكْبَرُ** 34 times (Allah is the Greatest)
+
+## 8️⃣ Make the Intention (Niyyah) to wake for prayer or good deeds 🌅🙏  
+
+The Prophet (ﷺ) said:  
+**«إذا أويت إلى فراشك فتوضأ وضوءك للصلاة ثم اضطجع على شقك الأيمن وقل: اللهم أسلمت وجهي إليك وفوضت أمري إليك... فإن مت من الليلة فأنت على الفطرة.»**  
+*(When you go to bed, perform wudu as for prayer, then lie on your right side and say: “O Allah, I submit my face to You, entrust my affairs to You...” If you die during the night you will die on the fitrah (natural state).)*  
+— Sahih al-Bukhari 247, Sahih Muslim 2710  
+[Source Sahih Bukhari 247](https://sunnah.com/bukhari:247)  
+[Source Sahih Muslim 2710](https://sunnah.com/muslim:2710)
+
+## 9️⃣ Sleep Dua (Supplication) 🙌💫  
+
+Say:  
+**«اللَّهُمَّ بِاسْمِكَ أَمُوتُ وَأَحْيَا»**  
+*(“O Allah, in Your Name I live and die.”)*  
+— Riyadh as-Salihin, Hadith 816  
+[Source Link: IslamQA Explanation of Sleep Duas](https://islamqa.info/en/answers/145543/dua-before-sleeping-list-of-sound-hadiths)
+
+# 🔟 Additional Sunnah Steps & Tips:
+
+- Extinguish lamps or lights before sleeping, cover water and food, lock doors as protection from Shaytan.  
+- Avoid sleeping on the stomach (considered disliked).  
+- Reflect on death and seek forgiveness.  
+- Remember, sleep is a form of temporary death and spiritual renewal.
+
+### If you want I can also provide a vocabulary table for each Arabic phrase, printable formatted guide, or audio recitations of the duas.
+
+Please let me know if you want me to prepare these or if you want more details on any particular step or hadith!
+
+**References with direct reliable links:**
+
+- Sahih al-Bukhari (sunnah.com):  
+https://sunnah.com/bukhari  
+- Sahih Muslim (sunnah.com):  
+https://sunnah.com/muslim  
+- IslamQA:  
+https://islamqa.info/en/answers/145543/dua-before-sleeping-list-of-sound-hadiths  
+- PMC Articles on Islamic Sleep Traditions:  
+https://pmc.ncbi.nlm.nih.gov/articles/PMC3183634/  
+
+May Allah bless your nights with peace and acceptance of your prayers and worship. 🤲🌙
+
+[1] https://pmc.ncbi.nlm.nih.gov/articles/PMC3183634/
+[2] https://www.abuaminaelias.com/sunan-of-sleeping-and-waking/
+[3] https://sunnah.com/bukhari:1142
+[4] https://sunnah.com/bukhari:1146
+[5] https://pmc.ncbi.nlm.nih.gov/articles/PMC3630974/
+[6] https://islamqa.info/index.php/en/answers/145543/dua-before-sleeping-list-of-sound-hadiths
+[7] https://hadithcollection.com/sahihbukhari/sahih-bukhari-book-21-prayer-at-night-tahajjud/sahih-bukhari-volume-002-book-021-hadith-number-243
+[8] https://www.iium.edu.my/deed/hadith/bukhari/004_sbt.html
+[9] https://hadithcollection.com/sahihbukhari/sahih-bukhari-book-04-ablutions-wudu/sahih-bukhari-volume-001-book-004-hadith-number-211
+[10] https://islam.stackexchange.com/questions/47503/is-there-a-hadith-describing-the-importance-of-sleep
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
 
-🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
+---
+
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
 
