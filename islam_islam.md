@@ -2308,6 +2308,18 @@ English:
 
 “In the name of Allah, I place my trust in Allah, and there is no might nor power except with Allah.”
 
+Certainly! Here are the complete duas for **entering and exiting the toilet** in **bold Arabic with full harakat**, along with transliteration and clear translation.
+
+### 🚪 **Dua for Entering the Toilet**
+**بِسْمِ اللَّهِ، اللَّهُمَّ إِنِّي أَعُوذُ بِكَ مِنَ الْخُبُثِ وَالْخَبَائِثِ**
+**Translation:**  
+In the name of Allah. O Allah, I seek refuge with You from male and female devils (evil beings)[2][3][4][5][7][8].
+### 🚪 **Dua for Exiting the Toilet**
+
+**Arabic (with full harakat & bold):**
+**غُفْرَانَكَ**
+**Translation:**  
+I ask You (Allah) for Your forgiveness.
 
 
 
