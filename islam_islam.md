@@ -1207,6 +1207,60 @@ Just say the word.
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 # Duas , Praying , Praising Allah
 
+
+]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]
+## 🕌 Duas for Entering and Exiting the House
+
+### 🏠 Dua for Entering the House
+
+**Arabic Text:**
+بِسْمِ اللَّهِ وَلَجْنَا وَبِسْمِ اللَّهِ خَرَجْنَا وَعَلَى اللَّهِ رَبِّنا تَوَكَّلْنَا
+
+**Transliteration:**
+Bismillah walajna, wa bismillah kharajna, wa 'ala Allahi rabbina tawakkalna.
+
+**Translation:**
+"In the name of Allah, we enter, and in the name of Allah, we exit, and upon Allah, our Lord, we place our trust."
+
+### Vocabulary Explained:
+- **بِسْمِ اللَّهِ (Bismillah)**: "In the name of Allah."
+- **وَلَجْنَا (walajna)**: "We enter."
+- **وَخَرَجْنَا (wa kharajna)**: "And we exit."
+- **عَلَى اللَّهِ (ala Allahi)**: "Upon Allah."
+- **رَبِّنا (rabbina)**: "Our Lord."
+- **تَوَكَّلْنَا (tawakkalna)**: "We place our trust."
+
+---
+
+### 🏡 Dua for Exiting the House
+
+**Arabic Text:**
+بِسْمِ اللَّهِ تَوَكَّلْتُ عَلَى اللَّهِ، لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِاللَّهِ
+
+**Transliteration:**
+Bismillah tawakkaltu 'ala Allah, la hawla wa la quwwata illa billah.
+
+**Translation:**
+"In the name of Allah, I place my trust in Allah; there is no might and no power except with Allah."
+
+### Vocabulary Explained:
+- **بِسْمِ اللَّهِ (Bismillah)**: "In the name of Allah."
+- **تَوَكَّلْتُ (tawakkaltu)**: "I place my trust."
+- **عَلَى اللَّهِ (ala Allahi)**: "Upon Allah."
+- **لَا حَوْلَ وَلَا قُوَّةَ (la hawla wa la quwwata)**: "There is no might and no power."
+- **إِلَّا بِاللَّهِ (illa billah)**: "Except with Allah."
+
+---
+
+### 📚 References
+
+1. [IslamicFinder - Duas Upon Entering Home](https://www.islamicfinder.org)
+2. [Islamic Path - Dua when Leaving the House](https://www.islamicpath.org)
+3. [Small Steps to Allah - Duas for Entering and Leaving Home](https://www.smallstepstoallah.com)
+
+These duas are important in Islamic practice, serving as a means of seeking Allah's protection and blessings as one enters or exits their home.
+]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]
+
 Here are the complete and authenticated supplications (duʿās) for:
 
 - **Entering the masjid (mosque)**
@@ -2536,6 +2590,16 @@ In the name of Allah. O Allah, I seek refuge with You from male and female devil
 **Translation:**  
 I ask You (Allah) for Your forgiveness.
 
+
+## 🕌 Duas for Entering and Exiting the House
+
+### 🏠 Dua for Entering the House
+بِسْمِ اللَّهِ وَلَجْنَا وَبِسْمِ اللَّهِ خَرَجْنَا وَعَلَى اللَّهِ رَبِّنا تَوَكَّلْنَا
+
+### 🏡 Dua for Exiting the House
+
+
+بِسْمِ اللَّهِ تَوَكَّلْتُ عَلَى اللَّهِ، لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِاللَّهِ
 
 
 
