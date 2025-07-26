@@ -3,6 +3,24 @@
 
 ## بِسْمِ اللَّهِ الرَّحْمَٰنِ الرَّحِيمِ
 
+Certainly! Here is the phrase **"بِإِذْنِ اللَّهِ تَعَالَى"** broken down **sentence first**, then its **easy translation**, followed by a **vocabulary table**:
+
+
+**بِإِذْنِ اللَّهِ تَعَالَى**
+
+### Translation (in English):  
+*By the permission of Allah, the Exalted.*
+
+### Vocabulary Table:
+
+| Arabic Word      | Meaning                | Notes                                      |
+|------------------|------------------------|--------------------------------------------|
+| بِ                | By / With              | A preposition indicating "by means of"    |
+| إِذْنِ            | Permission             | Permission, consent, or authorization      |
+| اللَّهِ           | Allah (God)            | The One True God                           |
+| تَعَالَى         | The Exalted / The Most High | A divine epithet signifying Allah's greatness and transcendence |
+
+
 ---
 Index
 - [Namaz](#Namaz-4-Rakat)
