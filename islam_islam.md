@@ -1213,32 +1213,25 @@ Just say the word.
 
 ### 🏠 Dua for Entering the House
 
+# **Hadith Translation with Full Reference**
+
+Narrated Jabir ibn ‘Abdillah (may Allah be pleased with him):
+
+The Messenger of Allah (ﷺ) said:
+
+**"When a man enters his house and does not mention Allah upon entering it, Shaytan says: ‘You have found an abode.’ And if he enters and does not mention Allah when he eats, Shaytan says: ‘You have found a place to stay and a meal.’"**  
+
+— Sahih Muslim, Book of Invocations (Kitab al-Da'awat), Hadith 2018 (Arabic numbering may vary)
+
+[Read the hadith on Sunnah.com](https://sunnah.com/muslim/48/158)
+
 **Arabic Text:**
-بِسْمِ اللَّهِ وَلَجْنَا وَبِسْمِ اللَّهِ خَرَجْنَا وَعَلَى اللَّهِ رَبِّنا تَوَكَّلْنَا
-
-**Transliteration:**
-Bismillah walajna, wa bismillah kharajna, wa 'ala Allahi rabbina tawakkalna.
-
-**Translation:**
-"In the name of Allah, we enter, and in the name of Allah, we exit, and upon Allah, our Lord, we place our trust."
-
-### Vocabulary Explained:
-- **بِسْمِ اللَّهِ (Bismillah)**: "In the name of Allah."
-- **وَلَجْنَا (walajna)**: "We enter."
-- **وَخَرَجْنَا (wa kharajna)**: "And we exit."
-- **عَلَى اللَّهِ (ala Allahi)**: "Upon Allah."
-- **رَبِّنا (rabbina)**: "Our Lord."
-- **تَوَكَّلْنَا (tawakkalna)**: "We place our trust."
-
----
+بِسْمِ اللَّهِ And Salam +
 
 ### 🏡 Dua for Exiting the House
 
 **Arabic Text:**
 بِسْمِ اللَّهِ تَوَكَّلْتُ عَلَى اللَّهِ، لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِاللَّهِ
-
-**Transliteration:**
-Bismillah tawakkaltu 'ala Allah, la hawla wa la quwwata illa billah.
 
 **Translation:**
 "In the name of Allah, I place my trust in Allah; there is no might and no power except with Allah."
@@ -2594,12 +2587,11 @@ I ask You (Allah) for Your forgiveness.
 ## 🕌 Duas for Entering and Exiting the House
 
 ### 🏠 Dua for Entering the House
-بِسْمِ اللَّهِ وَلَجْنَا وَبِسْمِ اللَّهِ خَرَجْنَا وَعَلَى اللَّهِ رَبِّنا تَوَكَّلْنَا
+بِسْمِ اللَّهِ 
 
 ### 🏡 Dua for Exiting the House
 
-
-بِسْمِ اللَّهِ تَوَكَّلْتُ عَلَى اللَّهِ، لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِاللَّهِ
+بِسْمِ اللَّهِ تَوَكَّلْـتُ عَلَى اللَّهِ، وَلاَ حَوْلَ وَلاَ قُـوَّةَ إِلاَّ بِاللَّهِ.
 
 
 
