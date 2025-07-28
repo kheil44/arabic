@@ -1206,6 +1206,96 @@ Just say the word.
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 # Duas All
+]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]
+The dua **اَلْحَمْدُ لِلّهِ الَّذِي كَسَانِي هَذَا (الثَّوْبَ) وَرَزَقَنِيهِ مِنْ غَـيـْرِ حَوْلٍ مِنِّي وَلَا قُـوَّةٍ** — "All praise is due to Allah who has clothed me with this garment and provided it for me without any power or might on my part" — appears in several authentic hadiths related to clothing.
+
+Here are the main hadith references where this or very similar duas appear, with full Arabic text, translation, and context:
+
+### 1. Sunan Abi Dawood, Hadith No. 4023  
+
+**الْحَمْدُ لِلَّهِ الَّذِي أَطْعَمَنِي هَذَا الطَّعَامَ وَرَزَقَنِيهِ مِنْ غَيْرِ حَوْلٍ مِنِّي وَلَا قُوَّةٍ**
+
+**Arabic:**  
+عَنْ سَهْلِ بْنِ مُعَاذِ بْنِ أَنَسٍ عَنْ أَبِيهِ، أَنَّ رَسُولَ اللَّهِ ﷺ قَالَ:  
+"مَن أَكَلَ طَعَامًا ثُمَّ قَالَ، الْحَمْدُ لِلَّهِ الَّذِي أَطْعَمَنِي هَذَا الطَّعَامَ وَرَزَقَنِيهِ مِنْ غَيْرِ حَوْلٍ مِنِّي وَلَا قُوَّةٍ، غُفِرَ لَهُ مَا تَقَدَّمَ مِنْ ذَنْبِهِ وَمَا تَأَخَّرَ. وَمَن لَبِسَ ثَوْبًا فَقَالَ: الْحَمْدُ لِلَّهِ الَّذِي كَسَانِي هَذَا الثَّوْبَ وَرَزَقَنِيهِ مِنْ غَيْرِ حَوْلٍ مِنِّي وَلَا قُوَّةٍ، غُفِرَ لَهُ مَا تَقَدَّمَ مِنْ ذَنْبِهِ وَمَا تَأَخَّرَ."  
+(حسن إسناداً - Al-Albani)
+
+**Transliteration:**  
+Man akala ta‘āman thumma qāla:  
+*Alhamdu lillāhi allathee aṭ‘amanī hādhā al-ṭa‘āma wa razaqanīhi min ghayri ḥawlin minnī wa lā quwwah, ghufira lahu mā taqaddama min dhanbihi wa mā ta’akhkhara.  
+Wa man labisa thawban faqāla:  
+Alhamdu lillāhi allathee kasānī hādhā al-thawba wa razaqanīhi min ghayri ḥawlin minnī wa lā quwwah, ghufira lahu mā taqaddama min dhanbihi wa mā ta’akhkhara.* 
+
+**Translation:**  
+The Messenger of Allah ﷺ said:  
+"Whoever eats food and says: 'Praise be to Allah who has fed me this food and provided it for me without any power or might on my part,' his past and future sins will be forgiven. And whoever puts on clothes and says: 'Praise be to Allah who has clothed me with this garment and provided it for me without any power or might on my part,' his past and future sins will be forgiven."  
+
+**Reference:**  
+[Sunan Abi Dawood 4023](https://sunnah.com/abudawud:4023) (graded Hasan by Al-Albani)
+
+### 2. Sunan Abi Dawood, Hadith No. 4020  
+**اللَّهُمَّ لَكَ الْحَمْدُ أَنْتَ كَسَوْتَنِي هَذَا، أَسْأَلُكَ مِنْ خَيْرِهِ وَخَيْرِ مَا صُنِعَ لَهُ، وَأَعُوذُ بِكَ مِنْ شَرِّهِ وَشَرِّ مَا صُنِعَ لَهُ**
+
+This hadith relates to dua for wearing **new clothes**, slightly longer version.
+
+**Arabic:**  
+عَنْ أَبِي سَعِيدٍ الْخُدْرِيِّ، قَالَ: "إِذَا لَبِسَ النَّبِيُّ ﷺ ثَوْبًا جَدِيدًا، ذَكَرَهُ بِالاسْمِ، كَانَتْ قَمِيصًا أَوْ عِمَامَةً، فَقَالَ:  
+اللَّهُمَّ لَكَ الْحَمْدُ أَنْتَ كَسَوْتَنِي هَذَا، أَسْأَلُكَ مِنْ خَيْرِهِ وَخَيْرِ مَا صُنِعَ لَهُ، وَأَعُوذُ بِكَ مِنْ شَرِّهِ وَشَرِّ مَا صُنِعَ لَهُ."
+
+**Transliteration:**  
+Ithā labisa al-Nabiyyu ﷺ thawban jadīdan dhakarahu bi al-ism, kānat qamīsan aw ‘imāmah, fa-qāla:  
+*Allahumma laka al-ḥamdu anta kasawtanī hādhā, as’aluka min khayrihi wa khayri mā ṣuni‘a lah, wa a‘ūdhu bika min sharrihi wa sharri mā ṣuni‘a lah.*
+
+**Translation:**  
+Abu Sa‘id al-Khudri said: When the Prophet ﷺ put on a new garment, whether it was a shirt or a turban, he would mention it by name, then say:  
+"O Allah, to You belongs all praise. You have clothed me with this garment. I ask You for its good and the good of that for which it was made, and I seek refuge in You from its evil and the evil of that for which it was made."
+
+**Reference:**  
+[Sunan Abi Dawood 4020](https://sunnah.com/abudawud:4020)
+
+### 3. Sunan al-Tirmidhi, Hadith No. 3560  
+**بِسْمِ اللّٰهِ**
+
+This hadith endorses the dua for wearing new clothes.
+
+**Arabic:**  
+قال النبي ﷺ:  
+"إذا لبست ثوبا جديدا فذكر اسم الله عليه."
+
+**Translation:**  
+The Prophet ﷺ said:  
+"When you wear new clothes, mention the name of Allah upon them."
+
+This hadith signals saying a dua upon wearing new clothes; scholars cite the dua mentioned in Abi Dawood as the one to recite.
+
+## Summary of Related Hadiths for the Dua:  
+| Hadith Collection         | Hadith No. | Core Content                                                                                              | Link                                  | Grade                |
+|--------------------------|------------|----------------------------------------------------------------------------------------------------------|-------------------------------------|----------------------|
+| Sunan Abi Dawood          | 4023       | Dua for wearing clothes ("Alhamdulillah... kasani hatha al-thawb...") forgiveness of sins promised      | [Sunan Abi Dawood 4023](https://sunnah.com/abudawud:4023) | Hasan (Al-Albani)     |
+| Sunan Abi Dawood          | 4020       | Dua for wearing new clothes; asking for its good and protection from evil                                | [Sunan Abi Dawood 4020](https://sunnah.com/abudawud:4020) | Sahih (scholarly consensus) |
+| Sunan al-Tirmidhi         | 3560       | Instruction to mention Allah's name on new clothes                                                       | [Sunan al-Tirmidhi 3560](https://sunnah.com/tirmidhi:3560) | Hasan                |
+
+### Additional Notes:
+
+- These duas emphasize gratitude to Allah for provision without any personal power or might.
+- The dua you asked about (اَلْحَمْدُ لِلّهِ الَّذِي كَسَانِي هَذَا الثَّوْبَ وَرَزَقَنِيهِ مِنْ غَيْرِ حَوْلٍ مِنِّي وَلَا قُوَّةٍ) is exactly the wording found in Sunan Abi Dawood 4023.
+- The dua for new clothes (Sunan Abi Dawood 4020) adds supplications for goodness and protection from harm related to the garment.
+- Both are authentic and practiced at the time of the Prophet Muhammad ﷺ.
+
+If you want, I can provide precise word-by-word vocabulary for these duas or more hadiths on related topics.
+
+Would you like me to do that?
+
+[1] https://preciousgemsfromthequranandsunnah.wordpress.com/2023/12/28/duas-related-to-clothing/
+[2] https://sunnah.com/abudawud/34
+[3] https://sunnah.com/abudawud:4023
+[4] https://www.eonlinequran.com/wp-content/uploads/2018/04/Sunan-Abu-Dawud-Volume-1.pdf
+[5] https://islamqa.org/hanafi/hadithanswers/122284/
+[6] https://hamariweb.com/islam/hadith/sunan-abu-dawood-4061/
+[7] https://hamariweb.com/islam/hadith/sunan-abu-dawood-4020/
+[8] https://hamariweb.com/islam/hadith/sunan-abu-dawood-4100/
+[9] https://hamariweb.com/islam/hadith/sunan-abu-dawood-4089/
+[10] https://www.islamicfinder.org/hadith/abu-dawud/clothing-kitab-al-libas/4020/
 
 
 ]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]
@@ -2620,6 +2710,20 @@ I ask You (Allah) for Your forgiveness.
 ### 🏡 Dua for Exiting the House
 
 بِسْمِ اللَّهِ تَوَكَّلْـتُ عَلَى اللَّهِ، وَلاَ حَوْلَ وَلاَ قُـوَّةَ إِلاَّ بِاللَّهِ.
+
+### Putting on / wearing clother;
+
+**الْحَمْدُ لِلَّهِ الَّذِي أَطْعَمَنِي هَذَا الطَّعَامَ وَرَزَقَنِيهِ مِنْ غَيْرِ حَوْلٍ مِنِّي وَلَا قُوَّةٍ**
+
+
+### if clothers are new
+
+**اللَّهُمَّ لَكَ الْحَمْدُ أَنْتَ كَسَوْتَنِي هَذَا، أَسْأَلُكَ مِنْ خَيْرِهِ وَخَيْرِ مَا صُنِعَ لَهُ، وَأَعُوذُ بِكَ مِنْ شَرِّهِ وَشَرِّ مَا صُنِعَ لَهُ**
+
+### _you should just genrally say_
+
+**بِسْمِ اللّٰهِ**
+
 
 
 
