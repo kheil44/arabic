@@ -2501,6 +2501,33 @@ May Allah bless your nights with peace and acceptance of your prayers and worshi
 
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
+Yes, there is an authentic hadith along those lines. The Prophet Muhammad (ﷺ) said:
+
+**"Whoever seeks forgiveness for the believing men and women, Allah will record a good deed for him by each man and woman."**
+
+— Reported by ‘Ubadah ibn al-Samit.  
+- Source: Musnad al-Shāmīyīn (al-Ṭabarānī), Hadith 2118.  
+- The hadith has been graded *hasan* (fair) by scholars such as Al-Albani in "Silsilat al-Ahadeeth as-Saheehah" and *jayyid* (very good) by Al-Haythami[3][6][1].
+
+For full text and reference:
+[Read detailed hadith on DailyHadithOnline](https://www.abuaminaelias.com/dailyhadithonline/2013/08/15/istighfar-for-the-believers/)  
+[See authentication and Arabic on abdurrahman.org](https://abdurrahman.org/2023/01/13/immense-reward-of-seeking-forgiveness-for-every-believer/)
+
+**Summary:**  
+- Reciting "O Allah, forgive the believing men and women" is highly meritorious—one good deed is written for every believing man and woman for you[1][3][6].
+
+This hadith is accepted and practiced by scholars and the Ummah, and its reward is immense and authentic.
+
+[1] https://preciousgemsfromthequranandsunnah.wordpress.com/2022/10/22/dua-seeking-forgiveness-for-the-muslims-which-leads-to-immense-rewards/
+[2] https://muwasala.org/2019/06/30/seek-forgiveness-for-the-believing-men-and-women/
+[3] https://www.abuaminaelias.com/dailyhadithonline/2013/08/15/istighfar-for-the-believers/
+[4] https://islamqa.info/en/answers/140798
+[5] https://hadithanswers.com/the-complete-narration-regarding-the-reward-for-asking-forgiveness-on-behalf-of-all-muslims/
+[6] https://abdurrahman.org/2023/01/13/immense-reward-of-seeking-forgiveness-for-every-believer/
+[7] https://m.islamqa.info/en/answers/140798/asking-forgiveness-for-all-muslims
+[8] https://sunnah.com/riyadussalihin/19
+[9] https://myislam.org/surah-ahzab/ayat-35/
+[10] https://www.aljumuah.com/allah-wants-to-forgive-you-maryam-amirebrahimi-2/
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
 
