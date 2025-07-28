@@ -1213,6 +1213,8 @@ Here are the main hadith references where this or very similar duas appear, with
 
 ### 1. Sunan Abi Dawood, Hadith No. 4023  
 
+https://youtu.be/QuLY_3ime5E?t=59
+
 **اَلْحَمْدُ لِلّهِ الَّذِي كَسَانِي هَذَا (الثَّوْبَ) وَرَزَقَنِيهِ مِنْ غَـيـْرِ حَوْلٍ مِنِّي وَلَا قُـوَّةٍ**
 
 **Arabic:**  
@@ -2712,6 +2714,8 @@ I ask You (Allah) for Your forgiveness.
 بِسْمِ اللَّهِ تَوَكَّلْـتُ عَلَى اللَّهِ، وَلاَ حَوْلَ وَلاَ قُـوَّةَ إِلاَّ بِاللَّهِ.
 
 ### Putting on / wearing clother;
+https://youtu.be/QuLY_3ime5E?t=59
+
 
 **اَلْحَمْدُ لِلّهِ الَّذِي كَسَانِي هَذَا (الثَّوْبَ) وَرَزَقَنِيهِ مِنْ غَـيـْرِ حَوْلٍ مِنِّي وَلَا قُـوَّةٍ**
 
