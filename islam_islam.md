@@ -36,9 +36,10 @@ shapes;;
 🕌 (Mosque) 🌙 (Crescent Moon) ⭐ (Star) 📖 (Open Book) 🙏 (Folded Hands) 🕋 (Kaaba) 🕊️ (Dove) 🌿 (Herb) 🕌🌙 (Mosque with Crescent Moon) 🧕 (Woman with Headscarf) 🧔 (Man with Beard) 🕌✨ (Mosque with Sparkles) 🌍 (Earth Globe) 🕯️ (Candle) 🧺 (Basket) 🌼 (Blossom) 🕌❤️ (Mosque with Heart)
 
  ☕   ⛐  ☢   ♻️ ⛤ ⛔ ♥ ★ ☆ ⛷ ☹ ☺ ☪ ☛ ☚ ☻ 💰💎 📈 🌟 🏆  🥇 💖 🎉 💝 🤠 🎩 🧢 ✦ ✦
- 🎓 📚 🏫 🏛️ 📖 ✏️ 📝 📅 🧑‍🎓 👩‍🏫 👨‍🏫 🔬 🔭 🌍 💻 📊 📈 📉 🧠 🗣️    🙏 👐 🤲 🕋 🌙
+ 🎓 📚 🏫 🏛️ 📖 ✏️ 📝 📅 🧑‍🎓 👩‍🏫 👨‍🏫 🔬 🔭 🌍 💻 📊 📈 📉 🧠 🗣️    🙏 👐 🤲 🕋 🌙 🌐 🖥️
 🟰🟰
 • • • • 
+
 
 ### ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
 
@@ -2734,7 +2735,67 @@ https://youtu.be/QuLY_3ime5E?t=59
 
 ---
 
+📚 🖥️📚 🖥️📚 🖥️📚 🖥️📚 🖥️📚 🖥️📚 🖥️📚 🖥️📚 🖥️📚 🖥️📚 🖥️📚 🖥️📚 🖥️📚 🖥️📚 🖥️
 
+### Online Library of Arabic(Islamic) literautre.
+
+You can access and download **Al-Maktaba al-Shamila** (المكتبة الشاملة), the comprehensive digital library of Islamic texts, from its official website:
+
+### How to Access and Download Al-Maktaba al-Shamila
+
+1. **Official Website:**  
+   Visit the website **[shamela.ws](https://shamela.ws)**  
+   This is the official site to read books online or download the software.
+
+2. **Downloading the Desktop Version:**  
+   - On the website, go to the **"تنزيل المكتبة" (Download Library)** section.  
+   - Choose the **نسخة الحاسوب** (Computer Version) suitable for Windows 7 and above.  
+   - The installer file is usually a few hundred MBs; you download the version released most recently, e.g., for Windows PC.
+
+3. **Mobile Apps:**  
+   - Al-Maktaba al-Shamila is also available as mobile apps for **Android** and **iOS** devices, available via app stores or the official website.
+
+4. **Using Without Downloading:**  
+   - The site allows online reading and searching books without downloading software.
+
+5. **Installation Instructions:**  
+   - After downloading the installer for PC, extract the files if needed.  
+   - Run the executable (.exe) file and follow on-screen instructions to install.  
+   - The software allows offline access to thousands of classical Islamic books in Arabic.
+
+### Additional Notes
+
+- The software covers thousands of books in various Islamic sciences including hadith, fiqh, tafsir, history, and language.  
+- The interface and books are primarily in Arabic.  
+- Minimum system requirements typically need Windows 7 or higher.
+
+### Helpful Video Tutorial  
+There are many helpful tutorials on YouTube. For example, this video shows step-by-step how to download and install the software:  
+[How to download and install Maktaba Shamila | Class 02](https://www.youtube.com/watch?v=ZyY5j_tOdsE)
+
+### Summary
+
+| Step                   | Description                                | Link/Notes                      |
+|------------------------|--------------------------------------------|--------------------------------|
+| Website                | Official website for download and reading | https://shamela.ws              |
+| Download PC version    | Choose "نسخة الحاسوب" download for Windows 7+ | Available on site under Downloads |
+| Install                | Extract downloaded file, run .exe to install | Follow prompts after download   |
+| Mobile apps            | Android and iOS apps available             | Via official site and app stores|
+| Online reading & search| Read books without download on website    | https://shamela.ws              |
+
+If you want, I can guide you through the download and installation process step-by-step or help you find specific books or categories inside Al-Maktaba al-Shamila. Would you like that?
+
+[1] https://en.wikipedia.org/wiki/Al-Maktaba_Al-Shamela
+[2] https://www.youtube.com/watch?v=ZyY5j_tOdsE
+[3] https://islaamiclibrary.wordpress.com/2009/03/01/thecomprehensivelibrary/
+[4] https://kitab-project.org/Al-Maktaba-al-Sh%C4%81mila-a-short-history/
+[5] https://islaamiclibrary.wordpress.com/genericlibraries/
+[6] https://shamela.amuslim.org/download.php
+[7] https://shamela.ws
+[8] https://shamela.org/page/docs/English_Books
+[9] https://shamela.ws/page/download
+
+📚 🖥️📚 🖥️📚 🖥️📚 🖥️📚 🖥️📚 🖥️📚 🖥️📚 🖥️📚 🖥️📚 🖥️📚 🖥️📚 🖥️📚 🖥️📚 🖥️📚 🖥️
 ---
 
 ---
