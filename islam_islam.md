@@ -598,8 +598,8 @@ Here is the **full story**, Arabic duʿāʾ, English translation, and **all majo
 
 ## 🟩 STEP 7: **Sitting (Jalsah) Between Sujoods**
 
-**اللَّهُمَّ اغْفِرْ لِي، وَارْحَمْنِي، وَاهْدِنِي، وَاجْبُرْنِي، وَارْزُقْنِي، وَعَافِنِي، وَاعْفُ عَنِّي**  
-*O Allah! Forgive me, have mercy on me, guide me, support me, provide for me, give me health, and pardon me.*
+**اللَّهُمَّ اغْفِرْ لِي، وَارْحَمْنِي، وَاهْدِنِي، وَاجْبُرْنِي، وَعَافِنِي، وَارْزُقْنِي، وَارْفَعْنِي**  
+*O Allah, forgive me, have mercy on me, guide me, strengthen me (or mend me), grant me well-being, provide for me, and raise me (in status).*
 
 📚 Abu Dawood 850 – Ḥasan
 
