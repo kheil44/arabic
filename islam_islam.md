@@ -2802,6 +2802,8 @@ If you want, I can guide you through the download and installation process step-
 ## Books
 📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚
 
+
+
 fiq of Salah
 https://www.kalamullah.com/Books/Fiqh%20of%20Salaah.pdf
 
@@ -2816,6 +2818,9 @@ https://data.nur.nu/Kutub/English/
 Al-Lulu Wal Marjan - Pearls & Corals (2 Vol. Set)
 
 https://www.kalamullah.com/pearls-corals.html
+
+A treasurey of Hadith : Ibn-Daqiq-al-Id
+https://data.nur.nu/Kutub/English/Ibn-Daqiq-al-Id_Sharh-al-Araba3in-al-Nawawiyya_trans-Mokrane-Guezzou_A-Treasury-of-Hadith.pdf
 
 
 https://www.reddit.com/r/islam/comments/rlpzo8/best_books_on_the_sirah_of_nabi_%EF%B7%BA/
