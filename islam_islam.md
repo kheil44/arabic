@@ -2802,6 +2802,36 @@ If you want, I can guide you through the download and installation process step-
 ## Books
 📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚
 
+https://kalamullah.com/tabari.html
+
+https://www.missionislam.com/knowledge/book.html
+
+https://aseelfoundation.com/wp-content/uploads/2022/02/Shafi_ee/Fiqh/6)%20Madkhal/The%20Four%20Imams/Abu%20Zahra,%20Muhammad%20-%20The%20Four%20Imams_%20Their%20Lives,%20Works,%20and%20Schools%20of%20Thought.pdf
+
+https://data.nur.nu/Kutub/English/
+
+Al-Lulu Wal Marjan - Pearls & Corals (2 Vol. Set)
+
+https://www.kalamullah.com/pearls-corals.html
+
+
+https://www.reddit.com/r/islam/comments/rlpzo8/best_books_on_the_sirah_of_nabi_%EF%B7%BA/
+
+man killed 99
+https://www.kalamullah.com/Books/the-explanation-of-the-hadith-of-the-man-who-killed-99-men.pdf
+
+Tafseer As-Sa'di (10 Volume Set)
+
+https://www.kalamullah.com/tafseer-as-sadi.html
+
+tafseer as saudi
+
+https://archive.org/details/quran-tafseer-as-sadi-vol-01-abdur-rahman-nasir-as-sadi/Quran%20Tafseer-As-Sadi-Vol%2001%20Abdur-Rahman%20Nasir%20as-Sadi/mode/2up?view=theater
+
+
+
+
+
 https://en.wikipedia.org/wiki/Siyar_A%27lam_al-Nubala%27
 
 Siyar A'lam al-Nubala' by Imam Shams ad-Dīn adh-Dhahabī (
@@ -2813,7 +2843,19 @@ same as above but
 https://darussalam.uk/products/the-noble-life-of-the-prophet-pbuh-3-volume-set?srsltid=AfmBOorj5UIOsysmfy5t_lskC7zQXvXuaJRuE3SaS8a0UQknFAFUpq6u
 
 
+https://www.kalamullah.com/Books/Zad-ul-Maad-Provisions-for-the-Hereafter-Vol.-1-Ibn-al-Qayyim.pdf
+
+
+
 📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚
+
+### _Not Books_
+
+https://context.reverso.net/translation/arabic-english/%D9%85%D9%85%D8%AA%D8%B9
+
+Arabic Dictionary;
+https://www.almaany.com/ar/dict/ar-ar/%D9%83%D9%8E%D8%A7%D9%86%D9%8E/
+
 
 ---
 
