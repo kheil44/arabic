@@ -2802,6 +2802,9 @@ If you want, I can guide you through the download and installation process step-
 ## Books
 📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚
 
+fiq of Salah
+https://www.kalamullah.com/Books/Fiqh%20of%20Salaah.pdf
+
 https://kalamullah.com/tabari.html
 
 https://www.missionislam.com/knowledge/book.html
