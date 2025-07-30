@@ -2803,8 +2803,13 @@ If you want, I can guide you through the download and installation process step-
 📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚
 
 
+Al-‘Umda fi’l-Fiqh (often abbreviated as Al-Umda), is a well-known foundational handbook of Hanbali fiqh (Islamic jurisprudence) authored by Imam Muwaffaq al-Din Abdullah ibn Ahmad ibn Muhammad ibn Qudama al-Maqdisi (A.H. 541–620).  88888 Also for Fiq of Salah  8888888 recommeded or used by  Shaykh Dr. Yasir Qadhi.
 
-fiq of Salah
+📚📚📚   https://www.kalamullah.com/Books/Umdat%20al-Fiqh.pdf
+
+
+
+📚📚📚📚📚📚  fiq of Salah
 https://www.kalamullah.com/Books/Fiqh%20of%20Salaah.pdf
 
 https://kalamullah.com/tabari.html
