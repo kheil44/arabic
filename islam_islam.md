@@ -2683,13 +2683,13 @@ Authenticity: Abu Dawud, Tirmidhi, classed as sahih.
 
 
 
-### 🚾 🚪 **Dua for Entering the Toilet**
+#### 🚾 🚪 **Dua for Entering the Toilet**
 
 **بِسْمِ اللَّهِ، اللَّهُمَّ إِنِّي أَعُوذُ بِكَ مِنَ الْخُبُثِ وَالْخَبَائِثِ**
 
 In the name of Allah. O Allah, I seek refuge with You from male and female devils (evil beings).
 
-### 🚾 🚪 **Dua for Exiting the Toilet**
+#### 🚾 🚪 **Dua for Exiting the Toilet**
 
 
 **غُفْرَانَكَ**
@@ -2701,26 +2701,26 @@ I ask You (Allah) for Your forgiveness.
 I seek Your forgiveness. All praise is for Allah who has removed harm from me and granted me relief.
 
 
-### 🏠 Dua for Entering the House
+#### 🏠 Dua for Entering the House
 
 **بِسْمِ اللَّهِ**
 
-### 🏡 Dua for Exiting the House
+#### 🏡 Dua for Exiting the House
 
 **بِسْمِ اللَّهِ تَوَكَّلْـتُ عَلَى اللَّهِ، وَلاَ حَوْلَ وَلاَ قُـوَّةَ إِلاَّ بِاللَّهِ.**
 
-### Putting on / wearing clother;
+#### Putting on / wearing clother;
 https://youtu.be/QuLY_3ime5E?t=59
 
 
 **اَلْحَمْدُ لِلّهِ الَّذِي كَسَانِي هَذَا (الثَّوْبَ) وَرَزَقَنِيهِ مِنْ غَـيـْرِ حَوْلٍ مِنِّي وَلَا قُـوَّةٍ**
 
 
-### if clothers are new
+#### if clothers are new
 
 **اللَّهُمَّ لَكَ الْحَمْدُ أَنْتَ كَسَوْتَنِيهِ، أَسْأَلُكَ مِنْ خَيْرِهِ وَخَيْرِ مَا صُنِعَ لَهُ، وَأَعُوذُ بِكَ مِنْ شَرِّهِ وَشَرِّ مَا صُنِعَ لَهُ**
 
-### _you should just genrally say_
+#### _you should just genrally say_
 
 **بِسْمِ اللّٰهِ**
 
