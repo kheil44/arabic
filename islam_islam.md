@@ -2545,9 +2545,10 @@ The Prophet (ﷺ) said:
 
 ## 9️⃣ Sleep Dua (Supplication) 🙌💫  
 
-Say:  
-**«اللَّهُمَّ بِاسْمِكَ أَمُوتُ وَأَحْيَا»**  
+**« بِاسْمِكَ اللَّهُمَّ أَمُوتُ وَأَحْيَا »**  
+
 *(“O Allah, in Your Name I live and die.”)*  
+
 — Riyadh as-Salihin, Hadith 816  
 [Source Link: IslamQA Explanation of Sleep Duas](https://islamqa.info/en/answers/145543/dua-before-sleeping-list-of-sound-hadiths)
 
