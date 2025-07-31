@@ -2678,9 +2678,9 @@ Authenticity: Abu Dawud, Tirmidhi, classed as sahih.
 #### Entering the Toilet
 
 **اللَّهُمَّ إِنِّي أَعُوذُ بِكَ مِنَ الْخُبُثِ وَالْخَبَائِثِ**
+
 “O Allah, I seek protection with You from evil and evil-doers (male and female Jinn).”
 
-Authenticity: Ṣaḥīḥ al-Bukhārī, Muslim.
 
 #### Entering the House
 
@@ -2691,8 +2691,8 @@ Authenticity: Ṣaḥīḥ al-Bukhārī, Muslim.
 
 
 ### 🚪 **Dua for Entering the Toilet**
+
 **بِسْمِ اللَّهِ، اللَّهُمَّ إِنِّي أَعُوذُ بِكَ مِنَ الْخُبُثِ وَالْخَبَائِثِ**
-**Translation:**  
 
 In the name of Allah. O Allah, I seek refuge with You from male and female devils (evil beings)[2][3][4][5][7][8].
 
