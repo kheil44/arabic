@@ -2640,79 +2640,87 @@ This hadith is accepted and practiced by scholars and the Ummah, and its reward 
 
 ---
 
+💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝
+
 ### _Random Temp_
 
-اللَّهُمَّ اغْفِرْ لِي ذَنْبِي كُلَّهُ، دِقَّهُ وَجِلَّهُ، وَأَوَّلَهُ وَآخِرَهُ، وَعَلاَنِيَتَهُ وَسِرَّهُ
+**اللَّهُمَّ اغْفِرْ لِي ذَنْبِي كُلَّهُ، دِقَّهُ وَجِلَّهُ، وَأَوَّلَهُ وَآخِرَهُ، وَعَلاَنِيَتَهُ وَسِرَّهُ**
 
 
-اللَّهُمَّ إِنِّي أَعُوذُ بِكَ مِنْ عَذَابِ جَهَنَّمَ،
+**اللَّهُمَّ إِنِّي أَعُوذُ بِكَ مِنْ عَذَابِ جَهَنَّمَ،
 وَمِنْ عَذَابِ الْقَبْرِ،
 وَمِنْ فِتْنَةِ الْمَحْيَا وَالْمَمَاتِ،
-وَمِنْ شَرِّ فِتْنَةِ الْمَسِيحِ الدَّجَّالِ
+وَمِنْ شَرِّ فِتْنَةِ الْمَسِيحِ الدَّجَّالِ**
 
 
-✨ 3. أَشْهَدُ أَنْ لا إِلَـهَ إِلاّ اللَّهُ وَحْدَهُ لا شَريكَ لَـهُ، وَأَشْهَدُ أَنَّ مُحَمَّداً عَبْدُهُ وَرَسُولُهُ
+**✨ 3. أَشْهَدُ أَنْ لا إِلَـهَ إِلاّ اللَّهُ وَحْدَهُ لا شَريكَ لَـهُ، وَأَشْهَدُ أَنَّ مُحَمَّداً عَبْدُهُ وَرَسُولُهُ**
 
 🕌 Entering the Masjid
 
-اللَّهُمَّ افْتَحْ لِي أَبْوَابَ رَحْمَتِكَ
+**اللَّهُمَّ افْتَحْ لِي أَبْوَابَ رَحْمَتِكَ**
 
 🕌 Exiting the Masjid
-اللَّهُمَّ إِنِّي أَسْأَلُكَ مِنْ فَضْلِكَ
+**اللَّهُمَّ إِنِّي أَسْأَلُكَ مِنْ فَضْلِكَ**
 
 
 Duʿāʾ after Eating
 
 Arabic:
-الْحَمْدُ لِلَّهِ الَّذِي أَطْعَمَنِي هذا، وَرَزَقَنِيهِ مِنْ غَيْرِ حَوْلٍ مِنِّي وَلَا قُوَّةٍ
+
+**الْحَمْدُ لِلَّهِ الَّذِي أَطْعَمَنِي هذا، وَرَزَقَنِيهِ مِنْ غَيْرِ حَوْلٍ مِنِّي وَلَا قُوَّةٍ**
+
 
 Translation:
 “All praise is for Allah, Who gave me this food and provided it for me, though I had no power or ability.”
 
-Leaving the House
+#### Leaving the House
 
-Arabic:
-بِسْمِ اللهِ تَوَكَّلْتُ عَلَى اللَّهِ، وَلَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِاللهِ
+**سْمِ اللهِ تَوَكَّلْتُ عَلَى اللَّهِ، وَلَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِاللهِ**
+
 “In the name of Allah, I place my trust in Allah, and there is no might nor power except with Allah.”
 Authenticity: Abu Dawud, Tirmidhi, classed as sahih.
-7. Entering the Toilet
 
-Arabic:
-اللَّهُمَّ إِنِّي أَعُوذُ بِكَ مِنَ الْخُبُثِ وَالْخَبَائِثِ
+#### Entering the Toilet
+
+**اللَّهُمَّ إِنِّي أَعُوذُ بِكَ مِنَ الْخُبُثِ وَالْخَبَائِثِ**
 “O Allah, I seek protection with You from evil and evil-doers (male and female Jinn).”
 
 Authenticity: Ṣaḥīḥ al-Bukhārī, Muslim.
 
-Entering the House
-Arabic:
+#### Entering the House
 
-بِسْمِ اللَّهِ، تَوَكَّلْتُ عَلَى اللَّهِ، وَلَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِاللَّهِ
-English:
+**بِسْمِ اللَّهِ، تَوَكَّلْتُ عَلَى اللَّهِ، وَلَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِاللَّهِ**
 
 “In the name of Allah, I place my trust in Allah, and there is no might nor power except with Allah.”
 
-Certainly! Here are the complete duas for **entering and exiting the toilet** in **bold Arabic with full harakat**, along with transliteration and clear translation.
+
 
 ### 🚪 **Dua for Entering the Toilet**
 **بِسْمِ اللَّهِ، اللَّهُمَّ إِنِّي أَعُوذُ بِكَ مِنَ الْخُبُثِ وَالْخَبَائِثِ**
 **Translation:**  
+
 In the name of Allah. O Allah, I seek refuge with You from male and female devils (evil beings)[2][3][4][5][7][8].
+
 ### 🚪 **Dua for Exiting the Toilet**
 
-**Arabic (with full harakat & bold):**
+
 **غُفْرَانَكَ**
 **Translation:**  
 I ask You (Allah) for Your forgiveness.
 
+#### _Or Longer version
 
-## 🕌 Duas for Entering and Exiting the House
+**غُفْرَانَكَ، الْحَمْدُ لِلَّهِ الَّذِي أَذْهَبَ عَنِّي الْأَذَى وَعَافَانِي**  
+I seek Your forgiveness. All praise is for Allah who has removed harm from me and granted me relief.
+
 
 ### 🏠 Dua for Entering the House
-بِسْمِ اللَّهِ 
+
+**بِسْمِ اللَّهِ**
 
 ### 🏡 Dua for Exiting the House
 
-بِسْمِ اللَّهِ تَوَكَّلْـتُ عَلَى اللَّهِ، وَلاَ حَوْلَ وَلاَ قُـوَّةَ إِلاَّ بِاللَّهِ.
+**بِسْمِ اللَّهِ تَوَكَّلْـتُ عَلَى اللَّهِ، وَلاَ حَوْلَ وَلاَ قُـوَّةَ إِلاَّ بِاللَّهِ.**
 
 ### Putting on / wearing clother;
 https://youtu.be/QuLY_3ime5E?t=59
@@ -2732,6 +2740,7 @@ https://youtu.be/QuLY_3ime5E?t=59
 
 
 
+💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝
 
 ---
 
