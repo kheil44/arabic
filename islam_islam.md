@@ -2653,22 +2653,19 @@ This hadith is accepted and practiced by scholars and the Ummah, and its reward 
 
 **✨ 3. أَشْهَدُ أَنْ لا إِلَـهَ إِلاّ اللَّهُ وَحْدَهُ لا شَريكَ لَـهُ، وَأَشْهَدُ أَنَّ مُحَمَّداً عَبْدُهُ وَرَسُولُهُ**
 
-🕌 Entering the Masjid
+#### 🕌 Entering the Masjid
 
 **اللَّهُمَّ افْتَحْ لِي أَبْوَابَ رَحْمَتِكَ**
 
-🕌 Exiting the Masjid
+#### 🕌 Exiting the Masjid
+
 **اللَّهُمَّ إِنِّي أَسْأَلُكَ مِنْ فَضْلِكَ**
+#### 🥙 Duʿāʾ after Eating
 
-
-Duʿāʾ after Eating
-
-Arabic:
 
 **الْحَمْدُ لِلَّهِ الَّذِي أَطْعَمَنِي هذا، وَرَزَقَنِيهِ مِنْ غَيْرِ حَوْلٍ مِنِّي وَلَا قُوَّةٍ**
 
 
-Translation:
 “All praise is for Allah, Who gave me this food and provided it for me, though I had no power or ability.”
 
 #### Leaving the House
