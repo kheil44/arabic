@@ -36,7 +36,7 @@ shapes;;
 🕌 (Mosque) 🌙 (Crescent Moon) ⭐ (Star) 📖 (Open Book) 🙏 (Folded Hands) 🕋 (Kaaba) 🕊️ (Dove) 🌿 (Herb) 🕌🌙 (Mosque with Crescent Moon) 🧕 (Woman with Headscarf) 🧔 (Man with Beard) 🕌✨ (Mosque with Sparkles) 🌍 (Earth Globe) 🕯️ (Candle) 🧺 (Basket) 🌼 (Blossom) 🕌❤️ (Mosque with Heart)
 
  ☕   ⛐  ☢   ♻️ ⛤ ⛔ ♥ ★ ☆ ⛷ ☹ ☺ ☪ ☛ ☚ ☻ 💰💎 📈 🌟 🏆  🥇 💖 🎉 💝 🤠 🎩 🧢 ✦ ✦
- 🎓 📚 🏫 🏛️ 📖 ✏️ 📝 📅 🧑‍🎓 👩‍🏫 👨‍🏫 🔬 🔭 🌍 💻 📊 📈 📉 🧠 🗣️    🙏 👐 🤲 🕋 🌙 🌐 🖥️
+ 🎓 📚 🏫 🏛️ 📖 ✏️ 📝 📅 🧑‍🎓 👩‍🏫 👨‍🏫 🔬 🔭 🌍 💻 📊 📈 📉 🧠 🗣️    🙏 👐 🤲 🕋 🌙 🌐 🖥️ 🚾 
 🟰🟰
 • • • • 
 
@@ -2675,13 +2675,6 @@ This hadith is accepted and practiced by scholars and the Ummah, and its reward 
 “In the name of Allah, I place my trust in Allah, and there is no might nor power except with Allah.”
 Authenticity: Abu Dawud, Tirmidhi, classed as sahih.
 
-#### Entering the Toilet
-
-**اللَّهُمَّ إِنِّي أَعُوذُ بِكَ مِنَ الْخُبُثِ وَالْخَبَائِثِ**
-
-“O Allah, I seek protection with You from evil and evil-doers (male and female Jinn).”
-
-
 #### Entering the House
 
 **بِسْمِ اللَّهِ، تَوَكَّلْتُ عَلَى اللَّهِ، وَلَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِاللَّهِ**
@@ -2690,17 +2683,16 @@ Authenticity: Abu Dawud, Tirmidhi, classed as sahih.
 
 
 
-### 🚪 **Dua for Entering the Toilet**
+### 🚾 🚪 **Dua for Entering the Toilet**
 
 **بِسْمِ اللَّهِ، اللَّهُمَّ إِنِّي أَعُوذُ بِكَ مِنَ الْخُبُثِ وَالْخَبَائِثِ**
 
-In the name of Allah. O Allah, I seek refuge with You from male and female devils (evil beings)[2][3][4][5][7][8].
+In the name of Allah. O Allah, I seek refuge with You from male and female devils (evil beings).
 
-### 🚪 **Dua for Exiting the Toilet**
+### 🚾 🚪 **Dua for Exiting the Toilet**
 
 
 **غُفْرَانَكَ**
-**Translation:**  
 I ask You (Allah) for Your forgiveness.
 
 #### _Or Longer version
