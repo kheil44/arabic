@@ -1387,8 +1387,6 @@ Here are the complete and authenticated supplications (duʿās) for:
 
 ## 🕌 Exiting the Masjid
 
-### Arabic (most authentic wording):
-
 **اللَّهُمَّ إِنِّي أَسْأَلُكَ مِنْ فَضْلِكَ**
 
 ### English Translation:
