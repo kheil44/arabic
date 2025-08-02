@@ -27,7 +27,7 @@ Index
 - [Duas for Wudu](#Wudu) ━━━━━- [Duas All](#Duas-All)
 - [Translations of Quran](#Translations-of-Quran) ━━━━━━━━ -
 - [Six Hadith](#Six-Hadith) ━━━━━━━━ -
-- [Random](#Random-Temp) ━━━━━━━━━ -
+- [Random](#Random-Temp) ━━━━━━━━━ - [Hadiths](#hadiths)
 - [Tabligh Jamat Ref](#Tabligh-Jamat) ━━━━━━━━  - [Books](#Books)
 
 ### ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
@@ -2869,6 +2869,10 @@ https://www.almaany.com/ar/dict/ar-ar/%D9%83%D9%8E%D8%A7%D9%86%D9%8E/
 
 
 ---
+
+### Hadiths
+
+https://sunnah.com/bukhari:6307
 
 
 ---
