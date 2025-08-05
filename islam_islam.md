@@ -2901,6 +2901,45 @@ https://sunnah.com/bukhari:6307
 
 ---
 
+☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆
+
+The difference between **أعوذ بالله** (*A‘ūdhu billāh*) and **نعوذ بالله** (*Na‘ūdhu billāh*) lies in the grammatical person and implication in Arabic:
+
+- **أعوذ بالله** (*A‘ūdhu billāh*) means **"I seek refuge in Allah."**  
+  This is a first-person singular form, used when an individual seeks protection personally.
+
+- **نعوذ بالله** (*Na‘ūdhu billāh*) means **"We seek refuge in Allah."**  
+  This is the first-person plural form, used when a group of people collectively seek refuge in Allah.
+
+In terms of usage, both are correct depending on the speaker and context. For example, when Quranic verses instruct to seek refuge, it may be in plural (we) or singular (I):
+
+- The Prophet Muhammad (peace be upon him) is reported to say **"A‘ūdhu billāh"** when seeking refuge in Allah for himself (singular).
+- Sometimes the collective form **"Na‘ūdhu billāh"** is used by groups or in formal invocation.
+
+Both phrases carry the exact meaning of seeking Allah’s protection from harm or evil, with the difference being singular or plural pronoun.
+
+### Summary:
+| Phrase          | Arabic          | Meaning                     | Usage                  |
+|-----------------|-----------------|-----------------------------|------------------------|
+| أعوذ بالله       | *A‘ūdhu billāh* | I seek refuge in Allah       | Singular / individual  |
+| نعوذ بالله       | *Na‘ūdhu billāh*| We seek refuge in Allah      | Plural / collective    |
+
+Both are commonly used in Islamic practice depending on who is speaking or being spoken for. The core meaning and invocation are the same: seeking Allah’s protection.
+
+[1] https://albayanalqurany.com/clause/%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%A7%D8%B3%D8%AA%D8%AE%D8%AF%D9%85-%D9%81%D8%B9%D9%84-%D8%A7%D8%B3%D8%AA%D8%B9%D8%B0-%D9%88%D9%84%D9%85-%D9%8A%D9%82%D9%84-%D8%A7%D9%84%D8%AC%D8%A3-%D8%A3%D9%88/
+[2] https://binbaz.org.sa/fatwas/8806/%D9%85%D8%B9%D9%86%D9%89-%D9%85%D9%86-%D9%87%D9%85%D8%B2%D9%87-%D9%88%D9%86%D9%81%D8%AE%D9%87-%D9%88%D9%86%D9%81%D8%AB%D9%87
+[3] https://iasj.rdd.edu.iq/journals/journal/issue/12738
+
+☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆
+
+The phrases **"Mā shāʾa Allāh" (ما شاء الله)** and **"Tabārak Allāh" (تبارك الله)** are both expressions of praise and blessing in Arabic with slightly different nuances:
+
+- **Mā shāʾa Allāh** literally means **"What Allah has willed"** or **"As Allah wills"**. It is often said to show appreciation or admiration for something good, while acknowledging that it happened by Allah’s will, and to protect against envy or the evil eye.
+
+- **Tabārak Allāh** means **"Blessed is Allah"** or **"Blessings of Allah"**. It is used to praise Allah’s greatness and the blessings He bestows.
+
+Together, saying **"Mā shāʾa Allāh, Tabārak Allāh"** expresses admiration and gratitude, recognizing both Allah’s will and His blessedness over the matter being praised. It is common when appreciating something beautiful, successful, or virtuous, as a way to honor Allah and seek continued blessings.
+
 
 ---
 
