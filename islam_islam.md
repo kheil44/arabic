@@ -2903,6 +2903,8 @@ https://sunnah.com/bukhari:6307
 
 ☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆☆
 
+#### _We are not Trusting Allah, We are testing Allah._
+
 The difference between **أعوذ بالله** (*A‘ūdhu billāh*) and **نعوذ بالله** (*Na‘ūdhu billāh*) lies in the grammatical person and implication in Arabic:
 
 - **أعوذ بالله** (*A‘ūdhu billāh*) means **"I seek refuge in Allah."**  
