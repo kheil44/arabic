@@ -342,5 +342,23 @@ Let me know if you want examples from specific hadith texts or more explanation 
 [9] https://www.numberanalytics.com/blog/ultimate-guide-to-hadith-in-islamic-studies
 [10] https://thethinkingmuslim.com/2021/06/21/51-short-hadiths-every-muslim-should-know/
 
+....
+#### Hadith about intention
+
+https://sunnah.com/bukhari:1
+
+Here is the hadith chain diagram for the famous "Actions are judged by intentions" hadith, with a **neat double arrow style ➡️➡️** as you requested:
+
+### _The following Hadith uputil Yahya ibn Sa'id al-Ansari has only one narrator in Evey Version of this Hadith.
+
+ **Prophet Muhammad ﷺ ➡️➡️ ‘Umar ibn al-Khattab ➡️➡️ Alqamah ibn Waqqas ➡️➡️ Muhammad ibn Ibrahim ➡️➡️ Yahya ibn Sa'id al-Ansari**
+..Then Yaya Narrated to about 400 other poeple e.go ...........................................➡️➡️➡️➡️ **Sufyan** ➡️➡️ Al-Humaidi Abdullah ibn al-Zubayr
+```
+
+
+
+....
+
+
 
 
