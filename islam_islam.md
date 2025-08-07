@@ -2861,6 +2861,7 @@ https://www.kalamullah.com/Books/Zad-ul-Maad-Provisions-for-the-Hereafter-Vol.-1
 
 Ash-Shifa is NOT a chronological biography [Sirah=usually is  chronological biography]. Instead, it is a comprehensive handbook devoted to describing the qualities, virtues, miracles, and rights of the Prophet Muhammad ﷺ. It focuses on extolling his noble attributes and spiritual stature as derived from the Qur’an, Hadith, and classical traditions. The book aims to deepen the reader's love, respect, and understanding of the Prophet’s unique position. It also addresses issues like defending his honor and clarifying his rights on Muslims.
 
+#### _Recommended by Yashir Qaid : according to him 'one of the blessed book on blessings of our Prophet pbuh'
 
 📚📚https://ia801303.us.archive.org/15/items/MuhammadMessengerOfAllahAshShifaOfQadiIyad/Muhammad%20Messenger%20of%20Allah%20-%20Ash-shifa%20of%20Qadi%20Iyad.pdf
 
