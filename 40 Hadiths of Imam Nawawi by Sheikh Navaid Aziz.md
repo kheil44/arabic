@@ -1,3 +1,6 @@
+### Imam Bukhari and Muslim didnt recomend using weak hadith at all, Muslim said there so many Sahih Hadith............
+
+
 ## 📚 Categories of Hadith
 
 In Islamic tradition, hadith (the sayings and actions of the Prophet Muhammad) are classified into several categories based on their authenticity and reliability. Here are the seven main categories:
