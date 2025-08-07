@@ -121,5 +121,68 @@ but some mention  that "...... the Left hand has given in charity." things like 
 
 These categories highlight the importance of justice, worship, charity, and sincere relationships in Islam. Those who embody these qualities are promised special favor and protection from Allah on the Day of Judgment. If you have any further questions or need more details, feel free to ask!
 
+...
+
+Here is a clear rewrite of Imam al-Bukhari’s well-known conditions for accepting a hadith as authentic (ṣaḥīḥ), now including authoritative sources and links for your reference:
+
+### Imam al-Bukhari’s Conditions for an Authentic Hadith
+
+1. **Continuity of the Chain (Ittisāl al-Sanad):**  
+   Every narrator must have directly heard from or met the person they narrate from, ensuring an unbroken and connected chain all the way back to the Prophet ﷺ. Imam Bukhari was known for meticulously verifying that narrators had physically met to transmit the hadith directly.  
+   [Source: Genius Journals - Imam Al-Bukhari and The Science of Hadith](https://geniusjournals.org/index.php/esh/article/download/1815/1620)
+
+2. **Trustworthiness and Integrity of Narrators (‘Adālah):**  
+   Every narrator must be an upright, truthful Muslim known for moral integrity and avoidance of major sins. If the narrator was found to have faults such as lying or major sins, Imam Bukhari would reject the hadith.  
+   [Source: Tharwah Journal - Methodology Study Hadith by Imam Bukhari](https://journal.iainlhokseumawe.ac.id/index.php/tharwah/article/download/583/1032/9796)
+
+3. **Accuracy and Precision (Ḍabṭ):**  
+   Narrators must have strong memory retention or precise written documentation to transmit the hadith exactly as received, without errors or forgetfulness. Imam Bukhari compared oral reports with written texts to ensure accuracy.  
+   [Source: IIIT - Authentication of Hadith (PDF)](https://iiit.org/wp-content/uploads/2018/07/books-in-brief_authentication_of_hadith.pdf)
+
+4. **Freedom from Anomaly (Ghayr Shadz):**  
+   The hadith must not contradict or deviate from more authentic hadith. A hadith is rejected if its text or chain conflicts with stronger narrations.  
+   [Source: Genius Journals](https://geniusjournals.org/index.php/esh/article/download/1815/1620)
+
+5. **Absence of Hidden Defects (‘Illah):**  
+   There must be no hidden flaws or defects in the chain or the text that could undermine the hadith’s authenticity, even if these defects are subtle or not immediately apparent.  
+   [Source: Islamic Journals PDF](https://www.islamicjournals.com/wp-content/uploads/2020/07/2.1.7.pdf)
+
+6. **Physical Meeting of Narrators:**  
+   Imam Bukhari required evidence that narrators had actually met each other to transmit the hadith directly rather than through hearsay. Mere hearing of a report without meeting was insufficient.  
+   [Source: Genius Journals](https://geniusjournals.org/index.php/esh/article/download/1815/1620)
+
+7. **Consistency of Text (Muqāranat al-Matn):**  
+   When discrepancies arose between oral narration and written documentation, Imam Bukhari preferred the written text as being more reliable and authoritative. This helped him maintain textual authenticity.  
+   [Source: Tharwah Journal](https://journal.iainlhokseumawe.ac.id/index.php/tharwah/article/download/583/1032/9796)
+
+These stringent criteria revolutionized hadith authentication, establishing **Sahih al-Bukhari** as the most trusted hadith collection.
+
+If you want more detailed scholarly studies or Arabic classical references, please let me know.
+
+**Summary references:**
+
+- Imam Al-Bukhari and The Science of Hadith (Genius Journals):  
+  https://geniusjournals.org/index.php/esh/article/download/1815/1620
+
+- Methodology Study Hadith by Imam Bukhari (Tharwah Journal):  
+  https://journal.iainlhokseumawe.ac.id/index.php/tharwah/article/download/583/1032/9796
+
+- Authentication of HADITH (IIIT PDF):  
+  https://iiit.org/wp-content/uploads/2018/07/books-in-brief_authentication_of_hadith.pdf
+
+- The Methodology of Compilation of Sahih Al Bukhari (Islamic Journals PDF):  
+  https://www.islamicjournals.com/wp-content/uploads/2020/07/2.1.7.pdf
+
+Let me know if I can assist you with more sources or explanations!
+
+[1] https://geniusjournals.org/index.php/esh/article/download/1815/1620
+[2] https://journal.iainlhokseumawe.ac.id/index.php/tharwah/article/download/583/1032/9796
+[3] https://iiit.org/wp-content/uploads/2018/07/books-in-brief_authentication_of_hadith.pdf
+[4] https://www.islamicjournals.com/wp-content/uploads/2020/07/2.1.7.pdf
+[5] https://ijor.co.uk/ijor/article/view/4098
+[6] https://yaqeeninstitute.org/read/paper/authenticating-hadith-and-the-history-of-hadith-criticism
+[7] https://alsalam.ac.uk/sahih-al-bukhari/
+[8] http://www.jatit.org/volumes/Vol96No15/25Vol96No15.pdf
+...
 
 
