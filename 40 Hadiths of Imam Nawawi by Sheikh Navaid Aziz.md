@@ -349,7 +349,11 @@ https://sunnah.com/bukhari:1
 
 Here is the hadith chain diagram for the famous "Actions are judged by intentions" hadith, with a **neat double arrow style ➡️➡️** as you requested:
 
-### _The following Hadith uputil Yahya ibn Sa'id al-Ansari has only one narrator in Evey Version of this Hadith.
+### _The following Hadith [from كتاب بدء الوحى ] uputil Yahya ibn Sa'id al-Ansari has only one narrator in Evey Version of this Hadith.
+### Imam Bukhari out of 400 version of this only chose the following one. the reason is 
+- that all the narrator are from the Land Of Wahi(Maka and Medina) not Sham etc.
+- Prophet Mohammed pbuh said Give Qurish preference hence the presence of 'Al-Humaidi Abdullah ibn al-Zubayr' in here.
+
 
  **Prophet Muhammad ﷺ ➡️➡️ ‘Umar ibn al-Khattab ➡️➡️ Alqamah ibn Waqqas ➡️➡️ Muhammad ibn Ibrahim ➡️➡️ Yahya ibn Sa'id al-Ansari**
 ..Then Yaya Narrated to about 400 other poeple e.go ...........................................➡️➡️➡️➡️ **Sufyan** ➡️➡️ Al-Humaidi Abdullah ibn al-Zubayr
