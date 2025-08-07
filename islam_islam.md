@@ -2892,6 +2892,11 @@ https://www.almaany.com/ar/dict/ar-ar/%D9%83%D9%8E%D8%A7%D9%86%D9%8E/
 
 https://sunnah.com/bukhari:6307
 
+- ... seek refuge with Allah from it and spit three times to your left ...
+- 
+https://sunnah.com/muslim:2203a
+
+
 
 ---
 
