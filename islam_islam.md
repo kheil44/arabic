@@ -57,6 +57,9 @@ shapes;;
 Ibn Taymiyya 
 https://en.wikipedia.org/wiki/Ibn_Taymiyya
 
+Imam al-Dhahabi:
+https://en.wikipedia.org/wiki/Al-Dhahabi
+
 Ibn al-Qayyim al-Jawziyya (student of Ibn Taymiyya)
 https://en.wikipedia.org/wiki/Ibn_Qayyim_al-Jawziyya
 
