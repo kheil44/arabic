@@ -2870,6 +2870,11 @@ Ash-Shifa is NOT a chronological biography [Sirah=usually is  chronological biog
 
 📚https://archive.org/details/shifa-by-qadi-iyyad/shifa-by-qadi-iyyad_arabic-english/mode/2up
 
+🤲 🤲 The book **Kitab al-Adhkar (The Book of Remembrances)** by **Imam Yahya ibn Sharaf al-Nawawi** is a classical and definitive compilation of Islamic **remembrances (dhikr)** and **supplications (du'a)** as taught by the Prophet Muhammad ﷺ.
+
+
+https://www.amazon.co.uk/Book-Remembrances-Kitab-Al-Adhkar/dp/1906949190
+
 
 📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚
 
