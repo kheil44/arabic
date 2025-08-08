@@ -586,5 +586,97 @@ lets say two person just donne wudu and pray 2 rakat, but one gets 3 times more 
 3- sunnah if its the right time for it.
 
 ---
+Yes — **"certainty is not voided by doubt"** is exactly the meaning of the fiqh maxim we just discussed.  
 
+In Arabic it is often phrased as:  
+
+> **اليقين لا يزول بالشك**  
+> (*al-yaqīn lā yazūl bish-shakk*)  
+> — *Certainty is not removed (or nullified) by doubt.*
+
+***
+
+### Meaning
+If something is established with certainty, later doubts do not change that ruling or state until you have **another certainty** to replace it.  
+
+Example:
+- You are certain you have *wudu*.
+- You later **doubt** whether you broke it.
+- You are still considered to have *wudu* — the doubt does not cancel the previous certainty.
+
+***
+
+### Proof from Hadith
+**1. Hadith about passing wind during prayer:**
+> The Prophet ﷺ said:  
+> *"If one of you feels something in his stomach and is unsure whether he passed wind or not, let him not leave (the prayer) until he hears a sound or smells an odor."*  
+> — **Sahih Muslim, Hadith 362**
+
+Here, *certainty* = you are in a state of wudu.  
+*doubt* = unsure if you broke it.  
+The Prophet ﷺ says to **act according to the certainty** until you have certain evidence otherwise.
+
+***
+
+**2. Hadith about doubt in prayer rak‘ahs:**
+> *"If one of you doubts in his prayer and does not know whether he has prayed three or four (rak‘ahs), let him cast aside doubt and base it on what he is certain of."*  
+> — **Sahih Muslim, Hadith 571**
+
+***
+
+### Summary Table
+
+| Principle                              | Arabic | Application Example |
+|----------------------------------------|--------|----------------------|
+| Certainty is not voided by doubt       | اليقين لا يزول بالشك | Still with wudu if only doubtful you broke it |
+| Only new certainty changes the ruling  |        | Redo wudu only when certain it’s broken |
+
+***
+
+If you’d like, I can prepare a **list of 4–5 daily life situations** where *al‑yaqīn lā yazūl bi‑shakk* applies, with the Quranic and hadith backing for each. Would you like me to do that?
+
+### but
+
+### lets say person enters mosqu but later doubts if he made wudu or not , he should do wudu.
+
+---
+
+
+---
+
+
+---
+
+
+---
+
+
+---
+
+
+---
+
+
+---
+
+
+---
+
+
+---
+
+
+---
+
+
+---
+
+
+---
+
+
+---
+
+
+---
 
