@@ -8,6 +8,10 @@ set of 8 books on aqeeda,fiq etc.
 
 https://www.youtube.com/watch?v=WCMnfwByZxA
 
+another book by classical writer i think, on the book of 40 Hadith by al nawawi;
+
+https://www.kalamullah.com/Books/collection%20of%20ilm.pdf
+
 
 #### books on Aqeedah should be starting point then Figh
 https://www.kalamullah.com/aqeedah.html
