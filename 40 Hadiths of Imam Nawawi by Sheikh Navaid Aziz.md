@@ -637,7 +637,8 @@ If you’d like, I can prepare a **list of 4–5 daily life situations** where *
 
 ### but
 
-### lets say person enters mosqu but later doubts if he made wudu or not , he should do wudu.
+#### lets say person enters mosqu but later doubts if he made wudu or not , he should do wudu.
+**Reason** is that the certainty he has that he does not have wudu, the Doubt he has that he might have wudu.
 
 ---
 
