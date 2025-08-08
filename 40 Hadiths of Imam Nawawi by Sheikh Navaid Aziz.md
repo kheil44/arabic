@@ -542,7 +542,49 @@ If you want, I can provide details on the significance or contents of any of the
 [9] https://darussalam.uk/products/summarized-sahih-muslim-2-volume-set-english
 
 
+Among the nine major hadith collections, **Imam al-Bukhari**, the compiler of *Sahih al-Bukhari*, recorded the most hadith narrations. His collection contains approximately **7,563 hadith narrations (including repetitions)** and is considered the most extensive and most authentic among the canonical books.[1][3]
+
+In comparison, for example, **Imam al-Tirmidhi's** *Jami’ al-Tirmidhi* contains roughly **4,400 hadiths** (including repetitions), which is less than half the size of *Sahih al-Bukhari*.[2][3]
+
+To summarize:
+
+| Compiler          | Collection(s)                                 | Approximate Number of Hadiths       |
+|-------------------|----------------------------------------------|------------------------------------|
+| Imam al-Bukhari   | Sahih al-Bukhari                             | ~7,563                             |
+| Imam Muslim       | Sahih Muslim                                 | Fewer than Bukhari, but highly authentic (exact figures vary) |
+| Abu Dawud         | Sunan Abi Dawud                              | Several thousand                   |
+| Al-Tirmidhi       | Jami’ al-Tirmidhi                            | ~4,400                            |
+| An-Nasa'i         | Sunan An-Nasa'i                             | Several thousand                   |
+| Ibn Majah         | Sunan Ibn Majah                             | Several thousand                   |
+| Malik ibn Anas     | Muwatta Imam Malik                            | Thousands but fewer than Bukhari  |
+| Al-Darimi         | Sunan ad-Darimi                              | Thousands                         |
+| Ahmad ibn Hanbal   | Musnad Ahmad ibn Hanbal                       | About 27,000 (including repetitions) but organized differently  |
+
+Note: Though *Musnad Ahmad* compiled by Ahmad ibn Hanbal is very large in terms of raw hadith count (around 27,000), it includes many repetitions and narrations collected by many narrators without strict filtration, unlike *Sahih al-Bukhari*, which has strict authenticity criteria.
+
+Therefore, in terms of curated authentic hadith in the context of the canonical nine books, **Imam al-Bukhari recorded the most hadith with rigorous authentication standards**.[3][1][2]
+
+If you want, I can also provide counts or detailed comparisons for the other collections.
+
+[1] https://en.wikipedia.org/wiki/Muhammad_al-Bukhari
+[2] https://daruliftaa.com/featured-articles/imam-tirmidhi-and-his-al-jami-al-sunan-%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9-%D8%A7%D9%84%D8%B3%D9%86%D9%86-%D9%84%D9%84%D8%A5%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AA%D8%B1%D9%85%D8%B0%D9%8A/
+[3] https://islamqa.info/en/answers/21523
+[4] https://journal.walisongo.ac.id/index.php/teologia/article/view/14418/pdf
+[5] https://en.wikipedia.org/wiki/Kutub_al-Sittah
+[6] https://authenticseerah.com/2020/05/11/brief-information-about-the-kutub-as-sitta-the-six-books-of-hadith/
+[7] https://ulumalhadith.com/the-commentaries-of-the-six-canonical-books-of-%E1%B8%A5adith/
+[8] https://www.thehouseofislam.com/hadiths
+[9] https://www.britannica.com/topic/al-kutub-as-sittah
+[10] https://www.reddit.com/r/AcademicQuran/comments/1eb5vt9/did_the_persians_compile_the_sahih_collections_to/
+
 ---
 
+benefits of intention;
+lets say two person just donne wudu and pray 2 rakat, but one gets 3 times more rewards with right intention.
+1- prayer of fresh/new wudu
+2- majid entering pray
+3- sunnah if its the right time for it.
+
+---
 
 
