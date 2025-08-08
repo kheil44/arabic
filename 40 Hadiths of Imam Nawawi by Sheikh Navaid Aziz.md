@@ -1,3 +1,16 @@
+---
+### How to start studying islam
+https://zad-academy.com/en
+
+https://www.youtube.com/@academyzaden/videos
+
+
+
+#### books on Aqeedah should be starting point then Figh
+https://www.kalamullah.com/aqeedah.html
+look for book by Author: Ibn Taymiyyah 
+
+
 ### _Figh books_
 
  **"Summary of Islamic Jurisprudence"** consistes of two volumes, its for readers without substantial background in this field.
@@ -12,6 +25,7 @@ https://adviceforparadise.com/media/books/Maxims_of_Fiqh_by_as-Sadi.pdf
 
 
 ### _Total Number of Authentic Hadith(meaning Sahih, Sahih li Ghayrihi, Hasan, Hasan  Ghayrihi) are 25,000 to 35,000.and they will be found in 6 books of Hadith, Bukhari etc_
+
 
 ---
 
