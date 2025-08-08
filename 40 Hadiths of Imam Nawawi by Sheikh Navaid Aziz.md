@@ -343,6 +343,7 @@ Let me know if you want examples from specific hadith texts or more explanation 
 [10] https://thethinkingmuslim.com/2021/06/21/51-short-hadiths-every-muslim-should-know/
 
 ....
+
 #### Hadith about intention
 
 https://sunnah.com/bukhari:1
@@ -357,13 +358,10 @@ Here is the hadith chain diagram for the famous "Actions are judged by intention
 
  **Prophet Muhammad ﷺ ➡️➡️ ‘Umar ibn al-Khattab ➡️➡️ Alqamah ibn Waqqas ➡️➡️ Muhammad ibn Ibrahim ➡️➡️ Yahya ibn Sa'id al-Ansari**
 ..Then Yaya Narrated to about 400 other poeple e.go ...........................................➡️➡️➡️➡️ **Sufyan** ➡️➡️ Al-Humaidi Abdullah ibn al-Zubayr
-```
 
 
 
-....
-
-video lactiaon;
+### _video lactiaon;
 
 https://youtu.be/MfsG8-Ica3M?list=PLANmApGKw_OoBaN2C0Y983cwJGL47842I&t=3510
 
@@ -374,6 +372,7 @@ Abdul Razaq al-San'ani (also spelled Abd al-Razzaq ibn Hammam al-San'ani) was a 
 
 ...
 
+### _classification of hadith._
 
 The classification of hadith based on the *number of narrators* in the chain starts with **Mutawatir** and then progresses to levels with fewer narrators and hence lesser certainty. This scheme is distinct from the earlier discussion, which focused on narrator reliability or integrity.
 
