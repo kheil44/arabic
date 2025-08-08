@@ -363,6 +363,14 @@ Here is the hadith chain diagram for the famous "Actions are judged by intention
 
 ....
 
+video lactiaon;
+
+https://youtu.be/MfsG8-Ica3M?list=PLANmApGKw_OoBaN2C0Y983cwJGL47842I&t=3510
+
+Qatada ibn Di'ama (also spelled Qatadah ibn Di'amah al-Sadusi),  ---> good scholar but he had issue with Qadr topics.
+
+Abdul Razaq al-San'ani (also spelled Abd al-Razzaq ibn Hammam al-San'ani) was a renowned 8th-9th century Yemeni hadith scholar born in 744 CE (126 AH) a
+---> married Shia woman.
 
 
-
+....
