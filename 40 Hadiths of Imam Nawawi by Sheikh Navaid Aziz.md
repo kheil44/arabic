@@ -370,7 +370,74 @@ https://youtu.be/MfsG8-Ica3M?list=PLANmApGKw_OoBaN2C0Y983cwJGL47842I&t=3510
 Qatada ibn Di'ama (also spelled Qatadah ibn Di'amah al-Sadusi),  ---> good scholar but he had issue with Qadr topics.
 
 Abdul Razaq al-San'ani (also spelled Abd al-Razzaq ibn Hammam al-San'ani) was a renowned 8th-9th century Yemeni hadith scholar born in 744 CE (126 AH) a
----> married Shia woman.
+===> married Shia woman.
+
+...
 
 
-....
+The classification of hadith based on the *number of narrators* in the chain starts with **Mutawatir** and then progresses to levels with fewer narrators and hence lesser certainty. This scheme is distinct from the earlier discussion, which focused on narrator reliability or integrity.
+
+**Main Levels of Hadith by Number of Narrators:**
+
+- **Mutawatir (متواتر):**  
+  Reported by such a large number of narrators in every generation of the chain that it is impossible for them to have colluded to fabricate it. Because of this mass transmission, *mutawatir* hadith provides certain knowledge and its authenticity is unquestionable. Denial of something established by a mutawatir hadith can be considered disbelief in mainstream Islamic theology.[1][2][3][5][6].
+
+==Example== ;;;;;
+
+*"Whoever tells a lie against me intentionally, then let him take his seat in Hellfire."*
+
+**References:**
+- Sahih al-Bukhari, Book 3, Hadith 106
+- Sahih al-Bukhari, Book 76, Hadith 173
+- Sahih Muslim, Book 1, Hadith 3[2][3]
+
+This wording is consistent across the major hadith collections (*Sahih al-Bukhari* and *Sahih Muslim*), both of which are considered the most authentic books after the Qur'an.[5][6]
+
+[1] https://www.thehouseofislam.com/hadiths
+[2] https://sunnah.com/bukhari
+[3] https://sunnah.com/muslim
+[4] https://en.wikipedia.org/wiki/Kutub_al-Sittah
+[5] https://en.wikipedia.org/wiki/Sahih_al-Bukhari
+[6] https://darussalam.com/sahih-muslim-english-arabic-7-volume-set/
+[7] http://hadithcollection.com/sahihbukhari
+
+- **Ahad (آحاد, Khabar Wahid):**  
+  Reported by fewer people so that mass collusion is not impossible; provides only probabilistic knowledge. *Ahad* is further subdivided:[3][5][1]
+  
+  - **Mashhur (مشهور, Famous):**  
+    Narrated by three or more people in every generation but not enough for mutawatir status.[5]
+  
+  - **Aziz (عزيز, Strong):**  
+    Narrated by at least two reporters in every generation of the chain.[5]
+  
+  - **Gharib (غريب, Strange):**  
+    Narrated by only one reporter at some point in the chain.[5]
+
+| Hadith Type | Definition | Number of Narrators |
+|-------------|------------|---------------------|
+| **Mutawatir**  | Mass transmitted, impossible to forge | Very large group, every generation |
+| **Mashhur**    | Famous, common knowledge | Three or more, every generation |
+| **Aziz**       | Strong, rare but supported by two | Two, every generation |
+| **Gharib**     | Strange, single transmission | Only one, at any stage |
+
+**Supporting Details and Application:**
+- *Mutawatir* is very rare; most hadith fall into the *ahad* category (including mashhur, aziz, gharib).[3]
+- Only *mutawatir* provides certainty; *ahad* (and its subtypes) provide probabilistic authenticity and may be subject to further scrutiny.[3][5]
+- The reliability and acceptability of hadith for establishing beliefs or legal rulings is strongly tied to this classification.[2]
+- Within *Ahad*, the gradation (Mashhur, Aziz, Gharib) is determined by counting narrators at each level in the isnad (chain of transmission).[5]
+
+This is the classification system that begins with **Mutawatir** and proceeds to graded levels based on the number of people reporting the narration.[6][1][5]
+
+[1] https://en.wikipedia.org/wiki/Categories_of_Hadith
+[2] https://islamanswers.co.uk/question/what-do-the-different-hadith-classification-terms-mean/
+[3] https://quran1book.wordpress.com/2020/11/18/mutawatir-and-ahaad-hadiths/
+[4] https://en.wikishia.net/view/Types_of_Hadiths
+[5] https://gtaf.org/blog/classification-types-of-hadith
+[6] https://en.wikipedia.org/wiki/Hadith_terminology
+[7] https://www.islam.org.uk/hadith/types-of-hadith/
+[8] https://qurantalkblog.com/2024/12/20/the-myth-of-mutawatir-hadith/
+[9] https://www.islamic-awareness.org/hadith/ulum/asb7
+
+...
+
+
