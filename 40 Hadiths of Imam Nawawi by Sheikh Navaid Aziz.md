@@ -1,3 +1,16 @@
+### _Figh books_
+
+ **"Summary of Islamic Jurisprudence"** consistes of two volumes, its for readers without substantial background in this field.
+ 
+https://www.kalamullah.com/Books/A%20Summary%20of%20Islamic%20Jurisprudence%202.pdf
+https://www.kalamullah.com/Books/A%20Summary%20of%20Islamic%20Jurisprudence%201.pdf
+
+
+QAWAED FIQHIYYAH
+
+https://adviceforparadise.com/media/books/Maxims_of_Fiqh_by_as-Sadi.pdf
+
+
 ### _Total Number of Authentic Hadith(meaning Sahih, Sahih li Ghayrihi, Hasan, Hasan  Ghayrihi) are 25,000 to 35,000.and they will be found in 6 books of Hadith, Bukhari etc_
 
 ---
@@ -641,7 +654,194 @@ If you’d like, I can prepare a **list of 4–5 daily life situations** where *
 **Reason** is that the certainty he has that he does not have wudu, the Doubt he has that he might have wudu.
 
 ---
+Certainly! Below is a detailed article on **Qawā‘id Fiqhiyyah (Islamic Legal Maxims)** with thorough explanations and examples to illustrate their significance and application in Islamic jurisprudence.
 
+***
+
+### Qawā‘id Fiqhiyyah (Islamic Legal Maxims): A Comprehensive Overview
+
+Islamic jurisprudence (*fiqh*) is a vast discipline that derives rulings from primary sources—the Qur'an and Sunnah—using various principles and methodologies. Among these guiding tools, **Qawā‘id Fiqhiyyah** or **Islamic legal maxims** stand out as succinct, universal principles derived from the Shariah that help in understanding, organizing, and applying Islamic legal rulings consistently and flexibly.
+
+***
+
+#### What are Qawā‘id Fiqhiyyah?
+
+The Arabic term **قواعد فقهية (Qawā‘id Fiqhiyyah)** literally means *jurisprudential rules* or *legal maxims*. These are:
+
+- **Concise, general rules** formulated from the Qur'an, Sunnah, and scholarly consensus (*ijma‘*).
+- Cover broad areas of law and apply to a wide range of specific issues.
+- Provide foundational guidelines ensuring *fiqh* rulings are coherent, easy to apply, and adaptable to new circumstances.
+- Serve as tools for **deduction, categorization, and synthesis** in Islamic legal reasoning.
+
+***
+
+#### Characteristics of Qawā‘id Fiqhiyyah
+
+1. **Rooted in the Texts**: Every maxim has a basis in authentic scriptural evidence—verses from the Qur’an or authentic hadiths.
+
+2. **Broad Applicability**: They apply to many instances rather than being limited to specific cases.
+
+3. **Concise and Clear**: Usually formulated in short, memorable phrases to aid jurists.
+
+4. **Assist in Legal Reasoning**: They simplify complex rulings and help resolve new issues by analogy or generalization.
+
+***
+
+#### The Five Universal Legal Maxims (Al-Qawā‘id al-Khamsah al-Kubrā)
+
+While there exist many fiqh maxims, the following five are traditionally regarded as the most foundational and universally accepted by classical and contemporary scholars:
+
+| Arabic Maxim                             | English Translation              | Explanation                                                          |
+|----------------------------------------|--------------------------------|----------------------------------------------------------------------|
+| **الأمور بمقاصدها (Al-Umur Bi Maqasidiha)**      | Matters Are Judged by Intentions | The ruling depends on the intention behind an action.                |
+| **اليقين لا يزول بالشك (Al-Yaqīn Lā Yazūl bi-Shakk)**  | Certainty is Not Overruled By Doubt | Established facts are not nullified by doubts or suspicions.        |
+| **المشقة تجلب التيسير (Al-Mashaqqah Tajlibu at-Taysīr)** | Hardship Begets Ease           | When hardship occurs, the law provides facilitation or leniency.    |
+| **الضرر يزال (Ad-Darar Yazāl)**                   | Harm Must Be Eliminated         | Harm must be removed or avoided in rulings.                         |
+| **العادة محكمة (Al-ʿĀdah Muḥakkamah)**             | Custom is Authoritative         | Customary practices can influence legal rulings unless contradicting texts.|
+
+***
+
+### Detailed Explanation and Examples of Select Maxims
+
+***
+
+#### 1. Matters Are Judged by Intentions  
+**Arabic:** *Al-Umur Bi Maqasidiha*  
+One of the most famous Islamic principles derived from a hadith of the Prophet Muhammad (ﷺ):  
+*"Actions are but by intentions, and every man shall have only that which he intended."* (Sahih al-Bukhari & Sahih Muslim)  
+
+**Explanation:**  
+The legal ruling and reward are based on *intention*. The same outward act may have different rulings and consequences depending on why a person does it.
+
+**Example 1:**  
+If a person prays to gain social status rather than to worship God sincerely, the validity and reward of the prayer are affected.
+
+**Example 2:**  
+Giving a voluntary charity (*sadaqah*) with the pure intention of helping the needy is rewarded, while doing it solely for showing off diminishes the reward or makes it void.
+
+***
+
+#### 2. Certainty is Not Overruled by Doubt  
+**Arabic:** *Al-Yaqīn Lā Yazūl bi-Shakk*  
+
+**Meaning:**  
+If a person is certain about a fact/state (like being in a state of ablution), mere doubt without proof does not change that.
+
+**Hadith Evidence:**  
+The Prophet (ﷺ) said:  
+*"If one of you feels something in his stomach and doubts whether he has passed wind or not, then he should not leave the mosque unless he hears its sound or smells its odor."* (Sahih Muslim)  
+
+**Example 1:**  
+A person performs *wudu* and later doubts whether it broke. They should consider themselves still purified until certain evidence proves otherwise.
+
+**Example 2:**  
+If a person is unsure whether they prayed 3 or 4 rak’ahs, they should base the prayer on the number they are sure of.
+
+***
+
+#### 3. Hardship Begets Ease  
+**Arabic:** *Al-Mashaqqah Tajlibu at-Taysīr*  
+
+**Meaning:**  
+When a strict rule causes undue hardship that a person cannot bear, Islamic law provides easier alternatives or exemptions.
+
+**Qur’anic Basis:**  
+*“Allah intends for you ease and does not intend for hardship for you...”* (Qur’an 2:185)  
+
+**Example 1:**  
+If a traveler cannot perform full prayers at their normal times, Islam allows shortening (*qasr*) and combining prayers.
+
+**Example 2:**  
+If water is unavailable or harmful to use for ablution, dry ablution (*tayammum*) is allowed.
+
+***
+
+#### 4. Harm Must Be Eliminated  
+**Arabic:** *Ad-Darar Yazāl*  
+
+**Meaning:**  
+Islamic rulings aim to eliminate or prevent harm to individuals and society.
+
+**Hadith Evidence:**  
+The Prophet Muhammad (ﷺ) said:  
+*"There should be neither harming nor reciprocating harm."* (Sunan Ibn Majah)  
+
+**Example 1:**  
+Drinking poison is forbidden because it causes harm.
+
+**Example 2:**  
+If a business contract causes harm to a party, remedies or cancellation may be allowed to prevent injustice.
+
+***
+
+#### 5. Custom is Authoritative  
+**Arabic:** *Al-ʿĀdah Muḥakkamah*  
+
+**Meaning:**  
+What is commonly practiced by a society and does not conflict with Islamic texts is taken into account in legal rulings.
+
+**Example 1:**  
+Local business practices may be accepted in contracts if they do not contradict Shariah.
+
+**Example 2:**  
+Marriage customs, like certain ceremonies or gift-giving traditions, may be recognized legally if not prohibited.
+
+***
+
+### The Role and Importance of Qawā‘id Fiqhiyyah
+
+- They provide **consistency** across diverse rulings.
+- Help address **new situations** by analogy and general principles.
+- Facilitate **ease of application** for judges, jurists, and laypeople.
+- Prevent **conflicts** between rulings and allow flexibility.
+- Aid in the **study and teaching** of fiqh, summarizing complex legal doctrine.
+
+***
+
+### Additional Examples Integrating Multiple Maxims
+
+**Example 1:**  
+A diabetic Muslim is unable to fast during Ramadan without harm (*harm must be eliminated*). Under *hardship begets ease*, they are permitted to delay or skip fasting until they can safely observe it.
+
+**Example 2:**  
+A Muslim forgets the number of rak’ahs prayed in salah and doubts if the wudu broke since leaving the house. They rely on *certainty overrules doubt*, continue prayer assuming wudu is valid, and act based on their certain knowledge.
+
+***
+
+### Sources and Further Reading
+
+- Classical manuals such as *Al-Ashbah wa al-Nazair* by Al-Suyuti
+- *Al-Qawā‘id al-Kubrā* (The Major Legal Maxims)
+- Modern academic theses and books on fiqh maxims
+- Primary sources: Qur’an, hadith collections, and scholarly commentaries
+
+***
+
+### Summary Table of Five Universal Maxims
+
+| Arabic Maxim                             | English Translation              |
+|----------------------------------------|--------------------------------|
+| الأمور بمقاصدها (Al-Umur Bi Maqasidiha)      | Matters Are Judged by Intentions |
+| اليقين لا يزول بالشك (Al-Yaqīn Lā Yazūl bi-Shakk)  | Certainty is Not Overruled By Doubt |
+| المشقة تجلب التيسير (Al-Mashaqqah Tajlibu at-Taysīr) | Hardship Begets Ease           |
+| الضرر يزال (Ad-Darar Yazāl)                   | Harm Must Be Eliminated         |
+| العادة محكمة (Al-ʿĀdah Muḥakkamah)             | Custom is Authoritative         |
+
+***
+
+If you want, I can provide further elaboration, more examples, or the original Arabic texts and detailed scholarly references.
+
+Would you like me to?
+
+[1] https://abmqurannotes.com/wp-content/uploads/2021/07/QAWAED-FIQHIYYAH-ENGLISH.pdf
+[2] https://ijtihadnet.com/al-qawaid-al-fiqhiyyah-islamic-legal-maximspdf/
+[3] https://www.studocu.com/my/document/universiti-sultan-zainal-abidin/qawaid-fiqhhiyyah/review-questions-qawaid-fiqhiyyah/117173071
+[4] https://www.smahate.com/islamic-classes/2012-summer/al-qawaaid-al-fiqhiyyah
+[5] https://www.scribd.com/presentation/334612503/Full-Compilation-Qawaid-Fiqhiyyah
+[6] https://alhidaayah.com/wp-content/uploads/2021/12/Study-Guide-Al-Qawaid-Al-Fiqhyah_Part-2.pdf
+[7] https://www.slideshare.net/slideshow/islamic-legal-maxims-qawaid-fiqhiyyah/70592755
+[8] https://www.muslim-library.com/dl/books/English_Legal_Maxims_of_Islamic_Jurisprudence.pdf
+[9] https://iaif.ir/images/khareji/articles/other/58.pdf
 
 ---
 
