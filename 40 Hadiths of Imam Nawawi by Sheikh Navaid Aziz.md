@@ -4,6 +4,9 @@ https://zad-academy.com/en
 
 https://www.youtube.com/@academyzaden/videos
 
+set of 8 books on aqeeda,fiq etc.
+
+https://www.youtube.com/watch?v=WCMnfwByZxA
 
 
 #### books on Aqeedah should be starting point then Figh
