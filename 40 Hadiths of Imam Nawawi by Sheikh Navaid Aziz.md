@@ -1,7 +1,37 @@
+### _Total Number of Authentic Hadith(meaning Sahih, Sahih li Ghayrihi, Hasan, Hasan  Ghayrihi) are 25,000 to 35,000.and they will be found in 6 books of Hadith, Bukhari etc_
+
+---
+
+The term **"Sahihain"** (الصحيحين) refers to the two most authentic and authoritative collections of hadith in Sunni Islam: **Sahih al-Bukhari** and **Sahih Muslim**. These two books are highly respected and considered the most reliable sources of the sayings, actions, and approvals of Prophet Muhammad (ﷺ). Together, they form the core of authentic hadith literature in Islam.
+
+- **Sahih al-Bukhari** was compiled by Imam Muhammad al-Bukhari and consists of hadiths that meet his strict criteria of authenticity.
+- **Sahih Muslim** was compiled by Imam Muslim ibn al-Hajjaj and similarly includes hadiths that meet rigorous standards of reliability.
+
+Because both collections only include *sahih* (authentic) hadith, they are often collectively called *Sahihain*, meaning "the two sahihs" or "the two authentic ones".[2][7]
+
+These two collections contain thousands of hadiths that form the primary foundation for Islamic theology, law, and practice among Sunni Muslims.[1][3]
+
+In summary, **Sahihain** means the combined pair of Sahih al-Bukhari and Sahih Muslim, regarded as the most authentic hadith compilations in Sunni Islam.
+
+[1] https://en.wikipedia.org/wiki/Sahih_Hadith
+[2] https://sunnah.com/muslim
+[3] https://www.islamicity.org/insights/insight/55/514
+[4] https://en.wikipedia.org/wiki/Hadith
+[5] https://almuslih.org/blog/2024/06/09/the-sahih-hadith-collections-between-sunnis-and-shiis/
+[6] https://www.islam.org.uk/hadith/types-of-hadith/
+[7] https://islamreigns.wordpress.com/2017/10/15/different-types-of-hadith-collections-like-jaami-muwatta-sunan-etc/
+[8] https://www.islamiccentre.org/presentations/SahihHadith.pdf
+[9] https://mohamedghilan.wordpress.com/2012/02/19/the-hadith-collection-and-importance/
+
+---
+
+
 ### Imam Bukhari and Muslim didnt recomend using weak hadith at all, Muslim said there so many Sahih Hadith............
 
 
 ## 📚 Categories of Hadith
+
+## the following order is not right compare to Aziz. its Sahih, Sahih li Ghayrihi, Hasan, Hasan and finally li Ghayrihi
 
 In Islamic tradition, hadith (the sayings and actions of the Prophet Muhammad) are classified into several categories based on their authenticity and reliability. Here are the seven main categories:
 
@@ -438,5 +468,81 @@ This is the classification system that begins with **Mutawatir** and proceeds to
 [9] https://www.islamic-awareness.org/hadith/ulum/asb7
 
 ...
+
+
+---
+
+
+The term **"Ashab al-Sunan"** can be understood as those early narrators prominently featured in the **Sunan** collections like Sunan Abu Dawud, Sunan al-Tirmidhi, Sunan al-Nasa'i, Sunan Ibn Majah, and others, often including prominent companions and early followers who actively narrated legal and practical traditions of the Prophet.
+
+Regarding your second query which seems to be "Arba’ Rawhu al-Arba’" or similar (likely **Arba' Rawaat al-Arba’** or **Arba’ Ruwat al-Arba’**), this refers to the grouping often titled:
+
+- **"The Four Narrators" (Arba’ Rawaat)** or
+- **"The Four Great Narrators"**
+
+
+In summary:
+
+| Term                 | Meaning                                           |
+|----------------------|--------------------------------------------------|
+| **Ashab al-Sunan**   | Early narrators, companions and followers, whose hadith were collected in the major Sunan books |
+| **Arba’ Rawaat al-Arba’** | The four major narrators or transmitters of hadith from Tabi‘un generation, core to hadith preservation |
+
+If you want, I can provide more detailed names or elaboration based on classical hadith science or specific texts. Let me know!
+
+[1] https://blog.fussilat.com/applied-usul-al-hadith/
+[2] http://www.twelvershia.net/2013/07/20/the-narrators-amongst-the-companions/
+[3] https://beneficialknowledge.co.uk/introduction-to-hadith/
+[4] https://en.wikipedia.org/wiki/Hadith
+[5] https://mahajjah.com/why-do-we-trust-a-sahabis-narration/
+[6] https://www.shiachat.com/forum/topic/234977355-reliance-on-narrators/
+[7] https://www.smahate.com/islamic-classes/2010-fall/uloom-al-hadith-fall-2010
+
+---
+
+When someone refers to the **7 books of hadith**, they generally mean a set of highly respected hadith collections that extend beyond the famous six canonical Sunni collections known as the *Kutub al-Sittah*. The term for these 7 books isn't standardized universally, but often when the 7 books are mentioned, it includes the traditional six plus one additional important work such as *Muwatta Imam Malik* or another major collection.
+
+Similarly, the **9 books of hadith** refer to an expanded group that includes:
+
+- The six canonical books (*Kutub al-Sittah*):  
+  1. Sahih al-Bukhari  
+  2. Sahih Muslim  
+  3. Sunan al-Nasa'i  
+  4. Sunan Abi Dawud  
+  5. Sunan al-Tirmidhi  
+  6. Sunan Ibn Majah  
+
+- Plus three additional significant collections such as:  
+  7. Muwatta Imam Malik  
+  8. Sunan ad-Darimi  
+  9. Musnad Ahmad ibn Hanbal
+
+These nine books are often referenced in scholarly indexing like the hadith concordance *Al-Mu’jamul Mufahras li Alfadhil Hadithin Nabawi* and represent a very comprehensive range of hadith literature that covers a broad spectrum of narrations and topics.
+
+### Summary Table:
+
+| Number of Books | What They Are Called      | Main Books Included                                   |
+|-----------------|--------------------------|------------------------------------------------------|
+| **6 books**     | *Kutub al-Sittah* (Six Canonical Books) | Sahih al-Bukhari, Sahih Muslim, Sunan an-Nasa'i, Sunan Abi Dawud, Sunan al-Tirmidhi, Sunan Ibn Majah |
+| **7 books**     | Sometimes *Seven Books* or a variant | The six above plus Muwatta Malik or another collection like Musnad Ahmad     |
+| **9 books**     | Commonly just "Nine Books of Hadith" | The six canonical plus Muwatta Malik, Sunan ad-Darimi, Musnad Ahmad           |
+
+So when you hear references to the "7 books" or "9 books" of hadith, they're describing extended canonical groupings of hadith collections beyond the core six, including some of the earliest and most comprehensive hadith works^.[1][2][3]
+
+If you want, I can provide details on the significance or contents of any of these collections as well.
+
+[1] https://www.thehouseofislam.com/hadiths
+[2] https://en.wikipedia.org/wiki/Kutub_al-Sittah
+[3] https://hadithanswers.com/the-nine-books-of-hadith/
+[4] https://en.wikipedia.org/wiki/List_of_hadith_books
+[5] https://www.askourimam.com/2016/04/06/the-six-authentic-books-of-hadith/
+[6] https://sadrululama.com/blogs/news/types-of-hadith-books
+[7] https://www.islamicfinder.org/hadith/bukhari/
+[8] https://studioarabiya.com/hadith-books/
+[9] https://darussalam.uk/products/summarized-sahih-muslim-2-volume-set-english
+
+
+---
+
 
 
