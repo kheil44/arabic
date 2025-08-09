@@ -2897,6 +2897,21 @@ https://sunnah.com/bukhari:6307
 https://sunnah.com/muslim:2203a
 
 
+https://sunnah.com/muslim:918b
+The hadith that supports saying **"إِنَّا لِلَّٰهِ وَإِنَّا إِلَيْهِ رَاجِعُونَ"** along with **"اللَّهُمَّ أَجِرْنِي فِي مُصِيبَتِي وَاخْلُفْ لِي خَيْرًا مِنْهَا"** comes from Umm Salamah (may Allah be pleased with her) and is recorded in Sahih Muslim. The Prophet Muhammad (peace be upon him) said:
+
+*"Whenever a Muslim is afflicted with a calamity and says what Allah commanded him to say: 'Indeed we belong to Allah and to Him we shall return. O Allah, reward me for my affliction and replace it for me with something better,' Allah will surely compensate him with something better."*
+
+
+[1] https://www.rahiqacademy.com/when-to-say-innalillahi-wa-innailaihi-rojiun/
+[2] https://www.farhathashmi.com/articles-section/belief-and-introspection/inna-lillaahi/
+[3] https://ask.ismailignosis.com/article/112-tawil-of-to-allah-we-belong-and-to-him-we-return
+[4] https://www.iium.edu.my/deed/lawbase/fiqh_us_sunnah/vol4/fsn_vol4a.html
+[5] https://sunnah.com/riyadussalihin:921
+[6] https://www.islamweb.net/en/fatwa/169403/when-to-say-inna-lilaahi-wa-inna-ilayhi-raajioon
+[7] https://www.reddit.com/r/islam/comments/173f7x1/apparently_you_can_say_inna_lillahi_wa_inna/
+[8] https://www.islamweb.net/en/article/182969/when-to-say-inna-lilaahi-wa-inna-ilayhi-raajioon
+
 
 ---
 
