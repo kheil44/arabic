@@ -828,6 +828,59 @@ This will show you how each verb form changes the **meaning** depending on the *
 Want me to build flashcards or visual drills for each form where you match the intent, pattern, and meaning? We’ll turn this map into fluent conversation power 🚀📘🗣️.
 
 ### ---------------------------------------------
+Got it — you want **the same 20 diminutive words** from the last list, but **with the method/pattern used** to form them, so you can see exactly *how* each noun was changed into its diminutive form.  
+
+In Arabic grammar, **التصغير** (*al‑taṣghīr*, diminutive) works mainly by:  
+
+1. **Identifying the root letters** of the noun (usually 3 for basic words).  
+2. **Placing the letters into one of the tasghīr patterns** — most often **فُعَيْل** (*fuʿayl*) for triliteral nouns.  
+3. Adding or adjusting vowels and sometimes inserting a **yā’ (ي)** after the second radical to indicate “smallness.”  
+
+Here’s the **table** with:  
+- Original word  
+- Meaning  
+- Diminutive form  
+- Pattern used  
+- Explanation of transformation  
+
+***
+
+| Original Word | Meaning | Diminutive | Pattern | Explanation |
+|---------------|---------|-----------|---------|-------------|
+| كلب (*kalb*) | dog | كُلَيْب (*kulayb*) | فُعَيْل (*fuʿayl*) | Root ك ل ب → add damma on first letter, insert ي before last |
+| كتاب (*kitāb*) | book | كُتَيِّب (*kutayyib*) | فُعَيِّل (*fuʿayyil*) | Root ك ت ب → doubling of middle root for broken plural form adjustment |
+| جبل (*jabal*) | mountain | جُبَيْل (*jubayl*) | فُعَيْل | Root ج ب ل → standard triliteral pattern |
+| بيت (*bayt*) | house | بُيَيْت (*buyayt*) | فُعَيْيِل (*fuʿayyīl*) | Root ب ي ت → has weak middle letter (yāʾ), adjust vowels |
+| ولد (*walad*) | boy | وُلَيْد (*wulayid*) | فُعَيْل | Root و ل د → w becomes consonant, apply fuʿayl |
+| بنت (*bint*) | girl | بُنَيْت (*bunayt*) | فُعَيْل | Root ب ن ت → normal triliteral tasghīr |
+| نجم (*najm*) | star | نُجَيْم (*nujaym*) | فُعَيْل | Root ن ج م → standard triliteral pattern |
+| قلم (*qalam*) | pen | قُلَيْم (*qulaym*) | فُعَيْل | Root ق ل م → same fuʿayl |
+| شجر (*shajar*) | tree | شُجَيْر (*shujayr*) | فُعَيْل | Root ش ج ر → standard fuʿayl |
+| طير (*ṭayr*) | bird | طُيَيْر (*ṭuyayr*) | فُعَيْل | Root ط ي ر → middle weak letter pattern adjustment |
+| عين (*ʿayn*) | eye/spring | عُيَيْن (*ʿuyayn*) | فُعَيْل | Root ع ي ن → middle weak, follow fuʿayl |
+| رجل (*rajul*) | man | رُجَيْل (*rujayl*) | فُعَيْل | Root ر ج ل → standard triliteral |
+| قمر (*qamar*) | moon | قُمَيْر (*qumayr*) | فُعَيْل | Root ق م ر → standard triliteral |
+| طريق (*ṭarīq*) | road | طُرَيِّق (*ṭurayyq*) | فُعَيِّل | Root ط ر ق → pattern altered for quadriliteral-like form |
+| كتابي (*kitābī*) | my book | كُتَيِّبِي (*kutayyibī*) | فُعَيِّل + ياء المتكلم | Diminutive of كتاب (*kutayyib*) + suffix for “my” |
+| حصان (*ḥiṣān*) | horse | حُصَيْن (*ḥuṣayn*) | فُعَيْل | Root ح ص ن → standard triliteral |
+| يد (*yad*) | hand | يُدَيِّة (*yudayya*) | فُعَيِّة (*fuʿayyyah*) | Feminine triliteral, add tāʾ marbūṭa |
+| مسجد (*masjid*) | mosque | مُسَيْجِد (*musayjid*) | مُفَيْعِل (*mufayʿil*) | Quadriliteral-type derivative: prefix retained |
+| قلم رصاص (*qalam raṣāṣ*) | pencil | قُلَيْم رُصَيِّص (*qulaym ruṣayyis*) | فُعَيْل + فُعَيِّل | Diminutive for each word separately |
+| طاولة (*ṭāwila*) | table | طُوَيْلَة (*ṭuwayla*) | فُعَيْلَة (*fuʿaylah*) | Feminine form from triliteral root ط و ل |
+
+***
+
+**Key patterns used:**
+- **فُعَيْل (fuʿayl)** — most common for 3-letter words.
+- **فُعَيِّل (fuʿayyil)** — used for certain forms, especially with doubled middle consonants or derived patterns.
+- **فُعَيْلَة (fuʿaylah)** — feminine version.
+- **مُفَيْعِل (mufayʿil)** — for certain derived forms starting with a prefix (like *masjid*).
+
+***
+
+If you like, I can also **write a compact step-by-step guide** so you can *take any noun and form its diminutive* yourself.  
+
+Do you want me to prepare that next?
 
 ### ---------------------------------------------
 
