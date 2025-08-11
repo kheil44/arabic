@@ -175,6 +175,17 @@ These sources provide comprehensive and authentic historical information about h
 [9] https://openresearch-repository.anu.edu.au/items/f07f4564-f23c-4e56-9315-f1f7e70c82b4
 
 ---
+### Abudula Ibn Az Zubayr
+
+done Tawaf swiming when macca was flooded
+https://youtu.be/xx00bAv5fXE?list=PLfp2JeoDQyGPLP0yPqC_klq03JuvBlEQp&t=1263
+
+ibn Abi mulaika?? said He used to fast multiple days in a row non-stop
+he fasted 7 days nonstop, he was still the strongest of us
+https://youtu.be/xx00bAv5fXE?list=PLfp2JeoDQyGPLP0yPqC_klq03JuvBlEQp&t=1396
+
+Mujahid ra said he did once for 15 days and it was in summer in Macca.
+
 
 ---
 
