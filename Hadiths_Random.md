@@ -146,6 +146,62 @@ Let me know how else I can assist you.
 
 ---
 
+Abdullah ibn al-Zubayr (May 624 – 692 CE) was a prominent Sahabi and leader who opposed the Umayyad caliphate, establishing his own caliphate in Mecca from 683 until his death. He was the first child born to the Muhajirun (early Muslim emigrants) in Medina, grandson of Abu Bakr, and known for his piety and political leadership during the Second Fitna. Refusing to pledge allegiance to Yazid ibn Mu'awiya, he resisted Umayyad rule, which culminated in a siege of Mecca led by Al-Hajjaj ibn Yusuf under Caliph Abd al-Malik. Ibn al-Zubayr was killed in the 692 siege, and his death marked the end of his rival caliphate. His legacy includes his efforts to restore the political and religious significance of the Hejaz region and his close association with Mecca.
+
+**References for further study:**
+
+- Wikipedia overview: Abd Allah ibn al-Zubayr [en.wikipedia.org/wiki/Abd_Allah_ibn_al-Zubayr][1]
+- Encyclopaedia Britannica biography and history [britannica.com/biography/Abd-Allah-ibn-al-Zubayr][3]
+- Wikishia detailed biography [en.wikishia.net/view/Abd_Allah_b._al-Zubayr][2]
+- Academic thesis on his caliphate career [openresearch-repository.anu.edu.au/bitstreams/36ee64e0-ba6a-4513-9ab0-8004ef7256ef/download][5]
+- Blackstone House Publications (overview) [blackstonehouse.com/blog/2020/12/10/abdullah-ibn-zubayr-ra][6]
+
+These sources provide comprehensive and authentic historical information about his life, leadership, and martyrdom.  
+
+: https://en.wikipedia.org/wiki/Abd_Allah_ibn_al-Zubayr[1]
+: https://en.wikishia.net/view/Abd_Allah_b._al-Zubayr[2]
+: https://www.britannica.com/biography/Abd-Allah-ibn-al-Zubayr[3]
+: https://openresearch-repository.anu.edu.au/bitstreams/36ee64e0-ba6a-4513-9ab0-8004ef7256ef/download[5]
+: https://www.blackstonehouse.com/blog/2020/12/10/abdullah-ibn-zubayr-ra[6]
+
+[1] https://en.wikipedia.org/wiki/Abd_Allah_ibn_al-Zubayr
+[2] https://en.wikishia.net/view/Abd_Allah_b._al-Zubayr
+[3] https://www.britannica.com/biography/Abd-Allah-ibn-al-Zubayr
+[4] http://www.thenoblequran.com/sps/downloads/pdf/SRH020001.pdf
+[5] https://openresearch-repository.anu.edu.au/bitstreams/36ee64e0-ba6a-4513-9ab0-8004ef7256ef/download
+[6] https://www.blackstonehouse.com/blog/2020/12/10/abdullah-ibn-zubayr-ra
+[7] https://mahajjah.com/the-life-and-martyrdom-of-zubayr-ibn-al-awwam/
+[8] https://wajibad.wordpress.com/2013/04/28/abdullah-ibn-zubayr/
+[9] https://openresearch-repository.anu.edu.au/items/f07f4564-f23c-4e56-9315-f1f7e70c82b4
+
+---
+
+---
+
+---
+
+---
+
+---
+
+---
+
+---
+
+---
+
+---
+
+---
+
+---
+
+---
+
+---
+
+---
+
 ---
 
 ---
