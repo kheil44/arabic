@@ -189,8 +189,24 @@ Mujahid ra said he did once for 15 days and it was in summer in Macca.
 
 ---
 
+
+
+
 ## Abdullah ibn Masood (RA)
 
+**Abdullah ibn Masood (RA)** will l
+
+https://youtu.be/FBKcLGsCGCw?list=PLfp2JeoDQyGPLP0yPqC_klq03JuvBlEQp&t=835
+
+would learn the Quran being the
+companions of the Prophet s wasallam we
+would take 10 verses 10 ayat at a time we
+would memorize them learn their
+recitation understand their meanings and
+understand how to act by them.
+
+wouldn't move on to the next 10 10 ay
+until we finish doing that for the those
 
 Here is an authentic article-style presentation regarding Abdullah ibn Masood (RA) and the Quran, including his method of recitation and his teachings, with verified Hadith translations and references without modification:
 
