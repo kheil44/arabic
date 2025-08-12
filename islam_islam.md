@@ -1485,7 +1485,7 @@ If you want each duʿāʾ visually separated or with more advanced vocabulary pa
 
 
 
-####  How to praise Allah before making Dua Proper etiquette of making Dua 
+####  How to praise Allah before making Dua Proper etiquette of making Dua , after Salah
 https://www.youtube.com/watch?v=42DsXENKySo
 
 ### ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
@@ -2760,7 +2760,8 @@ https://youtu.be/QuLY_3ime5E?t=59
 **بِسْمِ اللّٰهِ**
 
 ### ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
-probably one of the most comprehensive duas in sirah of Prophet Mohammed pbuh
+probably one of the most comprehensive duas in sirah of Prophet Mohammed pbuh, after Salah
+
 https://youtu.be/FBKcLGsCGCw?list=PLfp2JeoDQyGPLP0yPqC_klq03JuvBlEQp&t=953
 
 
