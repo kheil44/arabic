@@ -1490,6 +1490,34 @@ https://www.youtube.com/watch?v=42DsXENKySo
 
 ### ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
 
+#### probably one of the most comprehensive dua in Sirah;
+
+https://youtu.be/FBKcLGsCGCw?list=PLfp2JeoDQyGPLP0yPqC_klq03JuvBlEQp&t=953
+
+
+### **Arabic (with full harakat and bold):**
+
+**ٱللَّهُمَّ إِنِّي أَسْأَلُكَ ٱلْهُدَىٰ وَٱلتُّقَىٰ وَٱلْعَفَافَ وَٱلْغِنَىٰ**
+
+---
+
+### Reference:
+
+Reported by ‘Abdullah bin Mas’ud (may Allah be pleased with him):  
+The Prophet Muhammad (ﷺ) used to supplicate:  
+**“Allahumma inni as’alukal-huda, wat-tuqa, wal-‘afafa, wal-ghina.”**  
+(Source: Sahih Muslim, Riyad as-Salihin, Hadith 1468)
+
+---
+
+### English Translation:
+
+**"O Allah, I ask You for guidance, piety, chastity, and self-sufficiency."**
+
+
+
+### ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
+
 link to hadith;
 
 https://sunnah.com/bukhari:1120
@@ -2731,10 +2759,25 @@ https://youtu.be/QuLY_3ime5E?t=59
 
 **بِسْمِ اللّٰهِ**
 
+### ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
+probably one of the most comprehensive duas in sirah of Prophet Mohammed pbuh
+https://youtu.be/FBKcLGsCGCw?list=PLfp2JeoDQyGPLP0yPqC_klq03JuvBlEQp&t=953
+
+
+
+**ٱللَّهُمَّ إِنِّي أَسْأَلُكَ ٱلْهُدَىٰ وَٱلتُّقَىٰ وَٱلْعَفَافَ وَٱلْغِنَىٰ**
+
+### English Translation:
+
+**"O Allah, I ask You for guidance, piety, chastity, and self-sufficiency."**
+
 
 
 
 💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝
+🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
+🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
+🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
 ---
 
