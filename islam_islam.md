@@ -1213,6 +1213,65 @@ Just say the word.
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 # Duas All
+
+---
+Here are authentic hadith references that mention or support the supplication:
+
+***
+
+### Arabic Supplication (with full Harakat and Bold):
+**ٱللَّهُمَّ أَلِّفْ بَيْنَ قُلُوبِنَا وَأَصْلِحْ ذَاتَ بَيْنِنَا وَاهْدِنَا سُبُلَ السَّلَامِ وَنَجِّنَا مِنَ الظُّلُمَاتِ إِلَى النُّورِ وَجَنِّبْنَا الْفَوَاحِشَ مَا ظَهَرَ مِنْهَا وَمَا بَطَنَ وَبَارِكْ لَنَا فِيْ أَسْمَاعِنَا وَأَبْصَارِنَا وَقُلُوبِنَا وَأَزْوَاجِنَا وَذُرِّيَّاتِنَا وَتُبْ عَلَيْنَا إِنَّكَ أَنْتَ التَّوَّابُ الرَّحِيمُ وَاجْعَلْنَا شَاكِرِينَ لِنِعْمَتِكَ مُثْنِينَ بِهَا قَابِلِينَ لَهَا وَآتِمَّهَا عَلَيْنَا**
+
+***
+
+### English Translation:
+"O Allah, unite (harmonize) our hearts, rectify our mutual affairs, guide us to the ways of peace, save us from the darkness into the light, protect us from all immorality, visible and hidden, and bless us in our hearing, sight, hearts, spouses, and offspring. Turn to us in mercy; surely You are the Acceptor of Repentance, the Merciful. Make us grateful for Your favors, thankful for them, accepting them fully, and perfect them upon us."
+
+***
+
+### Authentic Hadith References and Resources:
+
+1. **Reported from Abdullah ibn Mas'ud (may Allah be pleased with him):**  
+The Prophet Muhammad (ﷺ) taught this supplication to be said after tashahhud.  
+- This narration is mentioned in hadith commentaries and scholarly collections.  
+- See detailed explanation and authentication at:  
+  https://dorar.net/hadith/sharh/132222  
+  https://kalemtayeb.com/safahat/item/3168
+
+2. **Mention in Islamic scholarly resources and fatawa:**  
+- It is recognized as a Prophetic supplication taught to companions with strong endorsement.  
+- Islamic experts like Sheikh Ibn Baz have recommended its frequent use for peace and harmony.  
+- Resource: https://www.islamweb.net/ar/fatwa/210115/%D8%AF%D8%B9%D8%A7%D8%A1-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D9%84%D9%81%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%82%D9%84%D9%88%D8%A8
+
+3. **Additional comments and teaching reports:**  
+- Scholarly collections mention: "كان رسول الله -صلى الله عليه وسلم- يعلمهم من الدعاء بعد التشهد..." including this dua.  
+- Archived Islamic book forum references: https://al-maktaba.org/book/31621/57974
+
+4. **YouTube lecture discussing its authenticity and usage:**  
+- Sheikh Zaid Al Bahri discussing authenticity:  
+https://www.youtube.com/watch?v=tJkT0P0kA0Q
+
+***
+
+These resources confirm that the dua is authentically linked to the Prophet (peace be upon him) and specifically taught to be recited after tashahhud in prayer, with its chain linked through Abdullah ibn Mas'ud among others.
+
+If you want, I can provide direct hadith text or chains of narration (isnad) as well.
+
+Would you like that?
+
+[1] https://huffpostarabi.com/8828/%D8%AA%D8%AC%D8%B1%D8%A8%D8%AA%D9%8A-%D9%85%D8%B9-%D8%AF%D8%B9%D8%A7%D8%A1-%D8%A7%D9%84%D9%84%D9%87%D9%85-%D8%A3%D9%84%D9%81-%D8%A8%D9%8A%D9%86-%D9%82%D9%84%D9%88%D8%A8%D9%86%D8%A7-%D9%88%D8%A3%D8%B5/
+[2] https://kalemtayeb.com/safahat/item/3168
+[3] https://dorar.net/hadith/sharh/132222
+[4] https://sunnah.com/search?q=%D8%A7%D9%84%D9%84%D9%87%D9%85+%D8%A3%D9%84%D9%81+%D8%A8%D9%8A%D9%86+%D9%82%D9%84%D9%88%D8%A8%D9%86%D8%A7+%D9%88%D8%A3%D8%B5%D9%84%D8%AD+%D8%B0%D8%A7%D8%AA+%D8%A8%D9%8A%D9%86%D9%86%D8%A7
+[5] https://www.islamweb.net/ar/fatwa/210115/%D8%AF%D8%B9%D8%A7%D8%A1-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D9%84%D9%81%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%82%D9%84%D9%88%D8%A8
+[6] https://www.youtube.com/watch?v=tJkT0P0kA0Q
+[7] https://al-maktaba.org/book/31621/57974
+[8] https://www.islamweb.net/ar/library/content/94/533/%D8%A8%D9%8A%D8%A7%D9%86-%D9%88%D8%AC%D9%88%D8%A8-%D8%A7%D9%84%D8%AA%D8%B4%D9%87%D8%AF
+[9] https://shamela.ws/book/96549/458
+
+---
+
+
 ]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]]
 The dua **اَلْحَمْدُ لِلّهِ الَّذِي كَسَانِي هَذَا (الثَّوْبَ) وَرَزَقَنِيهِ مِنْ غَـيـْرِ حَوْلٍ مِنِّي وَلَا قُـوَّةٍ** — "All praise is due to Allah who has clothed me with this garment and provided it for me without any power or might on my part" — appears in several authentic hadiths related to clothing.
 
