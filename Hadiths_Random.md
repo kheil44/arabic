@@ -305,6 +305,51 @@ This article strictly reflects authentic Hadith texts without modification and p
 
 ---
 
+Ibrahim al-Nakha'i, said that cos of Abdullah ibn Mas'ud in Kufa, 15,00 fifteen hundereds sahaba, they took up residencne in Kufa, among them 70 verteran of Badr and 300 of them from Bayat ul Ridwan.
+
+video [rewind a bit]
+https://youtu.be/a0nYlGp4v1M?list=PLfp2JeoDQyGPLP0yPqC_klq03JuvBlEQp&t=683
+
+
+
+**Bayat ul Ridwan**, also known as the "Pledge of Ridwan" or "**Pledge of the Tree**," is a historic and significant event in early Islamic history where the companions (Sahaba) of the Prophet Muhammad (peace be upon him) swore allegiance to him under a tree near Mecca before the Treaty of Hudaybiyyah in the year 628 CE (6 AH).
+
+### What Happened in Bayat ul Ridwan:
+- When the Prophet sent Uthman ibn Affan as an emissary to Mecca to negotiate with the Quraysh, the Quraysh detained Uthman.
+- Hearing about this, the Prophet feared that hostility might break out, so he gathered his companions near Mecca and sought their pledge to remain steadfast, support him, and be ready to fight to defend the cause, even to the point of death.
+- The companions placed their hands in the hand of the Prophet, swearing this solemn oath of allegiance.
+- Just as they pledged, Uthman returned safely, and battle was averted, but the pledge demonstrated their commitment.
+- Allah revealed the verse commemorating this event:  
+  **"Certainly Allah was pleased with the believers when they pledged allegiance to you, [O Muhammad], under the tree, and He knew what was in their hearts, so He sent down tranquillity upon them and rewarded them with an imminent conquest."** (Qur'an, Surah Al-Fath 48:18)
+
+### Meaning of Bayat ul Ridwan:
+- It is a pledge or oath of allegiance (bay'ah) demonstrating total loyalty, readiness to sacrifice, and firm belief.
+- The name "Ridwan" means "satisfaction" or "pleasure," indicating Allah’s pleasure with those who took this pledge.
+- This pledge is symbolic of unwavering faith and unity of the early Muslim community in the face of adversity.
+
+### Key Points:
+- It is one of the rare instances mentioned explicitly in the Qur'an for which Allah’s pleasure was declared on His believers.
+- Also known as the "Pledge of the Tree" because it took place under a tree near Hudaybiyyah.
+- It emphasizes the importance of solidarity and commitment to leadership and faith.
+
+### Authentic Sources and Further Reading:
+- Quranic verse Surah Al-Fath (48:18): [Islamicstudies.info link](https://islamicstudies.info/reference.php?sura=48&verse=18)  
+- Detailed article on the pledge and its significance: [Radiance of Islam](https://radianceofislam.wordpress.com/2013/12/15/bayah-the-necessity-of-a-spiritual-guidemurshid-explained-through-quran-ahadith/)  
+- Historical narrative and explanation: [Rasoulallah.net](https://rasoulallah.net/en/articles/article/24082)  
+- Overview on Wikipedia: [Bay'ah - Wikipedia](https://en.wikipedia.org/wiki/Bay'ah)  
+- Video explaining the Bayat al-Ridwan event: [YouTube explanation](https://www.youtube.com/watch?v=lEz8GWPXWwU)
+
+In summary, Bayat ul Ridwan is a landmark moment showcasing the sincere commitment of the Prophet’s companions, earning Allah’s pleasure as explicitly mentioned in the Qur'an.
+
+[1] https://radianceofislam.wordpress.com/2013/12/15/bayah-the-necessity-of-a-spiritual-guidemurshid-explained-through-quran-ahadith/
+[2] https://www.youtube.com/watch?v=lEz8GWPXWwU
+[3] https://rasoulallah.net/en/articles/article/24082
+[4] https://islamicstudies.info/reference.php?sura=48&verse=18
+[5] https://en.wikishia.net/view/Pledge_of_al-Ridwan
+[6] https://en.wikipedia.org/wiki/Bay'ah
+[7] https://www.fatemidawat.com/teachings/our-identity/bayat-al-ridwan-the-misaaq-that-garnered-allahs-pleasure
+[8] https://islamqa.info/en/answers/319233
+
 ---
 
 ---
