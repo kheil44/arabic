@@ -352,6 +352,9 @@ In summary, Bayat ul Ridwan is a landmark moment showcasing the sincere commitme
 
 ---
 
+ **Golden Chain**
+https://youtu.be/a0nYlGp4v1M?list=PLfp2JeoDQyGPLP0yPqC_klq03JuvBlEQp&t=903
+
 
 ## 🟨 Side-by-Side Comparison of Hadith Chains
 
