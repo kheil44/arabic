@@ -352,6 +352,15 @@ In summary, Bayat ul Ridwan is a landmark moment showcasing the sincere commitme
 
 ---
 
+
+## 🟨 Side-by-Side Comparison of Hadith Chains
+
+| Chain | Region | School | Full Names | Notes |
+|---|---|---|---|---|
+| **Madinan Golden Chain** | Madinah | Mālikī / Shāfiʿī | **Imām Mālik ibn Anas** → **Nāfiʿ ibn Sarjis ad‑Daylamī (Mawlā Ibn ʿUmar)** → **ʿAbdullāh ibn ʿUmar ibn al‑Khattāb** → **Prophet Muḥammad ﷺ** | Called *Silsilat al‑Dhahab* (Golden Chain) by scholars like al‑Bukhārī due to unmatched reliability. |
+| **Hanafi Kufan Chain** | Kufa | Ḥanafī | **Ibrāhīm ibn Yazīd al‑Nakhaʿī** → **ʿAlqamah ibn Qays al‑Nakhaʿī** → **ʿAbdullāh ibn Masʿūd** → **Prophet Muḥammad ﷺ** | Hanafi “Golden Chain” rooted in fiqh and deep understanding, not just memorization. |
+
+
 ---
 
 ---
