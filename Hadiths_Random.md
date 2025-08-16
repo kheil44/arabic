@@ -366,6 +366,35 @@ https://youtu.be/a0nYlGp4v1M?list=PLfp2JeoDQyGPLP0yPqC_klq03JuvBlEQp&t=903
 
 ---
 
+#### Do not Share _Bad Dreams_.
+
+Islam provides clear guidance regarding the etiquette of sharing dreams, especially bad dreams. The authentic proof is the sayings (hadith) of the Prophet Muhammad (peace be upon him):
+
+- The Prophet said: **“If one of you sees a dream that he dislikes, let him spit drily to his left three times and seek refuge with Allah from the Shaitan three times, and not mention it to anyone, and it will not harm him.”** (Sahih Muslim 2262, also found in Sahih Bukhari 7045).[2][3][7]
+- Another narration: **“If anyone of you saw a dream which he disliked, then that is from Satan and he should seek refuge with Allah from it and should not tell it to anybody for it will not harm him.”** (Sahih Bukhari).[7]
+- The Prophet rebuked those who narrated dreams that were from the Shaitan, saying, **"Do not tell anyone how the Shaitan is messing about with you in your dreams."** (Sahih Muslim 2268).[2]
+
+The wisdom, as explained by scholars, is to prevent distress, misguidance, or harm, as bad dreams can cause unnecessary worry and are not meaningful to others. Following the Prophet’s guidance ensures peace of mind and safety from bad effects.[5][8]
+
+### Clickable Resources for Further Study
+
+- [IslamQA: Can You Share Your Dreams?](https://islamqa.info/en/answers/25768)[2]
+- [Sahih Muslim, Book of Vision (Kitab Al-Ruya)](https://www.iium.edu.my/deed/hadith/muslim/029_smt.html)[3]
+- [Sahih Bukhari, Book 87 – Interpretation of Dreams](https://www.iium.edu.my/deed/hadith/bukhari/087_sbt.html)[7]
+- [IslamWeb: Telling Bad Dreams](https://www.islamweb.net/en/fatwa/83663/telling-bad-dreams)[5]
+- [SeekersGuidance: Wisdom Behind Not Telling Bad Dreams](https://seekersguidance.org/answers/general-answers-feeds/what-is-the-wisdom-behind-not-telling-others-about-our-bad-dreams/)[8]
+
+Following these proofs and resources, the Islamic instruction is **not to share bad dreams** with others, but rather seek Allah’s refuge and move on, as advised in authentic hadith.
+
+[1] https://islamanswers.co.uk/question/if-you-have-a-good-dream-should-you-share-it-or-keep-it-to-yourself/
+[2] https://islamqa.info/en/answers/25768
+[3] https://www.iium.edu.my/deed/hadith/muslim/029_smt.html
+[4] https://islamqa.info/en/answers/67624
+[5] https://www.islamweb.net/en/fatwa/83663/telling-bad-dreams
+[6] https://www.abuaminaelias.com/dailyhadithonline/2013/07/24/seek-refuge-allah-bad-dream/
+[7] https://www.iium.edu.my/deed/hadith/bukhari/087_sbt.html
+[8] https://seekersguidance.org/answers/general-answers-feeds/what-is-the-wisdom-behind-not-telling-others-about-our-bad-dreams/
+
 ---
 
 ---
