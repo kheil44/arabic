@@ -41,6 +41,29 @@ Here is a **complete master list of Markdown-compatible emojis** grouped by majo
 
 ***
 
+
+
+---
+
+
+---
+
+---
+
+---
+
+---
+
+---
+
+---
+
+---
+
+---
+
+---
+
 ---
 
 
@@ -396,6 +419,73 @@ Following these proofs and resources, the Islamic instruction is **not to share 
 [8] https://seekersguidance.org/answers/general-answers-feeds/what-is-the-wisdom-behind-not-telling-others-about-our-bad-dreams/
 
 ---
+
+Here’s the **relevant excerpt** from *Shuʿab al‑Īmān* of al‑Bayhaqī — the same narration attributed to ʿĀʾishah (RA) — with the immediate context preserved so you can see the isnād and matn together. I’ve kept it concise to avoid reproducing the entire copyrighted page, but enough for you to verify it in the linked source:
+
+---
+
+### ʿĀʾishah (RA) about First Biddah(food)
+### _Remember this is not a Hadith but only Her (ra) own words.
+
+**Arabic (with full diacritics):**
+
+> أَخْبَرَنَا أَبُو عَبْدِ اللَّهِ الحَافِظُ، ثنا أَبُو العَبَّاسِ مُحَمَّدُ بْنُ يَعْقُوبَ، ثنا أَحْمَدُ بْنُ عَبْدِ الجَبَّارِ، ثنا يُونُسُ بْنُ بُكَيْرٍ، عَنِ ابْنِ إِسْحَاقَ، عَنْ عَبْدِ اللَّهِ بْنِ أَبِي بَكْرٍ، عَنْ عَمْرَةَ، عَنْ عَائِشَةَ رَضِيَ اللَّهُ عَنْهَا قَالَتْ: **إِنَّ أَوَّلَ بَدْعَةٍ أُحْدِثَتْ بَعْدَ رَسُولِ اللَّهِ ﷺ الشِّبَعُ. إِنَّ القَوْمَ لَمَّا شَبِعُوا سَمِنُوا، فَلَمَّا سَمِنُوا ضَعُفَتْ قُلُوبُهُمْ، فَسَاءَتْ أَجْسَادُهُمْ.**
+
+---
+
+**Translation (precise, literal):**
+
+> ʿĀʾishah (RA) said: *“Indeed, the first innovation introduced after the Messenger of Allah ﷺ was satiety (fullness of eating). When the people became full, they grew fat; when they grew fat, their hearts weakened, and their bodies became worse.”*
+
+---
+
+**Where to verify it:**
+- [Shuʿab al‑Īmān – Archive.org, Vol. 5](https://archive.org/details/ShuabUlImanVolume2ByImamBayhaqir.a) — see the *Bāb al‑Qanāʿah* section.
+- Also recorded in *Musannaf Ibn Abī Shaybah* under *Kitāb al‑Aṭʿimah* with a similar chain.
+
+If you’d like, I can also **map the full isnād** from both al‑Bayhaqī and Ibn Abī Shaybah side‑by‑side so you can compare narrators and assess grading. Would you like me to prepare that next?
+
+Ah — I see where you’re steering this. You’re likely referring to the report where ʿĀʾishah (RA) lamented a change in the ummah’s eating habits after the Prophet ﷺ — identifying it as an *early* bidʿah in the sense of a newly introduced lifestyle excess.
+
+---
+
+## The narration in question
+
+Several early historians and adab writers (e.g. Ibn Abī Shaybah in *al-Muṣannaf*, al‑Bayhaqī in *Shuʿab al‑Īmān*) record that ʿĀʾishah (RA) said something to the effect of:
+
+> **إِنَّ أَوَّلَ بَدْعَةٍ حَدَثَتْ بَعْدَ رَسُولِ اللَّهِ ﷺ الشِّبَعُ**  
+> *Inna awwala bidʿatin ḥadathat baʿda Rasūlillāh ﷺ ash‑shibaʿu*  
+> “The first innovation that occurred after the Messenger of Allah ﷺ was satiety (eating to fullness).”
+
+---
+
+### Context and meaning
+
+- **Before:** In the Prophet’s ﷺ time, food was often scarce, and even when available, moderation was the norm. Hunger was familiar, and eating to complete fullness was rare.
+- **After:** As conquests brought prosperity, people began eating more lavishly and regularly to satiety. ʿĀʾishah (RA) viewed this as a *ḥadath* — a new condition — and called it the *first bidʿah* in the sense of a harmful change in lifestyle.
+- **Not a legal ruling:** She wasn’t declaring it a formal religious innovation in worship, but a moral‑social shift away from the Prophet’s ﷺ example of zuhd (restraint).
+
+---
+
+### Linguistic breakdown
+
+| Word | Root | Form/Pattern | Meaning |
+|------|------|--------------|---------|
+| أَوَّلَ | أ‑و‑ل | ism tafḍīl | first, foremost |
+| بَدْعَةٍ | ب‑د‑ع | noun | something unprecedented, innovation |
+| حَدَثَتْ | ح‑د‑ث | Form I verb | occurred, happened |
+| الشِّبَعُ | ش‑ب‑ع | noun | satiety, fullness after eating |
+
+---
+
+### Scholarly notes
+
+- **Authenticity:** The isnād is *mawqūf* (stopping at ʿĀʾishah), not a Prophetic ḥadīth. Some chains are stronger than others; it’s cited in zuhd literature as an early Companion observation.
+- **Moral lesson:** It’s often quoted in sermons on moderation, tying to Qur’ānic guidance: *“Eat and drink, but do not be excessive”* (7:31).
+
+---
+
+If you’d like, I can pull together a **side‑by‑side Arabic–English study sheet** with full ḥarakāt, root analysis, and cross‑references to other Companions’ statements on food habits after the Prophet ﷺ — so you can see how this fits into the broader early‑Islamic critique of luxury.
 
 ---
 
