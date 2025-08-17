@@ -1,5 +1,9 @@
 ## biography of 6 Imāms by MS AI.
 
+_comments by Sheikh Navaid Aziz regarding this series(books)_;
+
+https://youtu.be/biAfVgjCsL8?t=2744
+
 https://www.amazon.co.uk/s?i=stripbooks&rh=p_27%3ASalahuddin%2BAli%2BAbdul%2BMawjood&s=relevancerank&text=Salahuddin+Ali+Abdul+Mawjood&ref=dp_byline_sr_book_1
 
 
