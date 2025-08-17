@@ -55,8 +55,8 @@ If you scan the isnāds in each of the six books, you’ll find both names recur
 If you’d like, I can pull **one example ḥadīth from each of the six books** for both Qutaybah and Bundār, with exact kitāb/bāb and ḥadīth numbers, so you have concrete, checkable proof from the primary sources. Would you like me to prepare that set?
 
 ---
-# 👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇
-# 👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇
+# 👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇
+# 👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇
 ---
 
 ---
