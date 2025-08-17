@@ -24,8 +24,39 @@ If you’d like, I can prepare a **chronological map** showing their lifespans o
 
 ---
 
+Here’s the verified spelling and identification of the two narrators you’re referring to — these are indeed the pair from whom **all six compilers of the *Kutub al‑Sittah*** narrated directly:
+
 ---
 
+## 1️⃣ **Qutaybah ibn Saʿīd al‑Baghlānī**  
+**Arabic:** قُتَيْبَةُ بْنُ سَعِيدٍ البَغْلَانِيّ  
+- **Full name:** Abū Rajāʾ Qutaybah ibn Saʿīd ibn Jamil ibn Ṭarīf al‑Thaqafī al‑Baghlānī  
+- **Dates:** Born 150 AH, died 240 AH  
+- **Notes:** “Qutaybah” is a laqab (agnomen); some sources mention his given name as Yaḥyā or ʿAlī.  
+- **Status:** One of the most prominent muḥaddithūn of Khurāsān; teacher to al‑Bukhārī, Muslim, Abū Dāwūd, al‑Tirmidhī, al‑Nasāʾī, and Ibn Mājah.
+
+---
+
+## 2️⃣ **Muḥammad ibn Bashshār al‑ʿAbdī**, nicknamed **Bundār**  
+**Arabic:** مُحَمَّدُ بْنُ بَشَّارٍ العَبْدِيّ، بُنْدَار  
+- **Full name:** Abū Bakr Muḥammad ibn Bashshār ibn ʿUthmān al‑ʿAbdī al‑Baṣrī  
+- **Dates:** Born 167 AH, died 252 AH  
+- **Notes:** “Bundār” was his laqab, widely used in isnāds.  
+- **Status:** Leading Basran ḥadīth master; all six imams took from him directly.
+
+---
+
+### 📜 Why these two are the “common link”
+If you scan the isnāds in each of the six books, you’ll find both names recurring as direct shuyūkh. This is a well‑known point in ḥadīth rijāl trivia:  
+> *“Ajmaʿa al‑aʾimmah al‑sittah ʿalá al‑riwāyah ʿan Qutaybah wa‑Bundār”* — “The six imams unanimously narrated from Qutaybah and Bundār.”
+
+---
+
+If you’d like, I can pull **one example ḥadīth from each of the six books** for both Qutaybah and Bundār, with exact kitāb/bāb and ḥadīth numbers, so you have concrete, checkable proof from the primary sources. Would you like me to prepare that set?
+
+---
+# 👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇
+# 👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇
 ---
 
 ---
