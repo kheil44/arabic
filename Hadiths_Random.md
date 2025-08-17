@@ -1,4 +1,24 @@
+---
 
+Here’s a concise reference table for the **Six Imams of Ḥadīth** (*Aṣ‑Ṣiḥāḥ as‑Sittah*) — with their dates of birth and death in both Hijrī and Gregorian calendars, places of birth, and their age at death.
+
+| Imam | Date of Birth (Hijrī / CE) | Place of Birth | Date of Death (Hijrī / CE) | Place of Death | Age |
+|------|----------------------------|----------------|----------------------------|----------------|-----|
+| **Imām al‑Bukhārī** – Muḥammad ibn Ismāʿīl al‑Bukhārī | 13 Shawwāl 194 AH / 19 July 810 CE | Bukhara (present‑day Uzbekistan) | 1 Shawwāl 256 AH / 31 Aug 870 CE | Khartank, near Samarkand | 60 |
+| **Imām Muslim** – Muslim ibn al‑Ḥajjāj al‑Qushayrī al‑Naysābūrī | 206 AH / 821 CE | Nishapur (Iran) | 261 AH / 874 CE | Nishapur | ~53 |
+| **Imām Abū Dāwūd** – Sulaymān ibn al‑Ashʿath al‑Sijistānī | 202 AH / 817 CE | Sijistān (Sistan, Iran/Afghanistan region) | Shawwāl 275 AH / 888–889 CE | Basra (Iraq) | ~73 |
+| **Imām al‑Tirmidhī** – Muḥammad ibn ʿĪsā al‑Tirmidhī | 209 AH / 824–825 CE | Tirmidh (present‑day Uzbekistan) | 279 AH / 892–893 CE | Bugh (Bawag), near Tirmidh | ~70 |
+| **Imām al‑Nasāʾī** – Aḥmad ibn Shuʿayb al‑Nasāʾī | 215 AH / 829–830 CE | Nasa (Nishapur region, Iran) | 303 AH / 915 CE | Mecca (buried between Ṣafā and Marwah) | ~88 |
+| **Imām Ibn Mājah** – Muḥammad ibn Yazīd Ibn Mājah al‑Qazwīnī | 209 AH / 824 CE | Qazwīn (Iran) | 22 Ramaḍān 273 AH / 887 CE | Qazwīn | ~63 |
+
+**Notes:**
+- Ages are approximate where only the year (not exact day/month) is known.
+- Dates in CE are converted from Hijrī and may vary slightly depending on conversion method.
+- All six were of Persian origin or born in the Persian cultural sphere, though their scholarly travels spanned the Muslim world.
+
+You can read brief biographies of each in the [Islamic Voice overview of the Six Compilers of Ḥadīth](https://islamicvoice.com/q-and-a/six-compilers-of-hadith/) or the [Muslim Library’s “Biographies of the Imams of Ḥadīth”](https://www.muslim-library.com/english/biographies-of-the-imams-of-hadith/).  
+
+If you’d like, I can prepare a **chronological map** showing their lifespans overlapping, so you can visualise which imams were contemporaries.
 
 
 
