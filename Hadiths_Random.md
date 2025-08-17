@@ -54,6 +54,23 @@ If you scan the isnāds in each of the six books, you’ll find both names recur
 
 If you’d like, I can pull **one example ḥadīth from each of the six books** for both Qutaybah and Bundār, with exact kitāb/bāb and ḥadīth numbers, so you have concrete, checkable proof from the primary sources. Would you like me to prepare that set?
 
+Alongside **Qutaybah ibn Saʿīd** and **Muḥammad ibn Bashshār (Bundār)**, the third common shaykh you’re thinking of is generally identified in the rijāl literature as:
+
+**Muḥammad ibn al‑Muthannā Abū Mūsā al‑ʿAnazī**  
+**Arabic:** مُحَمَّدُ بْنُ الْمُثَنَّى أَبُو مُوسَى العَنَزِيّ  
+- **Born:** c. 167 AH in Baṣra  
+- **Died:** 252 AH  
+- **Status:** Leading Basran ḥadīth master, contemporary of Bundār.  
+- **Why he counts:** All six compilers — al‑Bukhārī, Muslim, Abū Dāwūd, al‑Tirmidhī, al‑Nasāʾī, and Ibn Mājah — have direct narrations from him in their books.
+
+So the “three common teachers” trivia answer is:
+
+1. **Qutaybah ibn Saʿīd al‑Baghlānī** (d. 240 AH)  
+2. **Muḥammad ibn Bashshār “Bundār”** (d. 252 AH)  
+3. **Muḥammad ibn al‑Muthannā Abū Mūsā** (d. 252 AH)
+
+If you’d like, I can pull one example isnād from each of the six books for all three names, so you can see the proof in the primary sources side‑by‑side.
+
 ---
 # 👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇
 # 👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇
