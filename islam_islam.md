@@ -57,6 +57,11 @@ https://en.wikipedia.org/wiki/Ibn_Qayyim_al-Jawziyya
 Abdul-Rahman al-Sa'di  b.1889  [📖 📖 📖 tafsir ++++ ]
 https://en.wikipedia.org/wiki/Abdul-Rahman_al-Sa%27di
 
+Sheikh Muhammad al-Ameen al-Shanqiti's The author of "Adwa' al-Bayan"
+  also the teacher of ibn Baz
+
+https://wikitia.com/wiki/Muhammad_al-Amin_al-Shanqiti  
+
 Ibn Baz b.21 November 1912
 https://en.wikipedia.org/wiki/Ibn_Baz
 
