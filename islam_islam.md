@@ -1208,6 +1208,43 @@ Just say the word.
 # Duas All
 
 ---
+
+**"سبحان الله وبحمده** 
+
+The authentic Hadith regarding the saying "SubhanAllahi wa bihamdihi" one hundred times a day for forgiveness of sins, even if they are as numerous as the foam of the sea, is found in Sahih al-Bukhari:
+
+Narrated Abu Huraira:  
+The Messenger of Allah (ﷺ) said,  
+"Whoever says 'Subhan Allah wa bihamdihi' one hundred times a day, will be forgiven all his sins even if they were as much as the foam of the sea."  
+(Sahih al-Bukhari, Hadith 6405)
+
+You can verify this Hadith and its text at this link:  
+https://sunnah.com/bukhari:6405
+
+This confirms the great virtue and reward of this remembrance in Islam.[1]
+
+[1](https://sunnah.com/bukhari:6405)
+[2](https://sunnah.com/bukhari:6406)
+[3](https://www.youtube.com/watch?v=3L8KOwdImBM)
+[4](https://www.islamicity.org/hadith/search/index.php?q=6154&sss=1)
+[5](https://www.islamicity.org/hadith/search/index.php?q=6426&sss=1)
+[6](https://www.lifeofmuslim.com/blog/subhanallah-wa-bihamdihi-subhanallah-wa-bihamdihi-subhanallah-wa-bihamdihi)
+[7](https://www.tiktok.com/@islamicinspiration2/video/7481361283556658454)
+
+---
+
+
+1. Abu Huraira (رضي الله عنه) reported the Messenger of Allah (ﷺ) said:  
+"There are two statements light on the tongue, heavy on the scales, and beloved to the Merciful:  
+**'سُبْحَانَ اللهِ وَبِحَمْدِهِ، سُبْحَانَ اللهِ الْعَظِيمِ'**  
+(SubhanAllah wa bihamdihi, SubhanAllahil Azim)."  
+This Hadith is classified as Hasan and is reported in Jami` at-Tirmidhi (Hadith 3467).
+
+  
+
+---
+
+
 Here are authentic hadith references that mention or support the supplication:
 
 ***
