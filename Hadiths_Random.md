@@ -1,4 +1,7 @@
 ---
+**imam Abu Dawood** said he compiled 500,000(five hundred Thousands) out of which he chose 4,800.
+
+https://youtu.be/biAfVgjCsL8?t=1798
 
 Here’s a concise reference table for the **Six Imams of Ḥadīth** (*Aṣ‑Ṣiḥāḥ as‑Sittah*) — with their dates of birth and death in both Hijrī and Gregorian calendars, places of birth, and their age at death.
 
@@ -87,6 +90,71 @@ If you’d like, I can pull one example isnād from each of the six books for al
 ---
 
 ---
+
+Certainly! Here is a well-structured article on the importance of verbal recitation and the significance of “keeping the tongue moist” in Islamic worship, including the relevant hadith and scholarly points with direct links for your verification:
+
+***
+
+## The Importance of Verbal Recitation and Keeping the Tongue Moist in Islam
+
+In Islam, the act of recitation—whether it is the Qur’an or dhikr (remembrance of Allah)—holds a prominent place in worship and spiritual discipline. A crucial aspect often discussed in Islamic teachings is the necessity of verbal articulation in these acts, meaning one should not rely solely on silent inner thought but must engage the tongue and lips in recitation.
+
+### Verbal Recitation Over Silent Thought
+
+Although silently pondering or thinking of the Qur’an and dhikr has merits, scholars affirm that proper **recitation requires moving the tongue and lips**. Silent reading or remembrance without tongue movement is primarily contemplation, not actual verbal recitation.
+
+- Imam Malik stated that without moving the tongue, there is no valid recitation in prayer.  
+- Sheikh Ibn Uthaymeen clarified that verbal dhikr, including Qur’an recitation and praises of Allah, must involve articulation with the tongue and lips; silence without this is insufficient.
+
+This understanding is derived from prophetic practice and scholarly consensus emphasizing the physical aspect of worship. The Prophet Muhammad ﷺ himself moved his lips and tongue while reciting the Qur’an, as affirmed by Ibn Abbas referencing Quranic verses (Surah Al-Qiyamah 75:16-19) demonstrating that the Qur’an was revealed in a way that required vocal recitation without haste.
+
+### Quranic Reference to Tongue Movement
+
+Allah commands in the Quran:
+
+> "Move not your tongue with it to hasten its recitation. Indeed, upon Us is its collection (in your heart) and (to make possible) its recitation. So when We have recited it (through Jibreel), then follow its recitation. Then upon Us is its clarification (to you)."  
+> — Surah Al-Qiyamah 75:16-19
+
+This shows that while the tongue moves to recite, it should do so with measured care and focus, highlighting the importance of actual verbal expression rather than silent internal reading.
+
+[Verification Sources:  
+- Islam Q&A on Dhikr and Tongue Movement — https://islamqa.info/en/answers/70577  
+- IslamWeb Fatwa on Reciting Quran and Dhikr — https://www.islamweb.net/en/fatwa/271312/reading-quran-and-thikr-without-moving-tongue-or-lips  
+- Quran 75:16-19 Tafsir and explanation — https://sunnah.com/riyadussalihin/17]
+
+### The Hadith: "Keep Your Tongue Moist with Remembrance of Allah"
+
+One of the strongest hadith emphasizing verbal dhikr is the statement of the Prophet ﷺ:
+
+> "Let not your tongue cease to be moist with the remembrance of Allah, mighty is He and majestic."  
+> — Reported by Imam Ahmad and at-Tirmidhi; graded authentic by Al-Albani
+
+Original Arabic:  
+لَا يَزَالُ لِسَانُكَ رَطْبًا مِنْ ذِكْرِ اللَّهِ عَزَّ وَجَلَّ
+
+This means to keep your tongue moist by frequently uttering words of dhikr, such as *SubhanAllah*, *Alhamdulillah*, or *La ilaha illallah*. This verbal articulation continuously engages the tongue and lips, fulfilling the requirement of spoken worship.
+
+[Verification Sources:  
+- Explanation from Seekers Guidance — https://seekersguidance.org/articles/general-artices/explanation-of-prophetic-hadith-keep-your-tongue-moist-with-remembrance-of-allah-from-ibn-rajabs-commentary-on-nawawis-40-hadith/  
+- Hadith text and commentary — https://www.abuaminaelias.com/dailyhadithonline/2012/10/18/tongue-moist-dhikr-allah/  
+- Sunnah.com on virtues of dhikr — https://sunnah.com/riyadussalihin/15]
+
+### Practical Implications
+
+- **Moving the tongue and lips in recitation is essential,** even if no one else hears it.  
+- Silent contemplation, while beneficial, does not replace verbal dhikr and Qur’an recitation.  
+- The hadith about keeping the tongue moist encourages continuous verbal remembrance of Allah throughout daily life.  
+- This practice brings spiritual blessings, forgiveness, and a firm connection with Allah.
+
+***
+
+**In summary, while silent thought is valuable, true Islamic recitation is vocal and engages the tongue and lips. The Prophet ﷺ exhorts us clearly to keep our tongues moist with the remembrance of Allah, thereby ensuring our worship is complete and profound.**
+
+You can verify all the points and understand the nuances by visiting the provided direct links.
+
+***
+
+If you would like, I can also provide further classical references or a more detailed explanation of the narrations.
 
 ---
 
