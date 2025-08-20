@@ -2,7 +2,11 @@
 
 ---
 
-Certainly! Here is a comprehensive article covering the Athari school and its main competing Islamic theological schools, with direct links to reliable sources for verification:
+### Madhaib of Fiqs = 4 [ Hanbali, Hanafi, Shafi, Maliki ]
+### Madhaib of Ageeda = 3 [ Athari, Ash'ari, and Maturidi ]
+
+https://youtu.be/8n9oOqnRGg8?t=532
+
 
 ***
 
