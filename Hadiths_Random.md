@@ -1,11 +1,11 @@
 
 ---
 
-### There were not many poeple in Mekkah during our Prophet Mohammed ﷺ
+#### There were not many poeple in Mekkah during our Prophet Mohammed ﷺ
 
-### _Remember this is especially true when they moved to Abysnia time and such_
-### _maximum 1000 according to Yasir Qadi,and according to him when taling about Tribe dont think of hundreds or thsousand so people but More like 10 people._
-### _also Check the bottom of the page for more info;
+#### _Remember this is especially true when they moved to Abysnia time and such_
+#### _maximum 1000 according to Yasir Qadi,and according to him when taling about Tribe dont think of hundreds or thsousand so people but More like 10 people._
+#### _also Check the bottom of the page for more info;
 
 https://youtu.be/RBDX11n0I20?list=PLAEA99D24CA2F9A8F&t=1750
 
