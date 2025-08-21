@@ -632,6 +632,97 @@ If you’d like, I can pull together a **side‑by‑side Arabic–English study
 
 ---
 
+## Major battles of Prophet Muḥammad ﷺ (deep, source‑backed)
+
+Below is a compact, high‑signal table covering the decisive engagements that shaped the early Muslim polity. Figures are given as consensus ranges when sources differ; brief notes follow with deeper, battle‑by‑battle authentication.
+
+| Year (CE / AH) | Battle (Arabic) & where | Why (proximate cause) | Muslim strength | Opposing strength | Outcome | Brief summary |
+|---|---|---|---|---|---|---|
+| 624 / 2 AH | Badr بدر — near Badr wells, ~80 km SW of Madīnah (≈ 23.733°N, 38.767°E) | Quraysh mobilized to shield a high‑value caravan and to break Muslim pressure post‑Hijrah | ≈ 313 (Muhājirūn + Anṣār) | ≈ 950–1,000 Quraysh | Muslim victory | Outnumbered Muslims shattered Quraysh line, killing senior chiefs (e.g., Abū Jahl); watershed legitimizing the new polity and deterring tribal aggression |
+| 625 / 3 AH | Uḥud أُحُد — north of Mount Uḥud, Madīnah (≈ 24.500°N, 39.610°E) | Quraysh revenge and prestige restoration after Badr | ≈ 700 (incl. 50 archers on the flank) | ≈ 3,000 (≈100 cavalry) | Quraysh tactical victory | Early Muslim gains reversed after archers left posts; cavalry flanked line; heavy losses (≈70 martyred), but Madīnah held |
+| 627 / 5 AH | Al‑Khandaq/Al‑Aḥzāb الخندق/الأحزاب — siege perimeter of Madīnah (≈ 24.483°N, 39.583°E) | Confederation (Quraysh + Najd tribes; lobbying by Banū Naḍīr leaders) to annihilate the Muslims | ≈ 3,000 | ≈ 7,500–10,000 confederates | Muslim defensive victory | Trench tactic (Salman al‑Fārisī) neutralized cavalry; siege collapsed from weather, morale, and distrust; followed by Banū Qurayẓah siege |
+| 628/629 / 7 AH | Khaybar خيبر — oasis forts N of Madīnah (≈ 25.600°N, 39.267°E) | Neutralize fortified base alleged to be fomenting confederacies; secure food frontier | ≈ 1,600–1,800 | Defenders in multiple forts (estimates vary) | Muslim victory | Fort‑by‑fort reduction; ʿAlī’s assault at al‑Qamūṣ is central; land left to Jewish cultivators on sharecropping terms (kharāj) |
+| 630 / 8 AH | Fatḥ Makkah فتح مكة — Makkah (≈ 21.389°N, 39.857°E) | Quraysh treaty breach (Ḥudaybiyyah) | ≈ 10,000 | A few thousand; minimal resistance | Muslim victory (largely bloodless) | Multi‑column entry, general amnesty, idols removed from Kaʿbah; decisive political consolidation across Ḥijāz |
+| 630 / 8 AH | Ḥunayn حُنين — valley between Makkah and Ṭāʾif (≈ 21.433°N, 40.350°E) | Hawāzin–Thaqīf pre‑emptive coalition after Fatḥ Makkah | ≈ 12,000 | ≈ 12,000–20,000 (estimates vary) | Muslim victory | Ambush caused initial rout; the Prophet ﷺ rallied the center; coalition broke; large captives/spoils; Qurʾān 9:25–27 cautions against pride in numbers |
+| 630 / 8 AH | Siege of Ṭāʾif حصار الطائف — Ṭāʾif (≈ 21.270°N, 40.417°E) | Follow‑on pressure against Thaqīf stronghold post‑Ḥunayn | ≈ 12,000 | Fortified Thaqīf; unknown | Stalemate; siege lifted | Use of siege engines and vine‑screens; defenders’ fortifications held; Thaqīf entered Islam later |
+| 630/631 / 9 AH | Tabūk تبوك — N‑W Arabia, on Byzantine frontier (≈ 28.383°N, 36.583°E) | Intelligence of Byzantine‑Ghassānid mobilization; show of force | ≈ 30,000 | No engagement | Strategic success (no battle) | Long‑range projection under hardship; northern alliances secured; Byzantine incursion deterred |
+
+> Sources for table figures and outcomes are detailed and linked in “Links used” below; differing numbers reflect source‑level variance rather than uncertainty in overall outcomes.
+
+---
+
+## Battle‑by‑battle deep notes and authentication
+
+- Badr (17 Ramaḍān, 2 AH): Most early narratives agree on ≈313 Muslims vs ≈950–1,000 Quraysh, with 14 Muslim martyrs and ≈70 Quraysh killed and ≈70 captured. Central episodes: pre‑battle duels, breaking the Meccan center, and the death of key Quraysh notables. Qurʾān frames it as divine aid and a criterion day (8:5–19). Geographic placement and order of march are consistent across classical sīrah and modern syntheses.
+
+- Uḥud (7 Shawwāl, 3 AH): Standard figures are ≈700 Muslims (50 archers under ʿAbdullāh b. Jubayr) vs ≈3,000 Quraysh. The battle hinged on loss of the archer ridge and Khalid’s rear cavalry strike; ≈70 Muslims martyred including Ḥamza. The outcome is a Quraysh tactical win without strategic exploitation; Madīnah remained intact.
+
+- Al‑Khandaq/Al‑Aḥzāb (5 AH): Coalition strength is commonly given as ≈10,000 (Watt’s lower estimate ~7,500), Muslims ≈3,000. The trench—adopted on Salman al‑Fārisī’s advice—denied cavalry maneuver; after ~2–3 weeks, weather, supply stress, and inter‑ally distrust forced withdrawal. Afterward, Banū Qurayẓah were besieged and surrendered on harsh terms. Qurʾān 33 contextualizes the siege pressure.
+
+- Khaybar (7 AH): Muslim force ≈1,600–1,800; multiple fortresses taken sequentially (Naṭāḥ, al‑Shaqq, al‑Katība incl. al‑Qamūṣ). The settlement allowed Jewish cultivators to remain on revenue share (later rescinded under ʿUmar). Numbers for defenders vary widely in pre‑modern reports; the operational picture (oasis‑fort reductions) is stable across sources.
+
+- Fatḥ Makkah (8 AH): ≈10,000 Muslims advanced in columns; resistance was limited to brief skirmishes (e.g., at Khanda­ma). Amnesty policy and idol removal are core features across accounts; post‑event allegiance waves followed. Specific defender headcounts vary and are of minor military relevance given the nearly bloodless entry.
+
+- Ḥunayn (8 AH): ≈12,000 Muslims (incl. ≈2,000 recent Makkan converts) vs a Hawāzin–Thaqīf coalition whose numbers are reported variably; what is consistent is the initial shock ambush in the valley and the subsequent rally and counterattack. Spoils include ≈6,000 captives and large herds; Qurʾān 9:25–27 directly references the episode and its moral.
+
+- Siege of Ṭāʾif (8 AH): Immediately post‑Ḥunayn, Muslims besieged fortified Ṭāʾif using manjaniq (catapult) and dabbābāt (mobile shields). The siege was lifted without storming; Thaqīf later embraced Islam. Accounts converge on outcome and tactics; exact defender numbers are not preserved.
+
+- Tabūk (9 AH): ≈30,000 Muslims marched to the Byzantine frontier; no pitched battle occurred as opposing forces did not present. The campaign secured vassalage/alliances (e.g., with Aylah) and displayed logistic reach under severe heat and scarcity.
+
+---
+
+## Links used (primary, classical, and reference syntheses)
+
+- **Badr:**  
+  - Britannica: https://www.britannica.com/event/Battle-of-Badr   
+  - Wikipedia: https://en.wikipedia.org/wiki/Battle_of_Badr   
+  - Al‑Islam (narrative detail): https://www.al-islam.org/life-muhammad-prophet-sayyid-saeed-akhtar-rizvi/battles   
+  - Qurʾān 8:5–19 (quran.com): https://quran.com/8/5-19 
+
+- **Uḥud:**  
+  - Wikipedia: https://en.wikipedia.org/wiki/Battle_of_Uhud   
+  - Muhammad Encyclopedia (detail on causes/numbers): https://muhammadencyclopedia.com/article/battle-of-uhud   
+  - Al‑Islam (contextual narrative): https://www.al-islam.org/life-muhammad-prophet-sayyid-saeed-akhtar-rizvi/battles 
+
+- **Al‑Khandaq / Al‑Aḥzāb (Trench):**  
+  - Wikipedia: https://en.wikipedia.org/wiki/Battle_of_the_Trench   
+  - Pilgrim (synthesis with hadith excerpts): https://thepilgrim.co/battle-of-trench/   
+  - Al‑Islam (battles overview): https://www.al-islam.org/life-muhammad-prophet-sayyid-saeed-akhtar-rizvi/battles   
+  - Qurʾān 33 (Ahzāb): https://quran.com/33 
+
+- **Khaybar:**  
+  - Wikipedia: https://en.wikipedia.org/wiki/Battle_of_Khaybar   
+  - Al‑Islam (overview): https://www.al-islam.org/life-muhammad-prophet-sayyid-saeed-akhtar-rizvi/battles 
+
+- **Fatḥ Makkah (Conquest of Mecca):**  
+  - Wikipedia: https://en.wikipedia.org/wiki/Conquest_of_Mecca   
+  - Military career overview (contextual cross‑checks): https://en.wikipedia.org/wiki/Military_career_of_Muhammad 
+
+- **Ḥunayn:**  
+  - Wikipedia: https://en.wikipedia.org/wiki/Battle_of_Hunayn   
+  - Al‑Islam (narrative depth): https://www.al-islam.org/restatement-history-islam-and-muslims-sayyid-ali-asghar-razwy/battle-hunayn   
+  - Qurʾān 9:25–27 (quran.com): https://quran.com/9/25-27 
+
+- **Siege of Ṭāʾif:**  
+  - Wikipedia: https://en.wikipedia.org/wiki/Siege_of_Ta%27if_(630) 
+
+- **Tabūk:**  
+  - Wikipedia: https://en.wikipedia.org/wiki/Expedition_to_Tabag   
+  - Military career overview: https://en.wikipedia.org/wiki/Military_career_of_Muhammad 
+
+- **Classical sīrah (Arabic) for cross‑reading:**  
+  - Ibn Hishām, al‑Sīrah al‑Nabawiyyah (Arabic text portal): https://al-maktaba.org/book/1212 
+
+---
+
+### Methodological notes you’ll care about
+
+- **Numbers and ranges:** Pre‑modern reports differ (especially for opposing strengths and Khaybar/Ḥunayn headcounts). I’ve given the tightest ranges supported by early sīrah plus cautious modern syntheses; when numbers are historiographically weak (e.g., exact Thaqīf defenders at Ṭāʾif), I mark them as “unknown” or “varies,” keeping operational conclusions intact.
+
+- **Inclusion criteria:** I focused on engagements with direct strategic consequence and the Prophet’s personal command presence (Badr → Tabūk). I listed Ṭāʾif (unsuccessful siege) and Tabūk (no battle) because both were decisive strategically in consolidating Ḥijāz and projecting deterrence northward.
+
+If you want, I can layer a geocoded campaign map (routes, tribal blocks, siege lines) and a hadith‑sourced chronology overlay for each battle day by day.
+
 ---
 
 Here is a grammatically correct and authentic version of your paragraph with improved clarity, based on historical sources:
