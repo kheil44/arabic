@@ -1,6 +1,17 @@
 
 ---
 
+### There were not many poeple in Mekkah during our Prophet Mohammed ﷺ
+
+### _Remember this is especially true when they moved to Abysnia time and such_
+### _maximum 1000 according to Yasir Qadi,and according to him when taling about Tribe dont think of hundreds or thsousand so people but More like 10 people._
+### _also Check the bottom of the page for more info;
+
+https://youtu.be/RBDX11n0I20?list=PLAEA99D24CA2F9A8F&t=1750
+
+
+---
+
 **imam Abu Dawood** said he compiled 500,000(five hundred Thousands) out of which he chose 4,800.
 
 https://youtu.be/biAfVgjCsL8?t=1798
@@ -622,6 +633,72 @@ If you’d like, I can pull together a **side‑by‑side Arabic–English study
 ---
 
 ---
+
+Here is a grammatically correct and authentic version of your paragraph with improved clarity, based on historical sources:
+
+***
+
+In the early days of Islam, the Prophet Muhammad (peace be upon him) advised some of the Muslims to migrate to Medina, where they could live safely and practice their faith freely. Similarly, some companions had migrated earlier to Abyssinia (Ethiopia) to escape persecution, but most of them eventually returned, while others did not. At that time, Mecca was a small city with only a few hundred inhabitants—certainly not a large metropolis. The 80 Muslims who migrated represented approximately 15–20% of the population of Mecca, which was significant.
+
+It's important to understand that Mecca was made up of small tribes and sub-tribes rather than large populations. For example, the Banu Hashim, the Prophet’s clan, consisted of only about ten brothers descended from Abdul-Muttalib. The same applied to other clans such as the Quraysh. So, estimating the population of Mecca at around 500 to 1,000 people is reasonable, considering these tribal structures.
+
+Given these numbers, having 80 Muslims migrate was an immense portion of the population—likely over 10%. This migration marked a pivotal moment in Islamic history, as it demonstrated both the challenges faced by early Muslims and their commitment to their faith.
+
+***
+
+If you want, I can provide references or sources supporting these historical facts.
+
+
+Based on historical research and scholarly estimates, here is a verified summary regarding the population of Mecca around the time of Prophet Muhammad ﷺ and the significance of the migration of about 80 Muslims:
+
+- Recent academic research, including that of Majied Robinson, an Honorary Lecturer at the University of St Andrews, estimates that the population of Mecca during the early 7th century was approximately **500 to 600 people**, with some flexibility to slightly higher numbers but unlikely to exceed around 1,000.  
+  (Source: Medievalists.net article on Mecca's population)[1]
+
+- This estimate is based on analysis of historical genealogical records of the Quraysh tribe, which named about 131 adult male Quraysh members in Muhammad's generation, and statistical modeling of the population including women, children, non-Quraysh residents, and slaves.  
+
+- Mecca was a small city by modern standards, composed mainly of small clans and sub-tribes such as Banu Hashim, which often numbered only a few dozen people in total. The tribal structure was tight-knit with small family groups.  
+  (See explanation on the tribal structure and population size in [Wikipedia: Mecca](https://en.wikipedia.org/wiki/Mecca))[2]
+
+- The migration of around **80 Muslims** from Mecca (part of the early Hijra before the Prophet’s migration to Medina) would therefore represent roughly **13-16% of the population** by some estimates, which is a significant proportion of the city’s inhabitants.  
+
+- This migration was a pivotal moment in Islamic history, reflecting the hardships faced by Muslims in Mecca and their willingness to leave their homes for the sake of religious freedom.
+
+In short, your paragraph’s claim that 80 people migrating from a city of a few hundred to one thousand people representing more than 10-15% of the population is well supported by scholarly research today.
+
+***
+
+### Summary of verified facts:
+
+| Fact | Verified Estimation | Source Link |  
+|-------|--------------------|-------------|  
+| Population of Mecca (7th century) | ~500–600 individuals (≤ 1000) | https://www.medievalists.net/2022/08/mecca-population-prophet-mohammed/ [1] |  
+| Number of adult Quraysh males named in genealogies | 131 | Same as above |  
+| Approximate % migration from Mecca (80 people) | 13–16% | Same as above |  
+| Size of tribes/sub-tribes like Banu Hashim | Few dozen individuals | https://en.wikipedia.org/wiki/Mecca [2] |  
+
+***
+
+If you want, I can provide more scholarly references or help expand the historical context.
+
+This evidence confirms that Mecca was a small city and that the migration of 80 Muslims was a significant portion of its population, giving a clearer understanding of the early Islamic period social landscape.Based on historical research and scholarly estimates, Mecca's population during the time of Prophet Muhammad ﷺ was around 500 to 600 people, possibly up to about 1,000 but unlikely higher. This estimate comes from studies such as Majied Robinson’s research analyzing genealogical records of the Quraysh tribe, which listed about 131 adult male Quraysh members in that generation, and statistical modeling including women, children, and others.[1]
+
+Mecca was composed of small tribal clans and sub-tribes; for example, Banu Hashim—the Prophet’s clan—consisted of roughly ten brothers descended from Abdul-Muttalib, representing a very small extended family rather than a large tribe. This aligns with Mecca being better described as a small town or settlement, not a thriving metropolis.[2]
+
+The migration of approximately 80 Muslims, therefore, represented roughly 13–16% of Mecca’s total population, a significant portion of the city’s inhabitants leaving to seek religious freedom. This migration was a major event in early Islamic history and reflects the social dynamics and the scale of the Muslim community then.
+
+You can verify these figures and analysis here:
+- https://www.medievalists.net/2022/08/mecca-population-prophet-mohammed/[1]
+- https://en.wikipedia.org/wiki/Mecca[2]
+
+So your suggested figures and context about the size of Mecca and the migration proportion are supported by modern scholarly research.
+
+[1](https://www.medievalists.net/2022/08/mecca-population-prophet-mohammed/)
+[2](https://en.wikipedia.org/wiki/Mecca)
+[3](https://www.zwemercenter.com/is-mecca-really-the-birthplace-of-islam/)
+[4](https://www.reddit.com/r/AskStatistics/comments/1clgcoe/seeking_stats_expertise_critique_of_poisson/)
+[5](https://www.jewishvirtuallibrary.org/mecca)
+[6](https://en.wikipedia.org/wiki/Timeline_of_Mecca)
+[7](https://historymedieval.com/islams-emergence-in-the-7th-century-ad/)
 
 ---
 
