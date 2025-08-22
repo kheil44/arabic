@@ -152,6 +152,100 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+### Every person has his/her own Angel of Death (Malak al‑Mawt) according to;
+
+https://youtu.be/128GJfzeMwI?list=PLAEA99D24CA2F9A8F&t=3876
+
+## Direct answer
+
+No. Islam affirms one chief Angel of Death over all creation, with many angels who actually take individual souls by Allah’s command. The Qur’an alternates between the singular “the Angel of Death” for the chief, and the plural “angels/Our messengers” for those who seize souls, and authentic reports show multiple angels at a person’s death.
+
+---
+
+## Qur’anic proofs
+
+- **Singular, one chief Angel of Death.**  
+  قُلْ يَتَوَفَّاكُمْ مَلَكُ الْمَوْتِ الَّذِي وُكِّلَ بِكُمْ ثُمَّ إِلَىٰ رَبِّكُمْ تُرْجَعُونَ  
+  “Say, the Angel of Death, who has been entrusted with you, will take you in death; then to your Lord you will be returned.”  
+  https://quran.com/32/11
+
+- **Plural, many angels take souls by execution of the decree.**  
+  حَتَّىٰ إِذَا جَاءَ أَحَدَكُمُ الْمَوْتُ تَوَفَّتْهُ رُسُلُنَا ثُمَّ هُمْ لَا يُفَرِّطُونَ  
+  “Until, when death comes to one of you, Our messengers take him in death, and they do not neglect [their duty].”  
+  https://quran.com/6/61
+
+- **Plural, angels seize the soul of each person.**  
+  الَّذِينَ تَتَوَفَّاهُمُ الْمَلَائِكَةُ طَيِّبِينَ  
+  “Those whom the angels take in death while they are good…”  
+  https://quran.com/16/32
+
+- **Plural, angels at death of the evildoers.**  
+  فَكَيْفَ إِذَا تَوَفَّتْهُمُ الْمَلَائِكَةُ يَضْرِبُونَ وُجُوهَهُمْ وَأَدْبَارَهُمْ  
+  “Then how [will it be] when the angels take them in death, striking their faces and their backs?”  
+  https://quran.com/47/27
+
+- **Plural, angels take those who wronged themselves.**  
+  إِنَّ الَّذِينَ تَوَفَّاهُمُ الْمَلَائِكَةُ ظَالِمِي أَنفُسِهِمْ  
+  “Indeed, those whom the angels take in death while wronging themselves…”  
+  https://quran.com/4/97
+
+- **Plural, angels extending their hands at death.**  
+  وَالْمَلَائِكَةُ بَاسِطُو أَيْدِيهِمْ  
+  “…while the angels are stretching out their hands [saying], ‘Deliver your souls…’”  
+  https://quran.com/6/93
+
+Together, these verses establish a single chief “Angel of Death” and many angels who carry out individual takings of the soul.
+
+---
+
+## Hadith proofs
+
+- **Multiple angels attend and dispute over a dying person (not a unique personal ‘angel of death’).**  
+  The famous case of the man who killed ninety‑nine then repented: at his death “the angels of mercy and the angels of punishment disputed,” and Allah sent an angel to judge between them. This shows plural angels present at one person’s death.  
+  - Sahih al‑Bukhari: https://sunnah.com/bukhari:3470  
+  - Sahih Muslim: https://sunnah.com/muslim:2766
+
+- **Angels of mercy vs. angels of punishment at death.**  
+  Multiple narrations describe distinct groups of angels present depending on a person’s state at death (reinforcing plurality at the moment of death, under the chief’s command).  
+  - Sahih Muslim (another route for the same incident): https://sunnah.com/muslim:2767
+
+---
+
+## Classical exegesis
+
+- **Ibn Kathir on 32:11: the chief with helpers.**  
+  Ibn Kathir explicitly notes that the singular “Angel of Death” denotes the chief, while other verses using the plural show his helpers who actually seize souls.  
+  https://www.alim.org/quran/tafsir/ibn-kathir/surah/32/11/
+
+- **Ma‘arif al‑Qur’an highlighting singular vs. plural.**  
+  It contrasts 32:11 (singular) with verses like 16:28 to show many angels operate under the authority of the Angel of Death.  
+  https://quran.com/32:11/tafsirs/en-tafsir-maarif-ul-quran
+
+---
+
+## Clarification
+
+- **Not one personal ‘Malak al‑Mawt’ per Muslim.**  
+  The Qur’an’s language and the sahih reports show a hierarchy: one chief Angel of Death over all, with many angels attending and taking each soul. The claim that every Muslim has their own Malak al‑Mawt is unsupported by the Qur’an and sahih hadith.
+
+---
+
+## Links used
+
+- Qur’an 32:11 — https://quran.com/32/11  
+- Qur’an 6:61 — https://quran.com/6/61  
+- Qur’an 16:32 — https://quran.com/16/32  
+- Qur’an 47:27 — https://quran.com/47/27  
+- Qur’an 4:97 — https://quran.com/4/97  
+- Qur’an 6:93 — https://quran.com/6/93  
+- Sahih al‑Bukhari (man who killed ninety‑nine) — https://sunnah.com/bukhari:3470  
+- Sahih Muslim (same incident) — https://sunnah.com/muslim:2766  
+- Sahih Muslim (companion report of the incident) — https://sunnah.com/muslim:2767  
+- Tafsir Ibn Kathir on 32:11 — https://www.alim.org/quran/tafsir/ibn-kathir/surah/32/11/  
+- Ma‘arif al‑Qur’an on 32:11 — https://quran.com/32:11/tafsirs/en-tafsir-maarif-ul-quran
+
+If you want, I can add Arabic excerpts from Ibn Kathir and other tafasir on 32:11 and 6:61 to pin this down even further.
+
 ---
 
 ## Five types of qadr in Islam
