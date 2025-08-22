@@ -6,6 +6,9 @@
 **Ādam — First Nabī**: The first prophet created by Allāh and directly spoken to, receiving guidance for himself and his descendants.  
 **Nūḥ — First Rasūl**: The first messenger sent with a mission to call a disbelieving people back to worship of Allāh alone.
 
+https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2189
+
+
 
 
 #### 🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋
