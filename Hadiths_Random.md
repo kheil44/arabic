@@ -105,7 +105,7 @@ So the “three common teachers” trivia answer is:
 If you’d like, I can pull one example isnād from each of the six books for all three names, so you can see the proof in the primary sources side‑by‑side.
 
 ---
-## The best Dua
+## 🟢🟢🟢🟢🟢 The best Dua 🟢🟢🟢🟢🟢
 _also starts right at the begning of Supplicaton/Invocations section of Bukhari_
 
 https://sunnah.com/bukhari/80
