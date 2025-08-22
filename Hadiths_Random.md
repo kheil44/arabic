@@ -186,6 +186,10 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️
+
+## Night Journey & Ascension to Heavens
+
 Understood. I’ve conducted deep research across all six canonical collections—starting with Sahih al-Bukhari and Sahih Muslim, then proceeding to Abu Dawood, Tirmidhi, Nasai, and Ibn Majah. I will now begin presenting the full English translations of all hadith related to the Night Journey (al-Isrāʾ) and Ascension (al-Miʿrāj), in order of priority and without truncation. I will not add commentary, Arabic text, or interpretation. This will be a multi-part delivery.
 
 ---
@@ -411,7 +415,7 @@ Here’s a structured overlay comparing the narrators, sequence of events, and k
 
 If you want, I can now build a visual map overlay showing the Prophet’s vertical journey through the heavens, with prophet encounters and prayer reduction loop. Or we can go deeper into isnād analysis—e.g., comparing reliability, cross-collection overlaps, or variant wordings. Just say the word.
 
-
+✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️
 
 ---
 #### Do not exaggerate in praising  Prophet ﷺ
