@@ -187,7 +187,51 @@ These verses are **2:285–286** (*Āmana al‑Rasūlu…*), and in another rep
 
 If you’d like, I can lay out the **full Arabic text with full ḥarakāt**, a precise translation, and a **word‑by‑word breakdown** so you can see the grammar and vocabulary in detail.
 
+Here is the information on the ḥadīth of the last two verses of Sūrat al‑Baqarah and the interpretation of **“كَفَتَاهُ / suffice him”** — with each point directly followed by its source link.
 
+---
+
+## 1. Core Ḥadīth Text
+Narrated by **Abū Masʿūd al‑Anṣārī** (رضي الله عنه):  
+> **الآيَتَانِ مِنْ آخِرِ سُورَةِ الْبَقَرَةِ مَنْ قَرَأَ بِهِمَا فِي لَيْلَةٍ كَفَتَاهُ**  
+> “The two verses from the end of Sūrat al‑Baqarah — whoever recites them at night, they will suffice him.”  
+— *Ṣaḥīḥ al‑Bukhārī* 5040, *Ṣaḥīḥ Muslim* 808  
+[Read on Sunnah.com](https://sunnah.com/search?q=baqarah+last+two+verses)
+
+---
+
+## 2. General Meanings of “Suffice Him”
+Imām al‑Nawawī recorded that scholars differed:  
+- It may mean sufficiency **in place of night prayer (qiyām al‑layl)**.  
+- Or protection from shayṭān.  
+- Or sufficiency from all other nightly adhkār.  
+[Source: Ḥadīth explanation on HadeethEnc](https://hadeethenc.com/en/browse/hadith/6274)
+
+---
+
+## 3. Explicit Link to *Tahajjud*
+Ibn Ḥajar al‑ʿAsqalānī cited a report from **ʿĀṣim → ʿAlqamah → Ibn Masʿūd**:  
+> “Whoever recites the two verses at the end of Sūrat al‑Baqarah, it will be sufficient for him **instead of standing in prayer for one night**.”  
+[Source: Sunnah.com search result with Ibn Ḥajar’s note](https://sunnah.com/search?q=baqarah+last+two+verses)
+
+---
+
+## 4. Scholarly Summary of the *Tahajjud* Interpretation
+IslamWeb’s fatwa states:  
+> “As to what is mentioned in regard to being sufficient instead of Tahajjud prayer in the night, then there is a ḥadīth narrated by Abū Masʿūd al‑Badri with the wording, ‘Whoever recites the last two verses from Sūrat al‑Baqarah, they will be sufficient for him.’”  
+[Read on IslamWeb](https://islamweb.net/en/fatwa/223699/virtue-of-the-last-two-verses-of-soorat-al-baqarah)
+
+---
+
+## 5. Additional Virtue — Heavenly Origin
+Narration from **Ibn ʿAbbās**:  
+An angel descended and said:  
+> “Rejoice with two lights given to you that no prophet before you was given: **al‑Fātiḥah** and the **closing verses of al‑Baqarah**. You will never recite a letter from them except that you will be granted it.”  
+[Source: Sunan an‑Nasāʾī 912 on alHadiths.com](https://alhadiths.com/last-two-verses-of-surah-al-baqarah/)
+
+---
+
+If you want, I can next prepare a **full isnād diagram** for the Ibn Masʿūd variant that explicitly mentions *tahajjud*, so you can see exactly how it is transmitted in the major collections.
 
 ---
 
