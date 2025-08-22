@@ -149,6 +149,28 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 ---
 
 ---
+#### Do not exaggerate in praising  Prophet ﷺ
+
+
+**Arabic text**  
+عَنْ عُمَرَ بْنِ الْخَطَّابِ رَضِيَ اللَّهُ عَنْهُ قَالَ: سَمِعْتُ النَّبِيَّ ﷺ يَقُولُ:  
+«لَا تُطْرُونِي كَمَا أَطْرَتِ النَّصَارَى ابْنَ مَرْيَمَ، فَإِنَّمَا أَنَا عَبْدُهُ، فَقُولُوا: عَبْدُ اللَّهِ وَرَسُولُهُ»
+
+**Translation**  
+ʿUmar ibn al‑Khaṭṭāb (may Allah be pleased with him) reported:  
+> I heard the Prophet ﷺ say: “Do not exaggerate in praising me as the Christians exaggerated in praising the son of Mary. I am only His servant, so say: the servant of Allah and His Messenger.”
+
+**Source:** *Ṣaḥīḥ al‑Bukhārī*, 3445 — [Full reference on Sunnah.com](https://sunnah.com/bukhari:3445)  
+Also recorded in the [Encyclopedia of Translated Prophetic Ḥadīth](https://hadeethenc.com/en/browse/hadith/3406) with explanation.
+
+---
+
+**Key points from the scholars’ explanation**  
+- The prohibition is against going beyond the Sharīʿah‑prescribed limits in praise — such as attributing divine qualities, unseen knowledge, or control over the universe to the Prophet ﷺ.  
+- The comparison to the Christians is a warning not to elevate him to a status beyond prophethood, as they did with ʿĪsā ibn Maryam (Jesus, peace be upon him).  
+- The correct way to address him is exactly as he instructed: **ʿAbdullāh wa Rasūluh** — “Servant of Allah and His Messenger.”
+
+If you’d like, I can also bring you **classical sharḥ (commentary)** excerpts from Ibn Ḥajar and al‑Khaṭṭābī that unpack the linguistic and theological limits of praise in this ḥadīth.
 
 ---
 
