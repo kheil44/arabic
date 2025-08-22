@@ -1208,6 +1208,31 @@ Just say the word.
 # Duas All
 
 ---
+## 🟢🟢🟢🟢🟢 The best Dua 🟢🟢🟢🟢🟢
+
+**Sayyid al‑Istighfār** (سَيِّدُ الاِسْتِغْفَار) literally means **“the master (or chief) of seeking forgiveness”**.
+**the most excellent and comprehensive wording for asking Allah to forgive you**
+_also starts right at the begning of Supplicaton/Invocations section of Bukhari_
+
+https://sunnah.com/bukhari/80
+
+#### Dua
+
+https://sunnah.com/bukhari:6306
+
+
+### 3️⃣ **The Duʿāʾ (Sayyid al‑Istighfār)** — 🟢 This is the supplication
+🟢 **ٱللَّهُمَّ أَنْتَ رَبِّي، لَا إِلَٰهَ إِلَّا أَنْتَ، خَلَقْتَنِي وَأَنَا عَبْدُكَ، وَأَنَا عَلَىٰ عَهْدِكَ وَوَعْدِكَ مَا ٱسْتَطَعْتُ، أَعُوذُ بِكَ مِنْ شَرِّ مَا صَنَعْتُ، أَبُوءُ لَكَ بِنِعْمَتِكَ عَلَيَّ، وَأَبُوءُ لَكَ بِذَنْبِي، فَٱغْفِرْ لِي، فَإِنَّهُ لَا يَغْفِرُ ٱلذُّنُوبَ إِلَّا أَنْتَ**
+
+> “O Allāh, You are my Lord, there is no deity except You. You created me and I am Your servant. I am upon Your covenant and promise as much as I am able. I seek refuge in You from the evil of what I have done. I acknowledge Your favour upon me, and I acknowledge my sin to You. So forgive me, for none forgives sins except You.”
+
+
+
+https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
+
+---
+
+---
 
 **"سبحان الله وبحمده** 
 
