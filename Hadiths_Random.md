@@ -106,6 +106,9 @@ If you’d like, I can pull one example isnād from each of the six books for al
 
 ---
 ## 🟢🟢🟢🟢🟢 The best Dua 🟢🟢🟢🟢🟢
+
+**Sayyid al‑Istighfār** (سَيِّدُ الاِسْتِغْفَار) literally means **“the master (or chief) of seeking forgiveness”**.
+**the most excellent and comprehensive wording for asking Allah to forgive you**
 _also starts right at the begning of Supplicaton/Invocations section of Bukhari_
 
 https://sunnah.com/bukhari/80
