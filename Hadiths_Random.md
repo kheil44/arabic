@@ -154,6 +154,55 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+## Five types of qadr in Islam
+
+### 1. Al‑Qadr al‑Azalī (the pre‑eternal decree in al‑Lawḥ al‑Maḥfūẓ)
+- **Definition:** The comprehensive decree written in the Preserved Tablet before creation, encompassing all that will occur.
+- **Evidence:** Qur’an 22:70 affirms all matters are in a Record; hadith: Allah wrote the decrees 50,000 years before creating the heavens and the earth.
+- **Links used:**
+  - **Islamweb (four aspects of belief in al‑Qadr):** https://islamweb.net/en/article/103101/the-four-aspects-of-belief-in-al-qadr-divine-decree
+  - **Qur’an 22:70 (reference):** https://quran.com/22/70
+
+---
+
+### 2. Al‑Qadr al‑ʿUmrī (the lifetime decree written in the womb)
+- **Definition:** What the angel writes for a person in the womb—provision, lifespan, deeds, and final outcome.
+- **Evidence:** The decree in the womb is a recognized “form” of Qadr; enumerated alongside the annual decree in standard creedal summaries.
+- **Links used:**
+  - **KnowingAllah (belief in al‑Qadar):** https://knowingallah.com/en/articles/252-belief-in-al-qadar-divine-decree/
+
+---
+
+### 3. Al‑Qadr al‑Sanawī (the annual decree on Laylat al‑Qadr)
+- **Definition:** The allocation of the year’s matters—lifespans, provisions, events—issued to the angels on the Night of Decree.
+- **Evidence:** Outlined as the “annual decree” in creed primers; tied to the Qur’anic description of matters being apportioned on that night (cf. 44:4).
+- **Links used:**
+  - **KnowingAllah (belief in al‑Qadar):** https://knowingallah.com/en/articles/252-belief-in-al-qadar-divine-decree/
+  - **Qur’an 44:4 (reference):** https://quran.com/44/4
+
+---
+
+### 4. Al‑Qadr al‑Yawmi (the daily decree)
+- **Definition:** Allah’s daily executing and bringing into effect what He wills—giving life and death, raising and lowering, provision, and other ongoing affairs.
+- **Evidence:** Standard expositions of Qadr include the daily management of affairs, referenced by the verse “Every day He is upon a matter” (55:29).
+- **Links used:**
+  - **KnowingAllah (belief in al‑Qadar):** https://knowingallah.com/en/articles/252-belief-in-al-qadar-divine-decree/
+  - **Qur’an 55:29 (reference):** https://quran.com/55/29
+
+---
+
+### 5. Al‑Qadr al‑Muʿallaq (the conditional/suspended decree) versus al‑Mubram (the fixed decree)
+- **Definition:** Scholars distinguish between a conditional decree that may change upon fulfillment of conditions (e.g., maintaining kinship ties leading to extended lifespan) and a fixed decree that does not change. The change pertains to what is disclosed to angels and written in subsidiary records, not Allah’s eternal knowledge.
+- **Evidence:** Used as an explanation of Qur’an 13:39 (“Allah erases what He wills and affirms… and with Him is the Mother of the Book”), with juristic and hadith‑based elaborations.
+- **Links used:**
+  - **Islam Answers:** https://islamanswers.co.uk/question/are-there-different-types-of-qadr/
+  - **ShafiFiqh:** https://shafifiqh.com/Answer/are-there-different-types-of-qadr-divine-decree/
+  - **IslamOnline (Two Kinds of Qada’):** https://fiqh.islamonline.net/en/two-kinds-of-qada/
+  - **SeekersGuidance (supplication and destiny):** https://seekersguidance.org/answers/islamic-belief/can-supplication-change-destiny/
+  - **Qur’an 13:39 (reference):** https://quran.com/13/39
+
+> Note: For the pre‑eternal decree and writing in the Preserved Tablet, see also the comprehensive creed summary with Qur’an 22:70 and the hadith of “fifty thousand years” before creation. For the womb, annual, and daily decrees, standard creed primers enumerate these forms together; the conditional vs fixed distinction explains how apparent changes occur without contradicting Allah’s eternal knowledge.
+
 ---
 
 https://youtu.be/128GJfzeMwI?list=PLAEA99D24CA2F9A8F&t=1844
