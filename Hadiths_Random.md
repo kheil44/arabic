@@ -156,6 +156,39 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+https://youtu.be/128GJfzeMwI?list=PLAEA99D24CA2F9A8F&t=1844
+
+
+According to an authentic narration in **Ṣaḥīḥ Muslim** about the Prophet’s ﷺ Night Journey and Ascension (*al‑Isrāʾ wa‑al‑Miʿrāj*), when he reached **Sidrat al‑Muntahā** — the Lote Tree at the utmost boundary — he was granted **three special gifts**:
+
+| # | Gift | Brief Description |
+|---|------|-------------------|
+| 1 | **The Five Daily Prayers** (*ṣalawāt al‑khams*) | Obligated upon the Ummah as a direct command from Allah, initially fifty but reduced to five while retaining the reward of fifty. |
+| 2 | **The Concluding Verses of Sūrat al‑Baqarah** (*Āmanar‑Rasūlu…*) | Powerful verses (2:285‑286) containing affirmation of faith, supplication, and Allah’s mercy — regarded as a protection and blessing for the believers. |
+| 3 | **General Forgiveness for Major Sins** for those of his Ummah who do not associate anything with Allah | A divine promise that those who avoid shirk will be forgiven even if they have committed grave sins, subject to Allah’s will. |
+
+You can read the full ḥadīth in Arabic and English on [Sahih Muslim 173 – The Book of Faith](https://sunnah.com/muslim:173).
+
+### Also;
+
+https://youtu.be/128GJfzeMwI?list=PLAEA99D24CA2F9A8F&t=1884
+
+Yes — it’s a well‑known narration, agreed upon by both **al‑Bukhārī** and **Muslim**, from **Abū Masʿūd al‑Anṣārī** (رضي الله عنه):
+
+> **الآيَتَانِ مِنْ آخِرِ سُورَةِ الْبَقَرَةِ مَنْ قَرَأَ بِهِمَا فِي لَيْلَةٍ كَفَتَاهُ**  
+> *“The two verses from the end of Sūrat al‑Baqarah — whoever recites them at night, they will suffice him.”*
+
+Scholars have explained **“suffice him”** in a few ways:  
+- Protection from harm during the night  
+- Sufficiency in reward, as if he had engaged in extra night worship  
+- Covering both worldly and spiritual needs until morning
+
+These verses are **2:285–286** (*Āmana al‑Rasūlu…*), and in another report, it’s mentioned that they were given to the Prophet ﷺ from a treasure beneath the Throne — no prophet before him was given the like of them.  
+
+If you’d like, I can lay out the **full Arabic text with full ḥarakāt**, a precise translation, and a **word‑by‑word breakdown** so you can see the grammar and vocabulary in detail.
+
+
+
 ---
 
 Got it — you want **full‑text narrations** (from the very start of the isnād through to the end of the matn) for the major aḥādīth on **ghībah** (backbiting), not just paraphrases, and with **direct source links** so you can verify them in context.
