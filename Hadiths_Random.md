@@ -1,6 +1,20 @@
 
 ---
 
+#### 🕋🕋🕋🕋🕋🕋🕋 Random 🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋
+
+**Ādam — First Nabī**: The first prophet created by Allāh and directly spoken to, receiving guidance for himself and his descendants.  
+**Nūḥ — First Rasūl**: The first messenger sent with a mission to call a disbelieving people back to worship of Allāh alone.
+
+
+
+#### 🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋
+
+
+---
+
+
+
 #### There were not many poeple in Mekkah during time of our Prophet Mohammed ﷺ
 
 #### _Remember this is especially true when they moved to Abysnia time and such_
