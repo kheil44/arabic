@@ -8,6 +8,10 @@
 
 https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2189
 
+# 📜📜📜 Dawa
+### _You being muslim in non-islamic world in fact is a dawa [listen to 10minutes circa of this point too when the question was asked. its a Hijra question] ._
+
+https://youtu.be/uKbqn5YuOV8?list=PLAEA99D24CA2F9A8F&t=3939
 
 
 
