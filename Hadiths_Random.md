@@ -188,6 +188,67 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+
+---
+
+### 🔥 Holding Onto Religion Like Grasping Hot Coal
+
+🔥🔥 https://youtu.be/uKbqn5YuOV8?list=PLAEA99D24CA2F9A8F&t=4214
+
+## 🔥 1. Jāmiʿ al-Tirmidhī 3058  
+**Narrator**: Abū Thaʿlabah al-Khushani  
+**Translation**:
+
+> Abū Umayyah al-Shaʿbānī said: I asked Abū Thaʿlabah al-Khushani: “O Abū Thaʿlabah! What do you say about this verse:  
+> _‘O you who believe! Take care of your own selves. If you follow the right guidance no harm can come to you from those who are in error.’_ [Qur’an 5:105]”  
+>  
+> He said: “By Allah, I asked the one who was well-informed about it, I asked the Messenger of Allah ﷺ about it.  
+>  
+> He said: ‘Rather, enjoin good and forbid evil, but when you see stinginess being obeyed, desires being followed, and this worldly life being preferred, and every person being impressed with his own opinion, then you should concern yourself with yourself and leave off the common folk.  
+>  
+> For ahead of you are days of patience, in which patience will be like holding onto a burning ember. The one who acts righteously during those days will have the reward of fifty men who do as he does.’”  
+>  
+> I said: “O Messenger of Allah! The reward of fifty men like them, or fifty men like us?”  
+>  
+> He said: “No, rather the reward of fifty men like you.”
+
+🔗 [Sunnah.com – Jāmiʿ al-Tirmidhī 3058](https://sunnah.com/tirmidhi:3058)
+
+---
+
+## 🔥 2. Sunan Abī Dāwūd 4341  
+**Narrator**: Abū Thaʿlabah al-Khushani  
+**Translation**:
+
+> Abū Thaʿlabah al-Khushani said: I said: “O Messenger of Allah! Explain to me this verse:  
+> _‘O you who believe! You are responsible for your own selves. He who goes astray cannot harm you if you are rightly guided.’_ [Qur’an 5:105]”  
+>  
+> The Messenger of Allah ﷺ said: “Enjoin good and forbid evil. But when you see stinginess being obeyed, desires being followed, and this worldly life being preferred, and every person being impressed with his own opinion, then concern yourself with yourself and leave off the common folk.  
+>  
+> For ahead of you are days of patience, in which patience will be like holding onto a burning ember. The one who acts righteously during those days will have the reward of fifty men who do as he does.”  
+>  
+> It was said: “O Messenger of Allah! The reward of fifty men like them, or fifty men like us?”  
+>  
+> He said: “No, rather the reward of fifty men like you.”
+
+🔗 [Sunnah.com – Sunan Abī Dāwūd 4341](https://sunnah.com/abudawud:4341)
+
+---
+
+## 🔥 3. Jāmiʿ al-Tirmidhī 2260  
+**Narrator**: Anas ibn Mālik  
+**Translation**:
+
+> The Messenger of Allah ﷺ said:  
+>  
+> “There shall come upon the people a time in which the one who is patient upon his religion will be like the one holding onto a burning ember.”
+
+🔗 [Sunnah.com – Jāmiʿ al-Tirmidhī 2260](https://sunnah.com/tirmidhi:2260)
+
+---
+
+These are the **full translated texts** as preserved in the canonical collections. No paraphrasing, no trimming. If you want the full Arabic with isnād breakdowns next, I can pull those in too—chain by chain. Or if you want to build a visual overlay comparing the narrations, I’m ready.
+
 ---
 
 ✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️✈️
