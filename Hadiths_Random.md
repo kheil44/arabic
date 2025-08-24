@@ -4,8 +4,10 @@
 #### 🕋🕋🕋🕋🕋🕋🕋 Random 🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋
 
 🕋🕋🕋 pryaing in Mekkah = 100,000 times Rewards
+
 🕋🕋   Pyaing in Medina = 1,000 times
-🕋     Praying in Aqsa = 250 time;
+
+🕋     Praying in Aqsa = 250 time.
 
 https://youtu.be/ptvkYQuWgmU?list=PLAEA99D24CA2F9A8F&t=2289
 
