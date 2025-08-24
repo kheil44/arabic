@@ -201,8 +201,251 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+
 ---
 
+---
+
+---
+
+---
+
+
+---
+
+---
+
+---
+
+---
+
+---
+
+
+---
+
+---
+
+
+---
+
+https://youtu.be/KoKc9ZuATao?list=PLAEA99D24CA2F9A8F&t=1484
+
+
+## 🧕🏼 Who Was Ḍimād al-Azdī?
+
+- From **Azd Shanūʾah**, a Yemeni tribe known for eloquence and healing traditions.
+- A **ruqyah healer**—he treated mental and spiritual illnesses through incantations.
+- Arrived in Mecca during the early daʿwah phase, when Quraysh were spreading slander about the Prophet ﷺ.
+
+---
+
+## 📜 The Full Conversion Story
+
+### 1. **Arrival in Mecca & Rumors**
+
+Ḍimād heard the Quraysh saying:
+
+> _"Muḥammad is possessed, mad, a sorcerer."_  
+He thought: _“I treat madness—perhaps I can help this man.”_
+
+He asked to meet the Prophet ﷺ, sincerely intending to offer healing.
+
+---
+
+### 2. **The Encounter**
+
+He approached the Prophet ﷺ and said:
+
+> _"O Muḥammad, I treat people afflicted by madness. If you wish, I can help you, and perhaps Allah will cure you through me."_
+
+The Prophet ﷺ responded not with argument, but with the **Khutbat al-Ḥājah**:
+
+```arabic
+إِنَّ الْحَمْدَ لِلَّهِ، نَحْمَدُهُ وَنَسْتَعِينُهُ، وَنَسْتَغْفِرُهُ، وَنَعُوذُ بِاللَّهِ مِنْ شُرُورِ أَنْفُسِنَا، وَمِنْ سَيِّئَاتِ أَعْمَالِنَا، مَنْ يَهْدِهِ اللَّهُ فَلَا مُضِلَّ لَهُ، وَمَنْ يُضْلِلْ فَلَا هَادِيَ لَهُ، وَأَشْهَدُ أَنْ لَا إِلَهَ إِلَّا اللَّهُ وَحْدَهُ لَا شَرِيكَ لَهُ، وَأَشْهَدُ أَنَّ مُحَمَّدًا عَبْدُهُ وَرَسُولُهُ
+```
+
+> _“Indeed, all praise is due to Allah. We praise Him, seek His help, and ask His forgiveness. We seek refuge in Allah from the evil of our souls and the misdeeds of our actions. Whomever Allah guides, none can misguide; and whomever He misguides, none can guide. I bear witness that there is no deity but Allah, alone without partner, and that Muḥammad is His servant and messenger.”_
+
+---
+
+### 3. **Ḍimād’s Reaction**
+
+He was stunned. He said:
+
+> _"Repeat those words again."_  
+The Prophet ﷺ did.
+
+Ḍimād said:
+
+> _"I have heard the words of soothsayers, magicians, and poets—but I have never heard anything like this. These words reach the depths of the heart."_  
+> _"Give me your hand so I may pledge allegiance to you."_
+
+He embraced Islam immediately and said:
+
+> _"I pledge allegiance to you—and on behalf of my entire tribe."_
+
+---
+
+## 🔍 Source Verification
+
+### 📘 Hadith & Sīrah Sources
+
+| Source | Reference | Notes |
+|-------|-----------|-------|
+| **Musnad Aḥmad** | Vol. 1, Hadith 207 | Narrated by Ibn ʿAbbās رضي الله عنه |
+| **Sunan Abī Dāwūd** | Kitāb al-Adab | Includes Khutbat al-Ḥājah and context |
+| **Sīrat Ibn Hishām** | Vol. 1 | Detailed narrative of early daʿwah |
+| **Al-Bidāyah wa al-Nihāyah** (Ibn Kathīr) | Vol. 3 | Historical context and aftermath |
+| **Seeratul Mustafa** (Mawlānā Idrīs Kāndhlawī) | Vol. 1, p. 208–209 | Eloquence and impact analysis |
+
+You can also read a concise version on [Islamiqate’s summary of Dimad’s conversion](https://www.islamiqate.com/3351/how-did-dimad%C2%A0al-azdi-ra-become-a-muslim) and a more narrative version from [Questions on Islam](https://questionsonislam.com/article/dimad-bin-thalaba-ra).
+
+---
+
+## 🧠 Why This Story Matters
+
+- It shows the **power of pure speech**—no miracles, no debates, just divine eloquence.
+- It highlights how **truth resonates** even with skeptics when delivered with sincerity.
+- It’s one of the earliest examples of **Islam spreading through daʿwah, not confrontation**.
+
+Would you like a visual isnād map tracing this narration from Ibn ʿAbbās through Musnad Aḥmad and Abū Dāwūd? I can also break down the Arabic linguistics of the Khutbah word-by-word.
+
+---
+
+## 🕌 Event: First Jumʿah Prayer in Islam
+
+https://youtu.be/KoKc9ZuATao?list=PLAEA99D24CA2F9A8F&t=364
+
+### ✅ **Who performed it first?**
+- **Musʿab ibn ʿUmair** رضي الله عنه led the first Jumʿah prayer in **Yathrib (later Madinah)**.
+- **Asʿad ibn Zurārah** رضي الله عنه delivered the **khutbah (sermon)**.
+- This occurred **before the Prophet ﷺ migrated to Madinah**.
+
+🔗 [Detailed account from ilmQA](https://ilmqa.com/when-was-the-first-ever-jumuah-salah-performed-and-who-was-it-led-by/)
+
+---
+
+## 📜 Divine Command Before Hijrah
+
+- According to **ʿAbdullāh ibn ʿAbbās** رضي الله عنه, **Allah gave permission for Jumʿah before Hijrah**, but the Muslims in Mecca were **unable to congregate** due to persecution.
+- The Prophet ﷺ **wrote to Musʿab ibn ʿUmair**, instructing him to lead Jumʿah in Madinah.
+
+🔗 [Narration on Islam Stack Exchange](https://islam.stackexchange.com/questions/10039/what-is-the-history-of-jummah-namaz)
+
+---
+
+## ❌ Why the Prophet ﷺ Couldn’t Perform It First
+
+### 1. **Political and Social Persecution in Mecca**
+- Muslims were under **severe oppression** from Quraysh.
+- Public congregational worship like Jumʿah was **not feasible or safe**.
+
+### 2. **Strategic Timing of Hijrah**
+- The Prophet ﷺ had not yet migrated to Madinah.
+- He remained in Mecca to continue daʿwah and await divine instruction for Hijrah.
+
+---
+
+## 🕌 Prophet’s First Jumʿah
+
+- After migrating, the Prophet ﷺ stayed in **Qubā** for six days.
+- On Friday, he traveled toward Madinah and stopped at **Banū Sālim ibn ʿAwf**.
+- There, he **delivered his first Jumʿah khutbah and led the prayer**.
+- That site became known as **Masjid al-Jumʿah**.
+
+🔗 [Masjid al-Jumʿah historical site – The Pilgrim](https://thepilgrim.co/masjid-al-jummah/)
+
+---
+
+## 🧠 Summary Table
+
+| Event | Who Performed It | Prophet’s Status | Source |
+|------|------------------|------------------|--------|
+| First Jumʿah | Musʿab led, Asʿad gave khutbah | Still in Mecca | [ilmQA](https://ilmqa.com/when-was-the-first-ever-jumuah-salah-performed-and-who-was-it-led-by/) |
+| Divine Command | Given before Hijrah | Prophet instructed remotely | [Islam Stack Exchange](https://islam.stackexchange.com/questions/10039/what-is-the-history-of-jummah-namaz) |
+| Prophet’s First Jumʿah | At Banū Sālim ibn ʿAwf | After Hijrah | [The Pilgrim](https://thepilgrim.co/masjid-al-jummah/) |
+
+---
+
+If you'd like, I can now trace how Jumʿah evolved in the four madhāhib, or build a visual timeline of Jumʿah from Qur’anic command to fiqh codification.
+
+---
+
+## Purity importance of it.
+
+the 
+
+https://youtu.be/KoKc9ZuATao?list=PLAEA99D24CA2F9A8F&t=511
+
+### 🕋 Qur’anic Proofs
+
+### 1. **Surah Al-Baqarah (2:222)**  
+> _“Indeed, Allah loves those who constantly repent and loves those who purify themselves.”_  
+Arabic: **إِنَّ اللَّهَ يُحِبُّ التَّوَّابِينَ وَيُحِبُّ الْمُتَطَهِّرِينَ**
+
+🔗 [Surah Al-Baqarah 2:222 – Quran.com](https://quran.com/2/222)
+
+This verse links **tawbah (repentance)** and **ṭahārah (purification)** as beloved acts to Allah.
+
+---
+
+### 2. **Surah At-Tawbah (9:108)**  
+> _“In it are men who love to purify themselves. And Allah loves those who purify themselves.”_  
+Arabic: **فِيهِ رِجَالٌ يُحِبُّونَ أَنْ يَتَطَهَّرُوا ۚ وَاللَّهُ يُحِبُّ الْمُطَّهِّرِينَ**
+
+🔗 [Surah At-Tawbah 9:108 – Quran.com](https://quran.com/at-tawbah/108)  
+🔗 [Tafsir of 9:108 – SurahQuran.com](https://surahquran.com/tafsir-english-aya-108-sora-9.html)  
+🔗 [Explanation – MyIslam.org](https://myislam.org/surah-taubah/ayat-108/)
+
+This verse was revealed about the people of Qubā, praised for their thorough cleanliness after relieving themselves.
+
+---
+
+## 📜 Hadith Proofs
+
+### 1. **Sahih Muslim – Cleanliness is Half of Faith**  
+> _“الطُّهُورُ شَطْرُ الْإِيمَانِ”_  
+> _“Purity is half of faith.”_
+
+🔗 [Purity in Islam – IslamReligionGuardian.com](https://islamreligionguardian.com/purity-in-islam-hadith-on-cleanliness/)
+
+This hadith elevates purification to a foundational principle of īmān.
+
+---
+
+### 2. **Sunan Ibn Mājah 355**  
+Abū Ayyūb al-Anṣārī, Jābir ibn ʿAbdullāh, and Anas ibn Mālik reported:
+
+> _When the verse “Allah loves those who purify themselves” was revealed, the Prophet ﷺ asked the Ansār: “What is your purification?” They replied: “We perform ablution for prayer, bathe after sexual impurity, and clean ourselves with water.” He said: “That is it—so adhere to it.”_
+
+🔗 [Sunan Ibn Mājah 355 – Sunnah.com](https://sunnah.com/ibnmajah:355)
+
+This hadith directly connects the verse to physical acts of purification.
+
+---
+
+### 3. **Allah is Pure and Loves Purity**  
+> _“Indeed, Allah is pure and only accepts what is pure.”_  
+> _“إِنَّ اللَّهَ طَيِّبٌ لَا يَقْبَلُ إِلَّا طَيِّبًا”_
+
+🔗 [Explanation – Dawat-e-Islami](https://www.dawateislami.net/magazine/en/hadees-with-explanation/allah-is-pure)
+
+This principle extends to actions, intentions, and even clothing and food.
+
+---
+
+## 🧠 Linguistic Note
+
+The root **ط-ه-ر (ṭā-hā-rā)** appears in multiple forms:
+- **مُتَطَهِّرِين** – those who actively purify themselves
+- **مُطَّهِّرِين** – those who are thoroughly purified
+
+Both forms are used in Qur’anic verses to describe people beloved to Allah.
+
+---
+
+If you'd like, I can now build a comparative table of purification-related terms across Qur’an and Hadith, or trace the use of طهارة in classical fiqh texts. Just say the word.
 
 ---
 
