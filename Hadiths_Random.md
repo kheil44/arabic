@@ -3,6 +3,12 @@
 
 #### 🕋🕋🕋🕋🕋🕋🕋 Random 🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋
 
+🕋🕋🕋 pryaing in Mekkah = 100,000 times Rewards
+🕋🕋   Pyaing in Medina = 1,000 times
+🕋     Praying in Aqsa = 250 time;
+
+https://youtu.be/ptvkYQuWgmU?list=PLAEA99D24CA2F9A8F&t=2289
+
 **Ādam — First Nabī**: The first prophet created by Allāh and directly spoken to, receiving guidance for himself and his descendants.  
 **Nūḥ — First Rasūl**: The first messenger sent with a mission to call a disbelieving people back to worship of Allāh alone.
 
