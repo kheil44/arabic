@@ -214,7 +214,7 @@ Commentary: The word "Tuhur'' is used for "Wudu", Ghusl and Tayammum because one
 
 ---
 ## 🔊🔊🔊🔊🔊🔊🔊🔊🔊🔊🔊🔊
-### ow to Answer Adhan
+### How to Answer Adhan
 
 
 ## 🕋 1. **Before the Adhān Begins**
