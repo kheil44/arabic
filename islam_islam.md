@@ -23,6 +23,7 @@ Certainly! Here is the phrase **"بِإِذْنِ اللَّهِ تَعَالَ�
 
 ---
 Index
+- [How to Answer Adhan](#How-to-Answer-Adhan)
 - [Namaz](#Namaz-4-Rakat) ━━━━━━ - [Going to Bed](#Going-to-Bed)
 - [Duas for Wudu](#Wudu) ━━━━━- [Duas All](#Duas-All)
 - [Translations of Quran](#Translations-of-Quran) ━━━━━━━━ -
@@ -211,7 +212,81 @@ Commentary: The word "Tuhur'' is used for "Wudu", Ghusl and Tayammum because one
 
 ## 💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰
 
+---
+## 🔊🔊🔊🔊🔊🔊🔊🔊🔊🔊🔊🔊
+### ow to Answer Adhan
 
+
+## 🕋 1. **Before the Adhān Begins**
+
+There is **no prescribed verbal response before the Adhān starts**, but the Sunnah is to:
+- **Stop all activity** (even Qur’an recitation) and **listen attentively**
+- Focus your heart on the **spiritual significance** of the call
+
+> Ibn al-Qayyim said: _“If your heart leaps with joy when you hear the Adhān in the dunyā, then only bliss and triumph will accompany your ‘call’ on the Day of Reckoning.”_
+
+🔗 [Spiritual preparation before Adhān – Life With Allah](https://lifewithallah.com/articles/other/act-upon-the-etiquettes-of-the-masjid-and-respond-to-the-adhan-2/)
+
+---
+
+## 📣 2. **During the Adhān: Word-by-Word Response**
+
+The Prophet ﷺ instructed us to **repeat the words of the muʾadhdhin**, with two exceptions. Here’s the full chart:
+
+| Muʾadhdhin Says                  | You Say                                   |
+|----------------------------------|-------------------------------------------|
+| **اللَّهُ أَكْبَرُ** (Allah is the Greatest) | **اللَّهُ أَكْبَرُ** (Repeat)             |
+| **أَشْهَدُ أَنْ لَا إِلٰهَ إِلَّا اللَّهُ** | **أَشْهَدُ أَنْ لَا إِلٰهَ إِلَّا اللَّهُ** |
+| **أَشْهَدُ أَنَّ مُحَمَّدًا رَسُولُ اللَّهِ** | **أَشْهَدُ أَنَّ مُحَمَّدًا رَسُولُ اللَّهِ** |
+| **حَيَّ عَلَى الصَّلَاةِ** (Come to prayer) | **لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِاللَّهِ** |
+| **حَيَّ عَلَى الْفَلَاحِ** (Come to success) | **لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِاللَّهِ** |
+| **اللَّهُ أَكْبَرُ اللَّهُ أَكْبَرُ**       | **اللَّهُ أَكْبَرُ اللَّهُ أَكْبَرُ**       |
+| **لَا إِلٰهَ إِلَّا اللَّهُ**               | **لَا إِلٰهَ إِلَّا اللَّهُ**               |
+
+> _“When you hear the muʾadhdhin, say what he says.”_  
+— **Sahih Muslim 385**
+
+🔗 [Full Adhān response chart – Life With Allah](https://lifewithallah.com/articles/other/act-upon-the-etiquettes-of-the-masjid-and-respond-to-the-adhan-2/)  
+🔗 [Hadith source – IslamQA](https://islamqa.org/hanafi/hadithanswers/155405/replying-to-the-words-of-the-adhan/)
+
+---
+
+## 🌟 3. **After the Adhān Ends**
+
+### ✅ A. Send Salutations (Durood) on the Prophet ﷺ
+
+> _“Then ask Allah to grant me al-Wasīlah, and send blessings upon me.”_  
+— **Sunan Abī Dāwūd 524**
+
+### ✅ B. Recite the Prescribed Duʿāʾ
+
+```arabic
+اللَّهُمَّ رَبَّ هٰذِهِ الدَّعْوَةِ التَّامَّةِ، وَالصَّلَاةِ الْقَائِمَةِ، آتِ مُحَمَّدًا الْوَسِيلَةَ وَالْفَضِيلَةَ، وَابْعَثْهُ مَقَامًا مَحْمُودًا الَّذِي وَعَدْتَهُ
+```
+
+> _“O Allah, Lord of this perfect call and the established prayer, grant Muḥammad the means and virtue, and raise him to the praised station You promised him.”_
+
+🔗 [Duʿāʾ after Adhān – Small Steps to Allah](https://smallstepstoallah.com/answering-to-the-azaan/)
+
+---
+
+## 🧠 Bonus: Special Virtue of Responding to Adhān
+
+> _“Whoever says it from his heart shall enter Paradise.”_  
+— **Sahih Muslim 385**, regarding saying **لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِاللَّهِ** during **ḥayya ʿala al-ṣalāh** and **ḥayya ʿala al-falāḥ**
+
+---
+
+## 🚫 What Not to Do
+
+- **Do not speak unnecessarily during the Adhān**  
+> A fabricated narration warns against talking during Adhān, but scholars still advise **silence and attentiveness**
+
+🔗 [Clarification on speaking during Adhān – Hadith Answers](https://hadithanswers.com/talking-during-the-adhan/)
+
+🔊🔊🔊🔊🔊🔊🔊🔊🔊🔊🔊🔊
+
+---
 
 ## The Two Rak‘ah Prayer After Wudu:  
 ### Qur’anic Practice, Hadith Proofs, Rewards, and Details
