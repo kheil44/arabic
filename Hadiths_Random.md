@@ -362,6 +362,8 @@ You can read the verse with context and multiple translations on [Qurʾān 39:42
 
 ---
 
+💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤
+
 ## Core hadith on sleep as “minor death”
 
 | Source | Arabic excerpt | Context | Direct link |
@@ -426,20 +428,27 @@ https://youtu.be/LT6xmSli6xM?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=394
 - Yes, there is a narration with the explicit likeness: “Sleep is the brother (sister) of death.” It is attributed to the Prophet and transmitted by al-Bazzār, with supportive grading from al-Haythamī. See the isnād discussion here and parallel indexing here.  
 - And beyond the simile, the Prophet’s nightly dhikr explicitly treats sleep as a form of “death” and waking as “life again,” which you can verify directly in al-Adab al-Mufrad.
 
+💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤
+
 ---
+🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴
+
 ## The Prophetic Diet
 
 https://youtu.be/f6_SHnxzdbw?t=1633
 
+🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴🌴
 
 ---
+
+💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤
 
 ## in the terminalogy of the Hadith, Witr is Tahajud, is Taraweeh, basically night prayers.
 ### _And the night prayers can be prayed From Isha Up Until Fajir. Tahajud is better to be prayed in it'w famous time but you can praye them at least after Isha._
 
 https://youtu.be/KoKc9ZuATao?list=PLAEA99D24CA2F9A8F&t=3441
 
-
+💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤💤
 ---
 
 https://youtu.be/KoKc9ZuATao?list=PLAEA99D24CA2F9A8F&t=1484
