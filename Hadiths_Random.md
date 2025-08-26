@@ -263,6 +263,9 @@ You’re asking for explicit wordings from the Prophet that liken sleep to death
 
 ---
 
+https://youtu.be/LT6xmSli6xM?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=394
+
+
 ## Primary hadith wordings and direct links
 
 | Arabic wording | Translation | Source note | Direct link |
