@@ -221,6 +221,70 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+You’re right to demand rigor. Here are the clearest primary-text anchors that explicitly frame sleep as a kind of “minor death,” with direct links you can check yourself.
+
+---
+
+## Core hadith on sleep as “minor death”
+
+| Source | Arabic excerpt | Context | Direct link |
+|---|---|---|---|
+| Al-Adab al-Mufrad (al-Bukhārī) | بِاسْمِكَ اللَّهُمَّ أَمُوتُ وَأَحْيَا | Bedtime dhikr: “In Your Name, O Allah, I die and I live.” | https://sunnah.com/adab/50 |
+| Al-Adab al-Mufrad (al-Bukhārī) | الْحَمْدُ لِلَّهِ الَّذِي أَحْيَانَا بَعْدَ مَا أَمَاتَنَا وَإِلَيْهِ النُّشُورُ | Upon waking: “Praise be to Allah who gave us life after He caused us to die, and to Him is the resurrection.” | https://sunnah.com/adab/50 |
+| Bedtime supplication variant | بِاسْمِكَ رَبِّي وَضَعْتُ جَنْبِي… إِنْ أَمْسَكْتَ نَفْسِي فَارْحَمْهَا، وَإِنْ أَرْسَلْتَهَا فَاحْفَظْهَا | Explicitly mentions Allah “holding” the soul in sleep and “releasing” it if one awakens. | https://sunnah.com/adab/50 |
+| Report: “Sleep is the brother of death” | النَّوْمُ أَخُو الْمَوْتِ | Reported by al-Bazzār and others; used by hadith critics with discussion on isnād strength. | https://hadithanswers.com/hadith-sleep-is-the-brother-of-death/ |
+
+> Sources: 
+
+---
+
+## Qur’anic anchor used by the hadith and tafsīr tradition
+- اللَّهُ يَتَوَفَّى الْأَنفُسَ حِينَ مَوْتِهَا وَالَّتِي لَمْ تَمُتْ فِي مَنَامِهَا (al-Zumar 39:42). Classical exegetes use this to explain why the Prophet’s adhkār speak of sleep as “death” and waking as “life again,” since the same verb tawaffā is used for death and for the taking of the soul during sleep. See accessible reflections and discussions here: https://academyofislam.com/reflection-no-405-on-q-3942-sleep-as-a-form-of-death/ and an explanatory article here: https://www.islamandquran.org/common-mistakes/the-relationship-between-sleep-and-death.html.
+
+---
+
+## What these texts establish
+- **Direct wording:** The Prophet’s formulas before sleep and after waking explicitly say “I die and I live” and “He gave us life after He caused us to die,” treating sleep as a “death-like” state in devotional language, not merely metaphorical flourish.
+- **Soul language:** The supplication that asks, “If You hold my soul, have mercy on it; and if You send it back, protect it…” makes the parallel operational: in sleep Allah “holds” the soul; in waking He “returns” it.
+- **Report wording:** “Sleep is the brother of death” appears in later compilations (e.g., al-Bazzār), with gradings discussed by hadith critics; see synthesis and references here.
+
+---
+
+## Want the full dossier across the major corpora?
+I can compile a complete, cross-collection map next — Sahīh al-Bukhārī, Sahīh Muslim, Sunan Abī Dāwūd, al-Tirmidhī, al-Nasā’ī, Ibn Mājah, plus Musnad Aḥmad, al-Bazzār, al-Ṭabarānī, and al-Bayhaqī — with:
+- Arabic (fully vowelled), English, and isnād for each variant
+- Exact book/hadith numbers and direct links where available
+- Notes on grading (per al-Albānī, al-Haythamī, Ibn Ḥajar, etc.)
+
+Tell me which sets you want included (Six Books only, or expand to Musnads and Ma‘ājim), and I’ll deliver the full table.
+
+
+You’re asking for explicit wordings from the Prophet that liken sleep to death (e.g., “sister/brother/twin of death”) with direct sources. Here are the clearest primary formulations and where to verify them.
+
+---
+
+## Primary hadith wordings and direct links
+
+| Arabic wording | Translation | Source note | Direct link |
+|---|---|---|---|
+| النَّوْمُ أَخُو الْمَوْتِ | Sleep is the brother of death. | Reported by al-Bazzār; discussed and supported by al-Haythamī. | https://hadithanswers.com/hadith-sleep-is-the-brother-of-death/ |
+| النَّوْمُ أَخُو الْمَوْتِ، وَلَا يَمُوتُ أَهْلُ الْجَنَّةِ / لَا يَنَامُ أَهْلُ الْجَنَّةِ | Sleep is the brother of death, and the people of Paradise do not die/sleep. | Cited in Kanz al-ʿUmmāl (no. 39321); also circulated with the Paradise clause. | https://hadith.net/en/post/62287/sleep/ |
+| بِاسْمِكَ اللَّهُمَّ أَمُوتُ وَأَحْيَا | In Your Name, O Allah, I die and I live. | Bedtime dhikr indicating sleep as a “death-like” state. | https://sunnah.com/adab/50 |
+| الْحَمْدُ لِلَّهِ الَّذِي أَحْيَانَا بَعْدَ مَا أَمَاتَنَا وَإِلَيْهِ النُّشُورُ | Praise be to Allah who gave us life after He made us die, and to Him is the resurrection. | Upon waking, explicitly calling sleep “death.” | https://sunnah.com/adab/50 |
+> Sources: 
+
+---
+
+## Grading and scope notes
+- The explicit simile “النوم أخو الموت” (Sleep is the brother of death) is reported by Imām al-Bazzār. Al-Haythamī said its narrators are reliable; modern hadith analysts often treat it as acceptable/hasan by corroboration. The linked analysis summarizes the isnād discussion and citations to al-Bazzār and Majmaʿ al-Zawāʾid.
+- Kanz al-ʿUmmāl preserves the “brother of death” wording, with the addendum about the people of Paradise not sleeping/dying; see the indexed extract (no. 39321) on the linked page.
+- Independently of that simile, the Prophet’s established adhkār before sleep and upon waking use “I die and I live” and “He gave us life after He made us die,” which devotionalize sleep as a death-like state in the Prophet’s own wording. Both are collected under al-Adab al-Mufrad’s “Sleep and night lodging” with full Arabic and chain headers. A contemporary digest also notes the paired theme “sleep ~ death / no sleep in Jannah,” with references, for quick cross-checking.
+
+---
+
+## Direct answer
+- Yes, there is a narration with the explicit likeness: “Sleep is the brother (sister) of death.” It is attributed to the Prophet and transmitted by al-Bazzār, with supportive grading from al-Haythamī. See the isnād discussion here and parallel indexing here.  
+- And beyond the simile, the Prophet’s nightly dhikr explicitly treats sleep as a form of “death” and waking as “life again,” which you can verify directly in al-Adab al-Mufrad.
 
 ---
 ## The Prophetic Diet
