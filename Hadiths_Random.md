@@ -221,9 +221,39 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
-You’re right to demand rigor. Here are the clearest primary-text anchors that explicitly frame sleep as a kind of “minor death,” with direct links you can check yourself.
+
 
 ---
+
+
+---
+
+## Sleep & Death
+
+## 📖 Key verse
+**Sūrat al-Zumar (39:42)**  
+> **اللَّهُ يَتَوَفَّى الْأَنفُسَ حِينَ مَوْتِهَا وَالَّتِي لَمْ تَمُتْ فِي مَنَامِهَا ۖ فَيُمْسِكُ الَّتِي قَضَىٰ عَلَيْهَا الْمَوْتَ وَيُرْسِلُ الْأُخْرَىٰ إِلَىٰ أَجَلٍ مُّسَمًّى ۚ إِنَّ فِي ذَٰلِكَ لَآيَاتٍ لِّقَوْمٍ يَتَفَكَّرُونَ**  
+> *Allah takes the souls at the time of their death, and those that have not died — during their sleep. Then He keeps those for which He has decreed death, and releases the others for an appointed term. Indeed in that are signs for a people who reflect.*
+
+---
+
+### 🔍 Linguistic note
+- The verb **يَتَوَفَّى** (*yatawaffā*) means “to take in full” — in Qurʾānic usage, it refers to Allah taking the soul either:
+  - **Permanently** → death
+  - **Temporarily** → sleep
+- The verse treats both as part of the same divine act, differing only in whether the soul is returned.
+
+---
+
+### 🕌 Classical tafsīr
+- **Ibn Kathīr**: Sleep is a “minor death” (*al-mawt al-ṣughrā*), where the soul is partially withheld.
+- **Al-Ṭabarī**: Allah takes the souls of the living during sleep just as He takes the souls of the dead — the difference is that He returns the soul to the sleeper.
+
+---
+
+You can read the verse with context and multiple translations on [Qurʾān 39:42 at Islam and the Qurʾan](https://www.islamandquran.org/common-mistakes/the-relationship-between-sleep-and-death.html) or see a detailed commentary in [Tafsir of 39:42 – Sleep and Death](http://www.islamfrominside.com/Pages/Tafsir/Tafsir%2839-42%29-Sleep%20and%20Death.html).
+
+
 
 ## Core hadith on sleep as “minor death”
 
