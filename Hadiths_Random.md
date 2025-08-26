@@ -252,7 +252,78 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦
 
+### 💦💦💦 authentic duʿāʾ after wuḍūʾ💦💦💦
+
+https://youtu.be/6UyIBltkk8Y?t=466
+
+
+## 1️⃣ **Shahādah Formula** — *Most Widely Reported & Strongest Chain*  
+**Arabic:**  
+أَشْهَدُ أَنْ لَا إِلٰهَ إِلَّا ٱللَّهُ وَحْدَهُ لَا شَرِيكَ لَهُ، وَأَشْهَدُ أَنَّ مُحَمَّدًا عَبْدُهُ وَرَسُولُهُ  
+
+**Transliteration:**  
+Ashhadu an lā ilāha illā Allāhu waḥdahu lā sharīka lah, wa ashhadu anna Muḥammadan ʿabduhu wa rasūluh.  
+
+**Meaning:**  
+I bear witness that there is no deity except Allah alone, without partner, and I bear witness that Muhammad is His servant and Messenger.  
+
+**Source & Authenticity:**  
+- Ṣaḥīḥ Muslim (no. 234), from ʿUqbah b. ʿĀmir رضي الله عنه.  
+- Reward: “All eight gates of Paradise will be opened for him…” (Muslim)  
+- **Direct link:** https://sunnah.com/muslim:234  
+
+---
+
+## 2️⃣ **Expanded Shahādah with Additional Praise**  
+**Arabic:**  
+اللَّهُمَّ ٱجْعَلْنِي مِنَ ٱلتَّوَّابِينَ وَٱجْعَلْنِي مِنَ ٱلْمُتَطَهِّرِينَ  
+
+**Transliteration:**  
+Allāhumma ajʿalnī mina t‑tawwābīn, wajʿalnī mina l‑muṭaṭahhirīn.  
+
+**Meaning:**  
+O Allah, make me among those who constantly repent, and make me among those who purify themselves.  
+
+**Source & Authenticity:**  
+- Sunan al‑Tirmidhī (no. 55), Sunan Ibn Mājah (no. 470) — graded ḥasan by al‑Albānī.  
+- **Direct links:**  
+  - Tirmidhī: https://sunnah.com/tirmidhi:55  
+  - Ibn Mājah: https://sunnah.com/ibnmajah:470  
+
+---
+
+## 3️⃣ **Comprehensive Formula Combining Both**  
+**Arabic:**  
+أَشْهَدُ أَنْ لَا إِلٰهَ إِلَّا ٱللَّهُ وَحْدَهُ لَا شَرِيكَ لَهُ، وَأَشْهَدُ أَنَّ مُحَمَّدًا عَبْدُهُ وَرَسُولُهُ، ٱللَّهُمَّ ٱجْعَلْنِي مِنَ ٱلتَّوَّابِينَ وَٱجْعَلْنِي مِنَ ٱلْمُتَطَهِّرِينَ  
+
+**Transliteration:**  
+Ashhadu an lā ilāha illā Allāhu waḥdahu lā sharīka lah, wa ashhadu anna Muḥammadan ʿabduhu wa rasūluh, Allāhumma ajʿalnī mina t‑tawwābīn, wajʿalnī mina l‑muṭaṭahhirīn.  
+
+**Source & Authenticity:**  
+- Sunan al‑Nasāʾī (*ʿAmal al‑Yawmi wa l‑Laylah*, no. 81) — graded ḥasan by al‑Albānī.  
+- **Direct link:** https://sunnah.com/nasai/45/82  
+
+---
+
+## 4️⃣ **Dhikr of Glorification & Seeking Forgiveness** *(Mawqūf to Abū Saʿīd al‑Khudrī)*  
+**Arabic:**  
+سُبْحَانَكَ ٱللَّهُمَّ وَبِحَمْدِكَ، أَشْهَدُ أَنْ لَا إِلٰهَ إِلَّا أَنْتَ، أَسْتَغْفِرُكَ وَأَتُوبُ إِلَيْكَ  
+
+**Transliteration:**  
+Subḥānaka Allāhumma wa bi‑ḥamdik, ashhadu an lā ilāha illā anta, astaghfiruka wa atūbu ilayk.  
+
+**Meaning:**  
+Glory is to You, O Allah, and praise; I bear witness that there is no deity except You; I seek Your forgiveness and turn to You in repentance.  
+
+**Source & Authenticity:**  
+- Al‑Nasāʾī, *ʿAmal al‑Yawmi wa l‑Laylah* (no. 81), al‑Ḥākim (1/564) — ṣaḥīḥ chain mawqūf.  
+- **Direct link (Nasāʾī):** https://sunnah.com/nasai/45/82  
+
+---
+
+Do you want me to now make you a **side‑by‑side table** with all four duʿāʾ in **full vowels**, transliteration, translation, grading, and *these same raw links* for your personal reference collection? That way you can plug it straight into your hadith resource.
 
 ---
 
@@ -287,7 +358,9 @@ https://youtu.be/LT6xmSli6xM?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=1598
 
 You can read the verse with context and multiple translations on [Qurʾān 39:42 at Islam and the Qurʾan](https://www.islamandquran.org/common-mistakes/the-relationship-between-sleep-and-death.html) or see a detailed commentary in [Tafsir of 39:42 – Sleep and Death](http://www.islamfrominside.com/Pages/Tafsir/Tafsir%2839-42%29-Sleep%20and%20Death.html).
 
+💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦
 
+---
 
 ## Core hadith on sleep as “minor death”
 
