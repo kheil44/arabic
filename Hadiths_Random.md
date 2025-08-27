@@ -10,9 +10,9 @@ https://youtu.be/zeka7Ci0iV8?list=PLAEA99D24CA2F9A8F&t=989
 
 #### __________________________
 
-🕋🕋🕋 pryaing in Mekkah = 100,000 times Rewards
+🕋🕋🕋 Praying in Mekkah = 100,000 times Rewards
 
-🕋🕋   Pyaing in Medina = 1,000 times
+🕋🕋   Praying in Medina = 1,000 times
 
 🕋     Praying in Aqsa = 250 time.
 
