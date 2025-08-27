@@ -250,6 +250,16 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+## Combining Intentions
+
+For example, in the Fajr time, after coming into the mosque, after done with wudu, you can make Niah for 2 rakha not only for Morning Fajr but Wudu and Tayhitul Majid.
+but Note that the two Wudu and Masjid rakhat are not
+
+https://islamqa.info/en/answers/309385/can-one-fast-with-two-intentions
+
+https://islamqa.info/en/answers/220914/can-he-pray-two-rakahs-with-more-than-one-niyyah-(intention)
+
+
 ---
 
 💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦💦
