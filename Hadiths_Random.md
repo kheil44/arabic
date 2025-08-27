@@ -243,7 +243,13 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 
 ---
+🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
+## How to raise Hands for Dua.[Few Methods]
+
+https://youtu.be/X3BsDgvyHl4?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=1265
+
+🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 ---
 
 ### Donkeys are Haram [They were Halal Up untill Battle Of Khyber 17 or maybe 18 Hijra]
