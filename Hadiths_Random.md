@@ -248,6 +248,14 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
+### Duas in Namaz [Stages where you can make duas]
+
+https://youtu.be/xCI_qq1c4ls?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=610
+
+🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
+
+
 ---
 
 ## Combining Intentions
