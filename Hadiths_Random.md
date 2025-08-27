@@ -4,7 +4,7 @@
 #### 🕋🕋🕋🕋🕋🕋🕋 Random 🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋
 
 ### _______________________
-#### some verses of Surah will come after some times e.g in case of Surah An-Nisa ,after two weeks and such.
+#### some verses of Surah will come (Reveal) after some times e.g in case of Surah An-Nisa ,after two weeks and such.
 
 https://youtu.be/zeka7Ci0iV8?list=PLAEA99D24CA2F9A8F&t=989
 
