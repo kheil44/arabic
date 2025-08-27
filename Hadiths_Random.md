@@ -251,6 +251,11 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 ### Duas in Namaz [Stages where you can make duas]
 
+Ruku: 1- you can not accordint to Asim
+https://www.youtube.com/watch?v=hj_AUJyaHk8
+
+Ruku: 2- Yes you can according to Yasir Qadi
+
 https://youtu.be/xCI_qq1c4ls?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=610
 
 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
