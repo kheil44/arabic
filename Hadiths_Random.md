@@ -246,6 +246,17 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+### Donkeys are Haram [They were Halal Up untill Battle Of Khyber 17 or maybe 18 Hijra]
+
+Our beloved Prophet bpuh said ... We are not allowed to eat Donkey & break the pots too,..... Sahabas asked if they could get rid of the meat and keep and clean the pots ... they were allowed...
+
+https://youtu.be/xCI_qq1c4ls?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2687
+
+### Our beloved Prophet bpuh stopped Sahabs from sitting in Alley Way and Talking
+So Saha asked.... they need somewhere to sit....to this Our beloved Prophet bpuh said if you must then lower your gaze and go ahed you can sit....
+
+https://youtu.be/xCI_qq1c4ls?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2798
+
 ---
 
 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
