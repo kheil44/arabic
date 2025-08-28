@@ -241,6 +241,80 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+Alright — let’s rebuild this properly, in the exact structure you’re asking for:  
+
+1. **Full ḥadīth in English first** (so you see the context clearly).  
+2. **Arabic duʿāʾ extracted from that ḥadīth**.  
+3. **Translation of the duʿāʾ**.  
+4. **Direct link to the full ḥadīth** so you can verify the source.  
+
+---
+
+## 1️⃣ **After finishing the prayer — “Allāhumma anta as‑salām…”**
+
+**Full ḥadīth (English):**  
+Thawbān (may Allah be pleased with him) reported: When the Messenger of Allah ﷺ finished his prayer, he would ask forgiveness three times and then say: *“O Allah, You are Peace and from You is all peace. Blessed are You, O Possessor of majesty and honour.”* Al‑Awzāʿī said: One of the narrators explained that “Peace” here means safety from evil.  
+— *Ṣaḥīḥ Muslim* 591
+
+**Arabic duʿāʾ:**  
+اللَّهُمَّ أَنْتَ السَّلَامُ، وَمِنْكَ السَّلَامُ، تَبَارَكْتَ يَا ذَا الْجَلَالِ وَالْإِكْرَامِ  
+
+**Translation of duʿāʾ:**  
+O Allah, You are Peace and from You is all peace. Blessed are You, O Possessor of majesty and honour.
+
+**Direct link:** [Ṣaḥīḥ Muslim 591](https://sunnah.com/muslim:591)
+
+---
+
+## 2️⃣ **Advice to Muʿādh — “Allāhumma aʿinnī ʿalā dhikrik…”**
+
+**Full ḥadīth (English):**  
+Muʿādh ibn Jabal (may Allah be pleased with him) reported: The Messenger of Allah ﷺ took hold of my hand and said: *“O Muʿādh, by Allah I love you, so do not fail to say at the end of every prayer: O Allah, help me to remember You, to thank You, and to worship You in the best manner.”*  
+— *Sunan Abī Dāwūd* 1522, *al‑Nasāʾī* 1303 (authentic)
+
+**Arabic duʿāʾ:**  
+اللَّهُمَّ أَعِنِّي عَلَى ذِكْرِكَ، وَشُكْرِكَ، وَحُسْنِ عِبَادَتِكَ  
+
+**Translation of duʿāʾ:**  
+O Allah, help me to remember You, to thank You, and to worship You in the best manner.
+
+**Direct link:** [Abū Dāwūd 1522](https://sunnah.com/abudawud:1522)
+
+---
+
+## 3️⃣ **Seeking protection — “Allāhumma innī aʿūdhu bika min ʿadhābi jahannam…”**
+
+**Full ḥadīth (English):**  
+Abū Hurayrah (may Allah be pleased with him) reported: The Messenger of Allah ﷺ used to supplicate after the prayer saying: *“O Allah, I seek refuge in You from the punishment of Hell, from the punishment of the grave, from the trials of life and death, and from the evil of the trial of the False Messiah.”*  
+— *Ṣaḥīḥ Muslim* 588
+
+**Arabic duʿāʾ:**  
+اللَّهُمَّ إِنِّي أَعُوذُ بِكَ مِنْ عَذَابِ جَهَنَّمَ، وَمِنْ عَذَابِ الْقَبْرِ، وَمِنْ فِتْنَةِ الْمَحْيَا وَالْمَمَاتِ، وَمِنْ شَرِّ فِتْنَةِ الْمَسِيحِ الدَّجَّالِ  
+
+**Translation of duʿāʾ:**  
+O Allah, I seek refuge in You from the punishment of Hell, from the punishment of the grave, from the trials of life and death, and from the evil of the trial of the False Messiah.
+
+**Direct link:** [Ṣaḥīḥ Muslim 588](https://sunnah.com/muslim:588)
+
+---
+
+## 4️⃣ **Comprehensive goodness — “Rabbana ātinā fi-d-dunyā ḥasanah…”**
+
+**Full ḥadīth (English):**  
+Anas ibn Mālik (may Allah be pleased with him) reported: The supplication most frequently recited by the Prophet ﷺ was: *“O Allah, our Lord, grant us good in this world and good in the Hereafter, and protect us from the punishment of the Fire.”*  
+— *Ṣaḥīḥ al‑Bukhārī* 6389, *Ṣaḥīḥ Muslim* 2688
+
+**Arabic duʿāʾ:**  
+رَبَّنَا آتِنَا فِي الدُّنْيَا حَسَنَةً، وَفِي الْآخِرَةِ حَسَنَةً، وَقِنَا عَذَابَ النَّارِ  
+
+**Translation of duʿāʾ:**  
+Our Lord, grant us good in this world and good in the Hereafter, and protect us from the punishment of the Fire.
+
+**Direct link:** [Ṣaḥīḥ al‑Bukhārī 6389](https://sunnah.com/bukhari:6389)
+
+---
+
+If you want, I can now **append the full Arabic matn for each narration with isnād** so you have the complete chain and wording exactly as preserved in the primary sources. That would make this a fully reference‑grade resource for your study set. Would you like me to do that next?
 
 ---
 
