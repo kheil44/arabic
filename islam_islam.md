@@ -203,6 +203,65 @@ I’ve included:
 
 ---
 
+#### 🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫
+
+Got it — full reset.  
+We’ll rebuild **from Name #1 to Name #99** in one clean, canonical sequence *exactly* like my earlier, richer style you liked:
+
+- **Arabic in Markdown bold** (so once you switch to a bold‑capable Arabic font, it pops)  
+- Full ḥarakāt on Arabic  
+- Transliteration in plain text  
+- **Expanded, flowing meanings** — with depth, nuance, and vivid clarity, not compressed glosses  
+- Grouped thematically with a one‑row table header before each group  
+- Numbering locked from 1 to 99 without drifting  
+- Absolutely **no extra‑canonical names** creeping in
+
+Here’s **Section 1** redone in that earlier, detailed tone — review this and if it’s on point, I’ll continue straight through the rest without losing steam.
+
+---
+
+| **Mercy, Forgiveness, Kindness, Generosity, Nurturing** |
+|---|
+
+| # | **Arabic (full ḥarakāt)** | Transliteration | **Detailed Meaning** |
+|---|---------------------------|-----------------|----------------------|
+| 1 | **ٱلرَّحْمَٰنُ** | Ar‑Raḥmān | The Entirely Merciful — His mercy is vast, boundless, and touches every creature at every moment, whether they acknowledge Him or not; it is manifest in life itself, sustenance, and every unseen protection. |
+| 2 | **ٱلرَّحِيمُ** | Ar‑Raḥīm | The Especially Merciful — A focused, sustaining mercy reserved for those who turn to Him, nurturing their hearts and guiding them toward eternal success. |
+| 3 | **ٱلْمَلِكُ** | Al‑Malik | The Sovereign King — The absolute ruler whose dominion covers the seen and unseen; His decree cannot be challenged, His ownership never lapses. |
+| 4 | **ٱلْقُدُّوسُ** | Al‑Quddūs | The Most Holy — Completely pure from every imperfection, limitation, or resemblance to creation; His perfection is absolute. |
+| 5 | **ٱلسَّلَامُ** | As‑Salām | The Source of Peace — The One from whom all safety and peace flow; He grants freedom from fear, harm, and deficiency to His creation. |
+| 6 | **ٱلْمُؤْمِنُ** | Al‑Muʾmin | The Giver of Security — Confirms the truth of His messengers, grants faith to hearts, and provides safety from injustice. |
+| 7 | **ٱلْمُهَيْمِنُ** | Al‑Muhaymin | The Guardian — Oversees and protects His creation, preserving all and witnessing every act with total awareness. |
+| 8 | **ٱلْعَزِيزُ** | Al‑ʿAzīz | The Almighty — Irresistible in might and honour; none can overcome Him or diminish His glory. |
+| 9 | **ٱلْجَبَّارُ** | Al‑Jabbār | The Restorer & Compeller — Mends the broken, sets right the affairs of creation, and compels the arrogant according to His will. |
+| 10 | **ٱلْمُتَكَبِّرُ** | Al‑Mutakabbir | The Supremely Great — Possesses all greatness and majesty, far above and beyond the qualities of His creation. |
+
+| **Creation, Life‑Giving, Sustenance** |
+|---|
+
+| # | **Arabic (full ḥarakāt)** | Transliteration | **Detailed Meaning** |
+|---|---------------------------|-----------------|----------------------|
+| 11 | **ٱلْخَالِقُ** | Al‑Khāliq | The Creator — Initiates existence from absolute non‑existence, bringing forth everything in perfect proportion according to His will and knowledge. |
+| 12 | **ٱلْبَارِئُ** | Al‑Bāriʾ | The Originator — Brings creation into being without flaw, harmonising its parts so that each fulfils its destined role. |
+| 13 | **ٱلْمُصَوِّرُ** | Al‑Muṣawwir | The Fashioner — Grants every created thing its unique form, structure, and features, whether physical or spiritual. |
+| 14 | **ٱلْغَفَّارُ** | Al‑Ghaffār | The Constant Forgiver — Covers and erases sins again and again, no matter how many times the servant returns in repentance. |
+| 15 | **ٱلْقَهَّارُ** | Al‑Qahhār | The Subduer — Irresistibly overpowers all opposition, ensuring that His will always prevails. |
+| 16 | **ٱلْوَهَّابُ** | Al‑Wahhāb | The Bestower — Lavishly grants gifts, blessings, and abilities without expecting or needing repayment. |
+| 17 | **ٱلرَّزَّاقُ** | Ar‑Razzāq | The Provider — Continuously and unfailingly supplies sustenance to every creature, material and immaterial, in exactly the right measure. |
+| 18 | **ٱلْفَتَّاحُ** | Al‑Fattāḥ | The Opener — Unlocks what is closed, whether it be provision, victory, understanding, or relief from hardship. |
+| 19 | **ٱلْعَلِيمُ** | Al‑ʿAlīm | The All‑Knowing — Knows with absolute certainty all that has been, all that is, and all that will be, along with what is hidden in the hearts. |
+| 20 | **ٱلْقَابِضُ** | Al‑Qābiḍ | The Withholder — Restrains provision, mercy, or opportunities according to perfect wisdom, sometimes as a test, sometimes as protection. |
+
+
+
+
+#### 🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫🏫
+
+---
+
+
+---
+
 ## **99 Names of Allah — Grouped by Thematic Meaning**
 
 | # | **Arabic (with full ḥarakāt)** | **Transliteration** | **Detailed Meaning** |
