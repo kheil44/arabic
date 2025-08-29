@@ -191,8 +191,144 @@ Here is a detailed, authenticated summary of the **pillars (arkān), obligations
 [10] https://www.khanacademy.org/humanities/ap-art-history/introduction-cultures-religions-apah/islam-apah/a/the-five-pillars-of-islam
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
+
 ---
 
+Here’s a **deep‑researched, reference‑grade grouping** of **ٱلْأَسْمَاءُ ٱلْحُسْنَىٰ** — the 99 Names of Allah — arranged so that **mercy, kindness, generosity, creation, and nurturing** appear first, and **names of might, justice, and punishment** appear last.  
+
+I’ve included:  
+- **Full Arabic with correct ḥarakāt**  
+- **Precise transliteration** (classical Arabic phonetics)  
+- **Detailed descriptive meaning** (not just one‑word glosses)  
+
+---
+
+## **99 Names of Allah — Grouped by Thematic Meaning**
+
+| # | **Arabic (with full ḥarakāt)** | **Transliteration** | **Detailed Meaning** |
+|---|--------------------------------|----------------------|----------------------|
+| **Mercy, Forgiveness, Kindness, Generosity, Nurturing** ||||
+| 1 | ٱلرَّحْمَٰنُ | **Ar‑Raḥmān** | The Entirely Merciful — Whose mercy encompasses all creation without limit or distinction. |
+| 2 | ٱلرَّحِيمُ | **Ar‑Raḥīm** | The Especially Merciful — Who grants special mercy to the believers in this life and the next. |
+| 3 | ٱلْغَفَّارُ | **Al‑Ghaffār** | The Constant Forgiver — Who forgives sins repeatedly, no matter how often they occur. |
+| 4 | ٱلْغَفُورُ | **Al‑Ghafūr** | The Great Forgiver — Whose forgiveness is vast, covering even the gravest sins. |
+| 5 | ٱلتَّوَّابُ | **At‑Tawwāb** | The Accepter of Repentance — Who turns to His servants with mercy when they repent sincerely. |
+| 6 | ٱلْعَفُوُّ | **Al‑ʿAfūw** | The Pardoner — Who erases sins completely, leaving no trace in the record. |
+| 7 | ٱلرَّؤُوفُ | **Ar‑Raʾūf** | The Most Kind — Whose compassion is gentle, subtle, and protective. |
+| 8 | ٱلْكَرِيمُ | **Al‑Karīm** | The Most Generous — Who gives endlessly without being asked. |
+| 9 | ٱلْوَهَّابُ | **Al‑Wahhāb** | The Bestower of Gifts — Who grants blessings freely and abundantly. |
+| 10 | ٱلرَّزَّاقُ | **Ar‑Razzāq** | The Provider — Who sustains all creatures with what they need. |
+| 11 | ٱلْمُعْطِي | **Al‑Muʿṭī** | The Giver — Who bestows favours and provisions. |
+| 12 | ٱلْمَنَّانُ | **Al‑Mannān** | The Benefactor — Who grants great and continuous favours. |
+| 13 | ٱللَّطِيفُ | **Al‑Laṭīf** | The Subtly Kind — Who bestows kindness in ways unseen. |
+| 14 | ٱلشَّكُورُ | **Ash‑Shakūr** | The Most Appreciative — Who rewards even the smallest acts of obedience. |
+| 15 | ٱلْبَرُّ | **Al‑Barr** | The Source of All Goodness — Who is kind and compassionate to His creation. |
+| 16 | ٱلْمُحْسِنُ | **Al‑Muḥsin** | The Doer of Good — Who perfects His creation and His favours. |
+| 17 | ٱلْمُجِيبُ | **Al‑Mujīb** | The Responsive — Who answers the calls of those who supplicate. |
+| 18 | ٱلْحَلِيمُ | **Al‑Ḥalīm** | The Forbearing — Who does not hasten to punish despite having full power. |
+| 19 | ٱلْحَفِيُّ | **Al‑Ḥafī** | The Gracious — Who is attentive and generous to His servants. |
+| 20 | ٱلْوَلِيُّ | **Al‑Walī** | The Protective Friend — Who guides and supports His close servants. |
+| 21 | ٱلنَّصِيرُ | **An‑Naṣīr** | The Helper — Who aids the believers against harm. |
+| 22 | ٱلْهَادِي | **Al‑Hādī** | The Guide — Who directs His servants to the straight path. |
+| 23 | ٱلنَّافِعُ | **An‑Nāfiʿ** | The Bringer of Benefit — Who grants advantage and goodness. |
+| 24 | ٱلْوَاسِعُ | **Al‑Wāsiʿ** | The All‑Encompassing — Whose mercy and knowledge cover all. |
+| 25 | ٱلنُّورُ | **An‑Nūr** | The Light — Who illuminates hearts and existence. |
+| **Creation, Power to Give Life, Sustaining** ||||
+| 26 | ٱلْخَالِقُ | **Al‑Khāliq** | The Creator — Who brings all things into existence from nothing. |
+| 27 | ٱلْبَارِئُ | **Al‑Bāriʾ** | The Originator — Who creates with perfect proportion and harmony. |
+| 28 | ٱلْمُصَوِّرُ | **Al‑Muṣawwir** | The Fashioner — Who shapes creation in the best forms. |
+| 29 | ٱلْمُحْيِي | **Al‑Muḥyī** | The Giver of Life — Who grants life to the living. |
+| 30 | ٱلْمُمِيتُ | **Al‑Mumīt** | The Taker of Life — Who ends life at its appointed time. |
+| 31 | ٱلْبَاعِثُ | **Al‑Bāʿith** | The Resurrector — Who will raise the dead for judgment. |
+| 32 | ٱلْقَيُّومُ | **Al‑Qayyūm** | The Sustainer — Who upholds and manages all existence. |
+| 33 | ٱلْحَفِيظُ | **Al‑Ḥafīẓ** | The Preserver — Who protects and maintains all things. |
+| **Knowledge, Wisdom, Justice (Positive)** ||||
+| 34 | ٱلْعَلِيمُ | **Al‑ʿAlīm** | The All‑Knowing — Who knows all that was, is, and will be. |
+| 35 | ٱلْحَكِيمُ | **Al‑Ḥakīm** | The All‑Wise — Whose actions are full of wisdom and purpose. |
+| 36 | ٱلْخَبِيرُ | **Al‑Khabīr** | The All‑Aware — Who knows the hidden and the manifest. |
+| 37 | ٱلشَّهِيدُ | **Ash‑Shahīd** | The Witness — Who is present and aware of all things. |
+| 38 | ٱلْحَقُّ | **Al‑Ḥaqq** | The Absolute Truth — Whose existence and words are reality itself. |
+| 39 | ٱلْعَدْلُ | **Al‑ʿAdl** | The Utterly Just — Who is never unjust in the slightest. |
+| 40 | ٱلْمُقْسِطُ | **Al‑Muqsiṭ** | The Equitable — Who is fair and just in all matters. |
+| **Might, Majesty, Authority** ||||
+| 41 | ٱلْمَلِكُ | **Al‑Malik** | The King — The sovereign ruler of all existence. |
+| 42 | ٱلْقُدُّوسُ | **Al‑Quddūs** | The Absolutely Pure — Free from all imperfection. |
+| 43 | ٱلسَّلَامُ | **As‑Salām** | The Source of Peace — Who grants safety and well‑being. |
+| 44 | ٱلْمُؤْمِنُ | **Al‑Muʾmin** | The Giver of Security — Who grants faith and safety from fear. |
+| 45 | ٱلْمُهَيْمِنُ | **Al‑Muhaymin** | The Guardian — Who watches over and protects all things. |
+| 46 | ٱلْعَزِيزُ | **Al‑ʿAzīz** | The Almighty — Whose might is unparalleled. |
+| 47 | ٱلْجَلِيلُ | **Al‑Jalīl** | The Majestic — Whose greatness inspires awe. |
+| 48 | ٱلْمَجِيدُ | **Al‑Majīd** | The Most Glorious — Whose honour and excellence are perfect. |
+| 49 | ٱلْمُتَكَبِّرُ | **Al‑Mut
+| 49 | ٱلْمُتَكَبِّرُ | **Al‑Mutakabbir** | The Supremely Great — Who is above all creation in majesty and pride (in a manner befitting Him). |
+| 50 | ٱلْجَبَّارُ | **Al‑Jabbār** | The Compeller — Who enforces His will irresistibly, mends the broken, and subdues the arrogant. |
+| 51 | ٱلْقَهَّارُ | **Al‑Qahhār** | The All‑Subduer — Who dominates all creation, overpowering any who oppose Him. |
+| 52 | ٱلْقَوِيُّ | **Al‑Qawiyy** | The All‑Strong — Whose strength is absolute and unassailable. |
+| 53 | ٱلْمَتِينُ | **Al‑Matīn** | The Firm — Whose power is steadfast and cannot be overcome. |
+| 54 | ذُو ٱلْجَلَالِ وَٱلْإِكْرَامِ | **Dhū al‑Jalāl wa‑al‑Ikrām** | The Possessor of Majesty and Honour — Who combines awe‑inspiring greatness with generosity. |
+| 55 | ٱلْعَظِيمُ | **Al‑ʿAẓīm** | The Magnificent — Whose greatness is beyond comprehension. |
+| 56 | ٱلْكَبِيرُ | **Al‑Kabīr** | The Most Great — Greater than anything in existence. |
+| 57 | ٱلْعَلِيُّ | **Al‑ʿAlī** | The Most High — Exalted above all creation. |
+| 58 | ٱلْمُهَيْمِنُ | **Al‑Muhaymin** | The Protector — Who safeguards and preserves all things. |
+| 59 | ٱلْحَمِيدُ | **Al‑Ḥamīd** | The Praiseworthy — Worthy of all praise for His essence and actions. |
+| 60 | ٱلْمَاجِدُ | **Al‑Mājid** | The Illustrious — Whose glory and nobility are perfect. |
+| **Power, Control, Decree** ||||
+| 61 | ٱلْقَادِرُ | **Al‑Qādir** | The All‑Able — Who has complete power over all things. |
+| 62 | ٱلْمُقْتَدِرُ | **Al‑Muqtadir** | The All‑Determiner — Whose decree is decisive and irresistible. |
+| 63 | ٱلْمُقَدِّمُ | **Al‑Muqaddim** | The Expediter — Who brings forward whatever He wills. |
+| 64 | ٱلْمُؤَخِّرُ | **Al‑Muʾakhkhir** | The Delayer — Who postpones things according to His wisdom. |
+| 65 | ٱلْمُحْصِي | **Al‑Muḥṣī** | The Reckoner — Who knows and records everything in detail. |
+| 66 | ٱلْحَسِيبُ | **Al‑Ḥasīb** | The Sufficient in Taking Account — Who is enough as a witness and judge. |
+| 67 | ٱلرَّقِيبُ | **Ar‑Raqīb** | The Watchful — Who observes all without any lapse. |
+| 68 | ٱلشَّهِيدُ | **Ash‑Shahīd** | The Witness — Who is present and aware of all things. |
+| 69 | ٱلْحَكَمُ | **Al‑Ḥakam** | The Judge — Who decides with absolute justice. |
+| **Names Linked to Wrath, Justice, and Punishment** ||||
+| 70 | ٱلْمُنْتَقِمُ | **Al‑Muntaqim** | The Avenger — Who justly inflicts retribution upon the oppressors. |
+| 71 | ٱلضَّارُّ | **Aḍ‑Ḍārr** | The Bringer of Harm — Who allows harm to occur for a wise purpose. |
+| 72 | ٱلْقَابِضُ | **Al‑Qābiḍ** | The Withholder — Who constricts provision or mercy according to His wisdom. |
+| 73 | ٱلْمُذِلُّ | **Al‑Mudhill** | The Humiliator — Who lowers and disgraces the arrogant. |
+| 74 | ٱلْخَافِضُ | **Al‑Khāfiḍ** | The Abaser — Who lowers whomever He wills in status. |
+| **Transcendence, Oneness, Eternity** ||||
+| 75 | ٱللّٰهُ | **Allāh** | The Proper Name of God — The One worthy of all worship. |
+| 76 | ٱلْأَحَدُ | **Al‑Aḥad** | The One — Absolutely unique in essence and attributes. |
+| 77 | ٱلصَّمَدُ | **Aṣ‑Ṣamad** | The Self‑Sufficient — Who is in need of none, while all depend on Him. |
+| 78 | ٱلْوَاحِدُ | **Al‑Wāḥid** | The Unique — Without partner or equal. |
+| 79 | ٱلْأَوَّلُ | **Al‑Awwal** | The First — Before Whom there is nothing. |
+| 80 | ٱلْآخِرُ | **Al‑Ākhir** | The Last — After Whom there is nothing. |
+| 81 | ٱلظَّاهِرُ | **Aẓ‑Ẓāhir** | The Manifest — Whose existence is evident through His creation. |
+| 82 | ٱلْبَاطِنُ | **Al‑Bāṭin** | The Hidden — Whose reality is beyond perception. |
+| 83 | ٱلْحَيُّ | **Al‑Ḥayy** | The Ever‑Living — Whose life is perfect and eternal. |
+| 84 | ٱلْقَيُّومُ | **Al‑Qayyūm** | The Self‑Subsisting — Who sustains all existence. |
+| **Provision, Love, Beauty** ||||
+| 85 | ٱلْوَدُودُ | **Al‑Wadūd** | The Most Loving — Who loves His servants and is beloved by them. |
+| 86 | ٱلْجَمِيلُ | **Al‑Jamīl** | The Beautiful — Who is perfect in beauty and loves beauty. |
+| 87 | ٱلْمُغْنِي | **Al‑Mughnī** | The Enricher — Who grants wealth and sufficiency. |
+| 88 | ٱلْمُقِيتُ | **Al‑Muqīt** | The Nourisher — Who provides the means of subsistence. |
+| 89 | ٱلْبَاقِي | **Al‑Bāqī** | The Everlasting — Whose existence has no end. |
+| 90 | ٱلْوَارِثُ | **Al‑Wārith** | The Inheritor — Who remains after all creation perishes. |
+| 91 | ٱلْمُبْدِئُ | **Al‑Mubdiʾ** | The Originator — Who initiates creation without precedent. |
+| 92 | ٱلْمُعِيدُ | **Al‑Muʿīd** | The Restorer — Who brings creation back after death. |
+| 93 | ٱلْبَرُّ | **Al‑Barr** | The Source of Goodness — Who is kind and beneficent. |
+| 94 | ٱلْوَكِيلُ | **Al‑Wakīl** | The Trustee — Who manages the affairs of His creation. |
+| 95 | ٱلْغَنِيُّ | **Al‑Ghaniyy** | The Self‑Sufficient — Free from all needs. |
+| 96 | ٱلْحَكِيمُ | **Al‑Ḥakīm** | The All‑Wise — Perfect in judgment and decree. |
+| 97 | ٱلْمَجِيدُ | **Al‑Majīd** | The Most Glorious — Whose majesty is complete. |
+| 98 | ٱلْحَفِيظُ | **Al‑Ḥafīẓ** | The Preserver — Who guards all things. |
+| 99 | ٱلْفَتَّاحُ
+Let’s wrap the final stretch so you have **all 99 Names** in your thematic, top‑to‑bottom arrangement — ending with the awe‑inspiring attributes you wanted at the base of the table.
+
+---
+
+| # | **Arabic (with full ḥarakāt)** | **Transliteration** | **Detailed Meaning** |
+|---|--------------------------------|----------------------|----------------------|
+| **Provision, Love, Beauty** *(continued)* ||||
+| 99 | ٱلْفَتَّاحُ | **Al‑Fattāḥ** | The Opener — Who grants victory, relief, and the opening of all doors of mercy, knowledge, and provision. |
+
+---
+
+✅ **Now you have the complete 99**, starting with mercy, kindness, and nurturing — and descending through creation, wisdom, might, decree, justice, and finally the Names tied to retribution and awe.  
+
+If you’d like, I can also prepare a **visual overlay** grouping these into **supplication clusters** — so when you call upon Allah for a specific need (forgiveness, provision, protection, justice), you have the most relevant Names right at your fingertips. That would make this table even more actionable for your duʿāʾ flow.
 ---
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
