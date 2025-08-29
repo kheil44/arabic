@@ -23,6 +23,7 @@ Certainly! Here is the phrase **"بِإِذْنِ اللَّهِ تَعَالَ�
 
 ---
 Index
+- [99 Names of Allah](#99-Names-of-Allah)
 - [How to Answer Adhan](#How-to-Answer-Adhan)
 - [Namaz](#Namaz-4-Rakat) ━━━━━━ - [Going to Bed](#Going-to-Bed)
 - [Duas for Wudu](#Wudu) ━━━━━- [Duas All](#Duas-All)
@@ -191,9 +192,11 @@ Here is a detailed, authenticated summary of the **pillars (arkān), obligations
 [10] https://www.khanacademy.org/humanities/ap-art-history/introduction-cultures-religions-apah/islam-apah/a/the-five-pillars-of-islam
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
-
+💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞
 ---
-Here is a table of the **99 Names of Allah** in canonical order, each with a **deeper, more elaborate meaning** for reflection and understanding. Group names and relevant emoji are listed outside the table for clarity.
+## 99 Names of Allah
+
+Here is a table of the **99 Names of Allah** in canonical order, each with a **deeper, more elaborate meaning** for reflection and understanding.
 
 ***
 
@@ -362,12 +365,16 @@ The meaning for each name here reveals both its depth and spiritual significance
 [6](https://ahadith.co.uk/99namesofAllah.php)
 [7](https://www.islamicreliefcanada.org/resources/99-names-of-allah)
 
----
-
-
-
+💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞
 
 ---
+
+
+
+
+---
+
+🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
 ## 💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰
