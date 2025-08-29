@@ -259,7 +259,6 @@ I’ve included:
 | 46 | ٱلْعَزِيزُ | **Al‑ʿAzīz** | The Almighty — Whose might is unparalleled. |
 | 47 | ٱلْجَلِيلُ | **Al‑Jalīl** | The Majestic — Whose greatness inspires awe. |
 | 48 | ٱلْمَجِيدُ | **Al‑Majīd** | The Most Glorious — Whose honour and excellence are perfect. |
-| 49 | ٱلْمُتَكَبِّرُ | **Al‑Mut
 | 49 | ٱلْمُتَكَبِّرُ | **Al‑Mutakabbir** | The Supremely Great — Who is above all creation in majesty and pride (in a manner befitting Him). |
 | 50 | ٱلْجَبَّارُ | **Al‑Jabbār** | The Compeller — Who enforces His will irresistibly, mends the broken, and subdues the arrogant. |
 | 51 | ٱلْقَهَّارُ | **Al‑Qahhār** | The All‑Subduer — Who dominates all creation, overpowering any who oppose Him. |
@@ -314,21 +313,11 @@ I’ve included:
 | 96 | ٱلْحَكِيمُ | **Al‑Ḥakīm** | The All‑Wise — Perfect in judgment and decree. |
 | 97 | ٱلْمَجِيدُ | **Al‑Majīd** | The Most Glorious — Whose majesty is complete. |
 | 98 | ٱلْحَفِيظُ | **Al‑Ḥafīẓ** | The Preserver — Who guards all things. |
-| 99 | ٱلْفَتَّاحُ
-Let’s wrap the final stretch so you have **all 99 Names** in your thematic, top‑to‑bottom arrangement — ending with the awe‑inspiring attributes you wanted at the base of the table.
-
----
-
-| # | **Arabic (with full ḥarakāt)** | **Transliteration** | **Detailed Meaning** |
-|---|--------------------------------|----------------------|----------------------|
-| **Provision, Love, Beauty** *(continued)* ||||
 | 99 | ٱلْفَتَّاحُ | **Al‑Fattāḥ** | The Opener — Who grants victory, relief, and the opening of all doors of mercy, knowledge, and provision. |
 
 ---
 
-✅ **Now you have the complete 99**, starting with mercy, kindness, and nurturing — and descending through creation, wisdom, might, decree, justice, and finally the Names tied to retribution and awe.  
 
-If you’d like, I can also prepare a **visual overlay** grouping these into **supplication clusters** — so when you call upon Allah for a specific need (forgiveness, provision, protection, justice), you have the most relevant Names right at your fingertips. That would make this table even more actionable for your duʿāʾ flow.
 ---
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
