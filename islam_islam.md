@@ -251,7 +251,7 @@ Each table is followed by in-depth explanatory paragraphs and practical guidance
 | 14 | ٱلْغَفَّارُ     | Al-Ghaffār       | The Constant Forgiver      | Forgives again and again—even repeated, habitual sins, so long as repentance is sincere [Qur’an 20:82].           |
 | 82 | ٱلْعَفُوُّ     | Al-‘Afūw         | The Pardoner               | **Erases sins entirely, as if they never were.** Invoked for total spiritual cleansing, especially in Ramadan [Qur’an 4:99].       |
 | 80 | ٱلتَّوَّابُ     | At-Tawwāb        | The Ever-Pardoning         | **Always ready to accept repentance**, regardless of frequency. Used in sincere repentance [Qur’an 2:128].            |
-| 83 | ٱلرَّؤُوفُ     | Ar-Ra’ūf         | The Most Kind/Compassionate| **Utterly gentle and compassionate.** Invoked for mercy in calamity, for others or oneself [Qur’an 16:7].             |
+| 83 | ٱلرَّؤُوفُ     | Ar-Ra’ūf         | The Most Kind/Compassionate| **Utterly gentle and compassionate.** is mercy that prevents or spares from hardship in the first place — a protective, pre‑emptive compassion..Invoked for mercy in calamity, for others or oneself [Qur’an 16:7].             |
 
 The **Names of Mercy** dominate the Qur’an and supplicatory texts, and they are the principal Divine Names for seeking forgiveness, compassion, and hope. As noted by Ibn Taymiyyah and Ibn al-Qayyim, “Ar-Rahman” signals the all-encompassing mercy Allah bestows equally upon believers and non-believers in this world, while “Ar-Raheem” targets the special, continuous mercy affirmed to believers in both this life and the next.
 
