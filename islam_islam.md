@@ -203,6 +203,12 @@ Here is a detailed, authenticated summary of the **pillars (arkān), obligations
 
 ---
 
+https://www.google.com/search?q=site%3Ahttps%3A%2F%2Funderstandquran.com+ar-rahman&sca_esv=21d142fe9e0fef6b&ei=Bny4aILlDdjQhbIPrK7B0Qs&ved=0ahUKEwiCgNiTkL2PAxVYaEEAHSxXMLoQ4dUDCBA&uact=5&oq=site%3Ahttps%3A%2F%2Funderstandquran.com+ar-rahman&gs_lp=Egxnd3Mtd2l6LXNlcnAiKnNpdGU6aHR0cHM6Ly91bmRlcnN0YW5kcXVyYW4uY29tIGFyLXJhaG1hbkibf1DmDViMeXAEeAGQAQCYAc0CoAHwFaoBCDAuMTIuMy4xuAEDyAEA-AEB-AECmAIIoALzBqgCCsICChAAGLADGNYEGEfCAhAQLhgDGLQCGOoCGI8B2AEBwgIQEAAYAxi0AhjqAhiPAdgBAcICBxAAGIAEGA3CAgYQABgNGB7CAgYQABgWGB6YAxDxBQHPZJoLRDjRiAYBkAYIugYECAEYCpIHBzQuMi4xLjGgB48osgcHMC4yLjEuMbgH4gbCBwU3LjMtMcgHEA&sclient=gws-wiz-serp
+
+to search this "https://understandquran.com" site for detail description of the name
+
+---
+
 ## Introduction: Significance, Canonical List, and Methodology
 
 The 99 Names of Allah, known in Islamic tradition as **Asma’ul Husna** (“The Most Beautiful Names”), encapsulate the divine attributes revealed in the Qur’an and Sunnah. These names are not merely titles; they are theological statements, spiritual invitations, and keys for personalized supplication (du’a). The Prophet Muhammad ﷺ explicitly encouraged knowing, memorizing, and living by these names, stating, “Allah has ninety-nine names; whoever enumerates them will enter Paradise” (Sahih al-Bukhari; Sahih Muslim). The Qur’an commands: “And to Allah belong the best names, so invoke Him by them” (Qur’an 7:180).
