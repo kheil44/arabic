@@ -1657,6 +1657,8 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+https://youtu.be/y0pc95YEloA?list=PL9821CA747E7E0674&t=2311
+
 ### Copy-ready card
 
 - **Arabic:** اللَّهُمَّ إِنَّكَ عَفُوٌّ تُحِبُّ العَفْوَ فَاعْفُ عَنِّي
