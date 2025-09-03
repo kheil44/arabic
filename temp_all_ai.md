@@ -5,6 +5,15 @@ https://youtu.be/vldKHcVG2xA?list=PL9821CA747E7E0674&t=1381
 
 ---
 
+https://quran.com/2/97
+check tafsir for 3 questions asked by  '' from Prophet pbuh.
+
+"When `Abdullah bin Salam heard of the arrival of the Prophet in Al-Madinah, he was working on his land. He came to the Prophet and said, `I am going to ask you about three things which nobody knows except a Prophet. What will be the first portent of the Hour What will be the first meal taken by the people of Paradise Why does a child resemble its father, and why does it resemble its maternal uncle' Allah's Messenger ﷺ said, (Jibril has just told me the answers.) `Abdullah said, `He (i.e. Jibril), among all the angels, is the enemy of the Jews.' Allah's Messenger ﷺ recited the Ayah,
+
+مَن كَانَ عَدُوًّا لِّجِبْرِيلَ فَإِنَّهُ نَزَّلَهُ عَلَى قَلْبِكَ
+
+(Whoever is an enemy to Jibril (Gabriel) (let him die in his fury), for indeed he has brought it (this Qur'an) down to your heart). Allah's Messenger ﷺ then said, (The first portent of the Hour will be a fire that will bring together the people from the east to the west; the first meal of the people of Paradise will be the caudate lobe of the liver of fish. As for the child resembling his parents: If a man has sexual intercourse wit.... THE REST READ TAFIR THERE.....****.~~~~~~#####.
+
 ---
 
 ---
