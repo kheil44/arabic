@@ -239,6 +239,71 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+# Laylat al-qadr supplication: اللَّهُمَّ إِنَّكَ عَفُوٌّ…
+
+---
+
+### Core supplication (with full diacritics)
+
+- **Arabic:**
+  
+  اللَّهُمَّ إِنَّكَ عَفُوٌّ تُحِبُّ العَفْوَ فَاعْفُ عَنِّي
+
+- **Transliteration:**
+  
+  Allāhumma innaka ʿafuwwun tuḥibbu al-ʿafwa faʿfu ʿannī
+
+- **English translation:**
+  
+  O Allah, indeed You are Pardoning; You love pardon, so pardon me.
+
+---
+
+### Primary authentic narrations
+
+- **Ibn Mājah (ʿĀʾishah, RA):** She asked what to say if she encounters Laylat al‑Qadr. He said: “Say: اللَّهُمَّ إِنَّكَ عَفُوٌّ تُحِبُّ العَفْوَ فَاعْفُ عَنِّي.”  
+  Link: https://sunnah.com/ibnmajah:3850 — Graded Ṣaḥīḥ (Darussalam)
+
+- **Al‑Tirmidhī (ʿĀʾishah, RA):** The same wording, taught specifically for Laylat al‑Qadr.  
+  Link: https://sunnah.com/tirmidhi:3513 — Graded Ḥasan Ṣaḥīḥ (al‑Tirmidhī)
+
+> The established matn across these authentic reports is the concise form above, without extra adjectives.
+
+---
+
+### Compact comparison of authentic wording
+
+| Collection | Narrator | Arabic wording of the duʿāʾ | Grading | Link |
+|---|---|---|---|---|
+| Jāmiʿ al‑Tirmidhī 3513 | ʿĀʾishah (RA) | اللَّهُمَّ إِنَّكَ عَفُوٌّ تُحِبُّ العَفْوَ فَاعْفُ عَنِّي | Ḥasan Ṣaḥīḥ (al‑Tirmidhī) | https://sunnah.com/tirmidhi:3513 |
+| Sunan Ibn Mājah 3850 | ʿĀʾishah (RA) | اللَّهُمَّ إِنَّكَ عَفُوٌّ تُحِبُّ العَفْوَ فَاعْفُ عَنِّي | Ṣaḥīḥ (Darussalam) | https://sunnah.com/ibnmajah:3850 |
+
+> Sources: 
+
+---
+
+### Context and usage
+
+- **Occasion:** Taught by the Prophet ﷺ specifically for Laylat al‑Qadr when asked by ʿĀʾishah (RA) what to say if one knows the Night of Decree. The same concise formula is given in both Tirmidhī and Ibn Mājah reports. Use it abundantly in the last ten nights of Ramaḍān, especially the odd nights.
+- **Meaning focus:** “Al‑ʿAfw” seeks erasure and pardoning of sins — not only covering them but removing their traces. The request is for Allah’s pardoning, which He loves to grant.
+
+---
+
+### Notes on variants
+
+- **“Karīm” addition:** The popular addition “كريم” (Karīm) — i.e., اللَّهُمَّ إِنَّكَ عَفُوٌّ كَرِيمٌ تُحِبُّ العَفْوَ فَاعْفُ عَنِّي — is commonly circulated, but it is not the established wording in the authentic narrations of Tirmidhī 3513 or Ibn Mājah 3850 linked above. For adherence to the authenticated matn, use the concise form shown in the Core supplication.
+
+---
+
+### Copy-ready card
+
+- **Arabic:** اللَّهُمَّ إِنَّكَ عَفُوٌّ تُحِبُّ العَفْوَ فَاعْفُ عَنِّي
+- **Transliteration:** Allāhumma innaka ʿafuwwun tuḥibbu al‑ʿafwa faʿfu ʿannī
+- **Translation:** O Allah, indeed You are Pardoning; You love pardon, so pardon me.
+- **Direct sources:** Tirmidhī 3513: https://sunnah.com/tirmidhi:3513 • Ibn Mājah 3850: https://sunnah.com/ibnmajah:3850
+
+If you want, I can add: isnād breakdowns for each route, cross-references in Musnad Aḥmad and other collections, and a side-by-side matn table showing any minor wording differences.
+
 ---
 
 Alright — let’s rebuild this properly, in the exact structure you’re asking for:  
