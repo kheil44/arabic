@@ -192,178 +192,262 @@ Here is a detailed, authenticated summary of the **pillars (arkān), obligations
 [10] https://www.khanacademy.org/humanities/ap-art-history/introduction-cultures-religions-apah/islam-apah/a/the-five-pillars-of-islam
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
+
 💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞
+
 ---
+
 ## 99 Names of Allah
 
-Here is a table of the **99 Names of Allah** in canonical order, each with a **deeper, more elaborate meaning** for reflection and understanding.
+# The 99 Names of Allah (Asma’ul Husna): A Thematic and Supplication-Oriented Guide
 
-***
+---
 
-## Kindness, Mercy, Compassion, Forgiveness 🤲💞
+## Introduction: Significance, Canonical List, and Methodology
 
-| # | Arabic (Bold)   | Transliteration | Translation | Detailed Meaning |
-|---|-----------------|----------------|-------------|-----------------|
-| 1 | **ٱلرَّحْمَٰنُ** | Ar-Rahmān | The Most Compassionate | Possessor of infinite mercy enveloping every existence at every moment, bestowing help and favor without limit or cause—His mercy precedes His wrath and reaches even those who disbelieve.[1][2] |
-| 2 | **ٱلرَّحِيمُ** | Ar-Rahīm | The Most Merciful | Specifically merciful to His faithful, His tenderness and compassion are sustaining and eternal, especially in the Hereafter—turn to Him when seeking forgiveness and love. |
-| 3 | **ٱلْغَفُورُ** | Al-Ghafūr | The All-Forgiving | The One who covers faults and forgives even the gravest sins, continuously and abundantly—no matter how many or how severe, His forgiveness is always accessible. |
-| 4 | **ٱلْغَفَّارُ** | Al-Ghaffār | The Oft-Forgiving | Continuously forgives and conceals shortcomings, repeatedly, for one who sincerely repents—no sin too frequent to be wiped away by Him. |
-| 5 | **ٱلتَّوَّابُ** | At-Tawwāb | The Acceptor of Repentance | Welcomes back those who turn to Him in remorse, repeatedly accepting repentance, never tiring of giving second chances—He is always ready to forgive and restore. |
-| 6 | **ٱلْعَفُوُ** | Al-‘Afuww | The Pardoner | Erases and obliterates sins with absolute finality—His pardon means they are gone as though they never occurred, calling for those who truly desire a fresh start. |
-| 7 | **ٱلْوَدُودُ** | Al-Wadūd | The Most Loving | Delivers pure and unconditional love to all creation, nurturing hearts with warmth and affection—His love inspires, mends, and brings comfort during isolation or sorrow. |
-| 8 | **ٱلرَّءُوفُ** | Ar-Ra’ūf | The Most Kind | Does not burden anyone beyond their capacity and is exceptionally gentle, especially to His creation in distress, always bestowing solace and gentleness. |
-| 9 | **ٱلْبَرُّ** | Al-Barr | The Source of Goodness | The One who does good to all, whether grateful or not, and who is always kind, generous, and righteous toward every being, even when they err. |
-|10| **ٱلشَّكُورُ** | Ash-Shakūr | The Appreciative | For every small good deed, He multiplies the reward beyond expectation, delights in granting more to the grateful, and never lets the smallest act go unnoticed. |
-|11| **ٱلْحَلِيمُ** | Al-Halīm | The Forbearing | Patient with sinners, delaying punishment, granting time and opportunity for repentance—His tolerance is unmatched, never rushing to judge nor to punish. |
+The 99 Names of Allah, known in Islamic tradition as **Asma’ul Husna** (“The Most Beautiful Names”), encapsulate the divine attributes revealed in the Qur’an and Sunnah. These names are not merely titles; they are theological statements, spiritual invitations, and keys for personalized supplication (du’a). The Prophet Muhammad ﷺ explicitly encouraged knowing, memorizing, and living by these names, stating, “Allah has ninety-nine names; whoever enumerates them will enter Paradise” (Sahih al-Bukhari; Sahih Muslim). The Qur’an commands: “And to Allah belong the best names, so invoke Him by them” (Qur’an 7:180).
 
-***
+While all of Allah’s attributes are infinite and inimitable, the canonical list of 99 Names provides a widely recognized and widely referenced selection drawn from the Qur’an and authentic hadith. This report draws upon these sources, classical and contemporary scholarship (including Ibn Taymiyyah, Ibn al-Qayyim, Shaykh Ibn ‘Uthaymeen, and others), to group these names thematically—making them functional for focused and effective dua (supplication).
 
-## Guidance, Wisdom, Knowledge, Light ✨📖
+**Methodology for Grouping:**  
+Most classical and contemporary scholars acknowledge several dimensions for grouping the Divine Names, for example:
+- By themes (Mercy, Forgiveness, Majesty, Justice, etc.)
+- By practical relevance (e.g., which names to use in specific supplications)
+- By linguistic structure (form, emphasis, similitude)
+- By the broad classical categories: Jamal (Beauty), Jalal (Majesty), and Kamal (Perfection).
 
-| # | Arabic (Bold)   | Transliteration | Translation | Detailed Meaning |
-|---|-----------------|----------------|-------------|-----------------|
-|12| **ٱلْهَادِي** | Al-Hādi | The Guide | Illuminates the straight path and leads hearts towards truth and success, removing confusion and doubt—He guides the wandering to clarity, answers the sincere seeker. |
-|13| **ٱلْعَلِيمُ** | Al-‘Alīm | The All-Knowing | Knows everything open and concealed, all possible realities—His wisdom penetrates all layers of creation, turn to Him for clarity, insight, and discernment. |
-|14| **ٱلْخَبِيرُ** | Al-Khabīr | The All-Aware | Aware of even the finest details and deepest secrets, nothing escapes His knowledge—He values intentions and inner realities more than outward appearances. |
-|15| **ٱلْحَكِيمُ** | Al-Hakīm | The Most Wise | Every decree has reason, every verdict is just—His wisdom orchestrates the universe and our lives, sometimes beyond our understanding, trust Him with all outcomes. |
-|16| **ٱلْبَصِيرُ** | Al-Baṣīr | The All-Seeing | Sees all that exists—His observation extends to every act, thought, and feeling, nothing is hidden, rely on Him for vigilance and awareness. |
-|17| **ٱلسَّمِيعُ** | As-Samī' | The All-Hearing | Hears every sound, prayer, whisper—silent pleas and spoken words are received instantly, invoke Him knowing you are always heard. |
-|18| **ٱلْحَيُّ** | Al-Hayy | The Ever-Living | His life is real, independent of all—He is the source of all energy and vitality, eternally present, seek renewal and protection in Him. |
-|19| **ٱلْقَيُّومُ** | Al-Qayyūm | The Sustainer | Maintains the universe without assistance, everything depends on Him—He holds you up when all support vanishes. |
-|20| **ٱلْنُّورُ** | An-Nūr | The Light | Brings light to minds and hearts—dispels darkness, doubts and ignorance, invoke Him for enlightenment and spiritual clarity. |
+This report uses **thematic grouping rooted in authentic sources and the lived example of the Prophet**, designed explicitly to guide believers in using these Names effectively in supplication according to need (e.g., asking for mercy, protection, provision, guidance, etc.).
 
-***
+---
 
-## Power, Majesty, Protection 🛡️👑
+## Canonical List of the 99 Names
 
-| # | Arabic (Bold)   | Transliteration | Translation | Detailed Meaning |
-|---|-----------------|----------------|-------------|-----------------|
-|21| **ٱلْمُؤْمِنُ** | Al-Mu’min | Giver of Security | Grants peace and safety internally and externally, protects from all perceived and unseen dangers, ask Him when anxious or afraid. |
-|22| **ٱلْمُهَيْمِنُ** | Al-Muhaymin | The Overseer | Watches, guards, and validates all creation, the Controller who records and cares for every moment of life. |
-|23| **ٱلْعَزِيزُ** | Al-‘Azīz | The Mighty | Has invincible strength, cannot be overcome, He empowers the weak and helps overcome hardship. |
-|24| **ٱلْجَبَّارُ** | Al-Jabbār | The Compeller | Mends what is broken, forces justice upon the unjust, brings the arrogant to humility. |
-|25| **ٱلْمُتَكَبِّرُ** | Al-Mutakabbir | The Supreme | Far above all creation, nothing can reach or resemble Him; instills awe, humble yourself before true majesty. |
-|26| **ٱلْمَلِكُ** | Al-Malik | The King | Ruler of all realms, commands creation to His will—seek stability and blessing in His sovereignty. |
-|27| **مَالِكُ ٱلْمُلْكُ** | Mālik-ul-Mulk | Master of the Kingdom | None can give or take away except by His leave; for total gratitude and acknowledgment of His dominion. |
-|28| **ذُوالْجَلاَلِ وَالإكْرَامِ** | Dhū-al-Jalāl wāl-Ikrām | Lord of Majesty and Honor | He is the possessor of grandeur and generosity, turn to Him in reverence and requests for honor. |
+For reference and integrity, the canonical list used herein adheres to that affirmed in classical tafasir, the authenticated hadith, and the consensus of the major Islamic scholars.
 
-***
+---
 
-## Rizq, Provision, Sustenance 🌾🍃
+## Thematic Groupings and Names Tables
 
-| # | Arabic (Bold)   | Transliteration | Translation | Detailed Meaning |
-|---|-----------------|----------------|-------------|-----------------|
-|29| **ٱلرَّزَّاقُ** | Ar-Razzāq | Provider | Allocates every form of sustenance to all creation, both material and spiritual, trust in Him when in need or want. |
-|30| **ٱلْوَهَّابُ** | Al-Wahhāb | The Bestower | Freely gives gifts and blessings, even without request, be hopeful of abundance from Him. |
-|31| **ٱلْغَنِيُّ** | Al-Ghaniy | The Self-Sufficient | Entirely free of all needs, He fulfills and enriches without dependence, invoke Him for overcoming financial or spiritual poverty. |
-|32| **ٱلْمُغْنِيُّ** | Al-Mughni | The Enricher | Stretches the means and wealth for whomever He wills, call upon Him in times of scarcity. |
-|33| **ٱلْمَجِيدُ** | Al-Majīd | Glorious | His generosity and honor are infinite, ask to be accepted into His nobility. |
-|34| **ٱلْبَارِئُ** | Al-Bāri’ | The Evolver | Designs creation with precision and purpose, seek renewal and transformation. |
-|35| **ٱلْمُصَوِّرُ** | Al-Musawwir | The Shaper | Forms each creature uniquely, for inner and outer beauty, perfection in diversity. |
-|36| **ٱلْمُحْيِي** | Al-Muhyi | Giver of Life | Instills life and vibrancy in all, physical, spiritual, and emotional—call upon Him to revive what feels dead. |
-|37| **ٱلْمُمِيتُ** | Al-Mumīt | Taker of Life | Controls the return of souls, teaching the value of humility and remembrance of the Hereafter. |
+For each group, a **Markdown table** contains:
+- Number (canonical listing)
+- Arabic Name
+- Transliteration (using contemporary English/academic standards)
+- English meaning
+- Detailed explanation with context and recommended supplication usage
 
-***
+Each table is followed by in-depth explanatory paragraphs and practical guidance for use in supplications, supported by authentic web sources and classical commentaries. When appropriate, particularly significant names may appear in more than one thematic context due to their multiple dimensions in the Qur’an and Sunnah.
 
-## Justice, Honor, Balance ⚖️🏅
+---
 
-| # | Arabic (Bold)   | Transliteration | Translation | Detailed Meaning |
-|---|-----------------|----------------|-------------|-----------------|
-|38| **ٱلْعَدْلُ** | Al-‘Adl | The Just | Always delivers perfect justice, never wrongs a soul—seek Him when mistreated or in need of fairness. |
-|39| **ٱلْمُقْسِطُ** | Al-Muqsit | The Equitable | Justly apportions all forms of reward and trial, rely on Him to resolve imbalances and disputes. |
-|40| **ٱلْمُعِزُّ** | Al-Mu‘izz | Bestower of Honor | Empowers and elevates, grants dignity—turn to Him to guard honor and reputation. |
-|41| **ٱلْمُذِلُّ** | Al-Mudhill | The Humiliator | Removes honor, lowers those arrogant, reminds of humility; protection from pride. |
-|42| **ٱلْمُحْسِي** | Al-Muhsi | The Reckoner | Counts and records every deed; none will be lost or forgotten, accountability is His domain. |
-|43| **ٱلْحَكَمُ** | Al-Hakam | The Judge | Judges all disputes in truth, seek Him for resolution in all affairs, trust in His verdict. |
-|44| **ٱلشَّهِيدُ** | Ash-Shaheed | Witness | Present to all actions, intentions, and events; nothing is hidden, let Him be your witness and support. |
-|45| **ٱلْمُبْدِئُ** | Al-Mubdi’ | The Originator | Begins all things from nothing, the source of all creation, dreams, and ideas. |
+## Theme 1: **Mercy**
 
-***
+| #  | Arabic Name   | Transliteration | Meaning                   | Detailed Explanation                                                                  |
+|----|---------------|----------------|---------------------------|---------------------------------------------------------------------------------------|
+| 1  | ٱلرَّحْمَٰنُ     | Ar-Raḥmān        | The Most/Entirely Merciful | **Universal, infinite mercy** that encompasses all creation. Foundation of divine compassion—invoked in prayer for general mercy [Qur’an 1:1, 19:58]. |
+| 2  | ٱلرَّحِيمُ     | Ar-Raḥīm         | The Especially Merciful    | **Mercy specially directed to the believers.** Used when seeking personal closeness, forgiveness, and salvation [Qur’an 1:3].    |
+| 30 | ٱللَّطِيفُ     | Al-Laṭīf         | The Subtle, Gentile        | **Kindness in delicate, hidden ways**; makes affairs easy seemingly without explanation. Invoked for unseen relief, aid, and subtle divine care [Qur’an 42:19]. |
+| 32 | ٱلْحَلِيمُ     | Al-Ḥalīm         | The Most Forbearing        | **Patient with faults**, overlooking mistakes. Used when seeking leniency and divine patience [Qur’an 3:155].             |
+| 34 | ٱلْغَفُورُ     | Al-Ghafūr        | The Exceedingly Forgiving  | **Forgives repeatedly and comprehensively.** Invoked for complete, repeated pardon [Qur’an 2:173].                         |
+| 14 | ٱلْغَفَّارُ     | Al-Ghaffār       | The Constant Forgiver      | Forgives again and again—even repeated, habitual sins, so long as repentance is sincere [Qur’an 20:82].           |
+| 82 | ٱلْعَفُوُّ     | Al-‘Afūw         | The Pardoner               | **Erases sins entirely, as if they never were.** Invoked for total spiritual cleansing, especially in Ramadan [Qur’an 4:99].       |
+| 80 | ٱلتَّوَّابُ     | At-Tawwāb        | The Ever-Pardoning         | **Always ready to accept repentance**, regardless of frequency. Used in sincere repentance [Qur’an 2:128].            |
+| 83 | ٱلرَّؤُوفُ     | Ar-Ra’ūf         | The Most Kind/Compassionate| **Utterly gentle and compassionate.** Invoked for mercy in calamity, for others or oneself [Qur’an 16:7].             |
 
-## Healing, Well-being, Peace 😌🕊️
+The **Names of Mercy** dominate the Qur’an and supplicatory texts, and they are the principal Divine Names for seeking forgiveness, compassion, and hope. As noted by Ibn Taymiyyah and Ibn al-Qayyim, “Ar-Rahman” signals the all-encompassing mercy Allah bestows equally upon believers and non-believers in this world, while “Ar-Raheem” targets the special, continuous mercy affirmed to believers in both this life and the next.
 
-| # | Arabic (Bold)   | Transliteration | Translation | Detailed Meaning |
-|---|-----------------|----------------|-------------|-----------------|
-|46| **ٱلسَّلَامُ** | As-Salām | Source of Peace | Absolutely free from all defects, the source of all safety and wellbeing—ask Him for tranquility and a sense of calm amidst chaos. |
-|47| **ٱلْمُؤْمِنُ** | Al-Mu’min | Giver of Safety | Instills faith and security from harm; turns fear to peace and doubt to certainty. |
-|48| **ٱلْمُهَيْمِنُ** | Al-Muhaymin | Protector | The Guardian that envelops with safety and care, find assurance in His protection. |
-|49| **ٱلْوَلِيُّ** | Al-Waliyy | Close Friend | Intimate supporter, always near; grant companionship and refuge when lonely. |
-|50| **ٱلْنُّورُ** | An-Nūr | The Light | Disperses darkness, ignorance, and confusion; ask Him for spiritual and emotional illumination. |
-|51| **ٱلصَّبُورُ** | As-Ṣabūr | The Patient | Endures all without haste, gives time for change and betterment, turn to Him for steadfastness. |
+When making dua for mercy, use these names, for example:
+- “Ya Ar-Rahman, envelop me and my loved ones in Your boundless mercy.”
+- “Ya Ar-Raheem, grant me special mercy on the Day of Judgment.”
+- “Ya Al-Ghaffar, forgive me every time I return to You.”
 
-***
+Reflecting on these names develops inner compassion—a core prophetic practice—and inspires us to be merciful to others.
 
-## Wrath, Majesty, Hardship ⚡🔥
+---
 
-| # | Arabic (Bold)   | Transliteration | Translation | Detailed Meaning |
-|---|-----------------|----------------|-------------|-----------------|
-|52| **ٱلْمُنْتَقِمُ** | Al-Muntaqim | The Avenger | Executes swift and perfect justice upon oppressors; call on Him when justice feels far away. |
-|53| **ٱلْمَانِعُ** | Al-Māni‘ | Withholder | Prevents that which is harmful, even when we cannot see its danger; reminds us He knows best. |
-|54| **ٱلضَّارُ** | Ad-Dārr | Bringer of Harm | Allows trials and pain according to divine wisdom and balance, teaching resilience and perspective. |
-|55| **ٱلْقَهَّارُ** | Al-Qahhār | The Subduer | Subdues all rebellion, forces surrender when arrogance grows—submit fully to Him and be saved. |
-|56| **ٱلْمُتَكَبِّرُ** | Al-Mutakabbir | The Supreme | Transcends creation, commands awe, evokes humility and reflection on one’s place in creation. |
+## Theme 2: **Love**
 
-***
+| #  | Arabic Name   | Transliteration | Meaning                 | Detailed Explanation                                                               |
+|----|---------------|----------------|-------------------------|------------------------------------------------------------------------------------|
+| 47 | ٱلْوَدُودُ       | Al-Wadūd         | The Most Loving           | Allah’s love is pure, unconditional and eternal—He loves His righteous servants and creation deeply [Qur’an 11:90]. Invoked to inspire love, heal emotional wounds, and seek loving companionship.           |
+| 35 | ٱلشَّكُورُ       | Ash-Shakūr        | The Most Appreciative      | Values and rewards even the smallest good deed; reciprocates acts of worship with immense love and blessings [Qur’an 64:17].                                        |
+| 79 | ٱلْبَرُّ         | Al-Barr           | The Source of All Goodness | Allah’s loving-kindness and nurturing aspect; does good for His servants without expecting anything in return. Invoked for hope and comfort in hardship.              |
 
-## All Other Attributes
+The Divine Names associated with **Love** ("Al-Wadūd", "Ash-Shakūr", "Al-Barr") appear in both Qur’anic verses and hadith, illuminating a facet of Allah that is affectionate, nurturing, and deeply relational. When seeking loving companionship, healing in family ties, or yearning for divine affection, call upon “Ya Wadūd”. Reciting and pondering these names can transform worship and relationships, encouraging believers to embody loving qualities themselves.
 
-| # | Arabic (Bold)   | Transliteration | Translation | Detailed Meaning |
-|---|-----------------|----------------|-------------|-----------------|
-|57| **ٱلْمَلِكُ** | Al-Malik | The King | Undisputed ruler of all, upholds justice and order, every kingdom is His alone. |
-|58| **ٱلْقُدُّوسُ** | Al-Quddūs | The Absolutely Pure | Free from all defect or imperfection, seek Him for purification and spiritual elevation. |
-|59| **ٱلْمُؤْمِنُ** | Al-Mu’min | The Guarantor | Offers assurance in both faith and worldly matters, bolsters certainty and trust. |
-|60| **ٱلْمُهَيْمِنُ** | Al-Muhaymin | The Guardian | Watches over us, records every deed, fosters accountability and mindfulness. |
-|61| **ٱلْخَالِقُ** | Al-Khāliq | The Creator | Originates all creation with wisdom, beauty, and perfect design. |
-|62| **ٱلْبَارِئُ** | Al-Bāri’ | The Maker | Shapes the world and beings in unique forms, instills purpose in all creation. |
-|63| **ٱلْمُصَوِّرُ** | Al-Musawwir | The Fashioner | Gives everyone their distinct form and qualities, embrace uniqueness and diversity. |
-|64| **ٱلْقَهَّارُ** | Al-Qahhār | The Subduer | No opposition can withstand Him, absolute force and will. |
-|65| **ٱلْوَهَّابُ** | Al-Wahhāb | The Giver | Abundant bestower, gifts given without ask or return. |
-|66| **ٱلرَّزَّاقُ** | Ar-Razzāq | Provider | Fulfills every need, delivers sustenance in all forms. |
-|67| **ٱلْفَتَّاحُ** | Al-Fattāh | The Opener | Opens doors, unlocks mercy and opportunity, turns obstacles into ease. |
-|68| **ٱلْعَلِيمُ** | Al-‘Alīm | All-Knowing | Infinite knowledge covers all possible realities. |
-|69| **ٱلْقَابِضُ** | Al-Qābid | The Withholder | Restricts provision, sometimes hardship is hidden mercy. |
-|70| **ٱلْبَاسِطُ** | Al-Bāsit | The Expander | Spreads bounty, opens ways, enriches experience and sustenance. |
-|71| **ٱلْخَافِضُ** | Al-Khāfid | The Reducer | Lowers those who oppose Him, bestows humility. |
-|72| **ٱلرَّافِعُ** | Ar-Rāfi‘ | The Exalter | Raises in rank those deserving, lifts spirits and fortunes. |
-|73| **ٱلْمُعِزُّ** | Al-Mu‘izz | Honorer | Provides dignity, honor cannot be taken away except by Him. |
-|74| **ٱلْمُذِلُّ** | Al-Mudhill | Disgracer | Removes honor, humbles those boasting arrogance. |
-|75| **ٱلسَّمِيعُ** | As-Samī‘ | All-Hearing | Instantly hears every prayer and sound. |
-|76| **ٱلْبَصِيرُ** | Al-Baṣīr | All-Seeing | His observation exists in all situations. |
-|77| **ٱلْحَكَمُ** | Al-Hakam | Judge | Resolves disputes with perfect fairness. |
-|78| **ٱلْعَدْلُ** | Al-‘Adl | Just | Upholds equilibrium, no injustice happens. |
-|79| **ٱلطَّيِّبُ** | At-Tayyib | Pure | Absolute spiritual purity and clarity. |
-|80| **ٱلْكَبِيرُ** | Al-Kabīr | Greatest | Boundless greatness and glory. |
-|81| **ٱلْحَفِيظُ** | Al-Hafīẓ | Preserver | Guards and sustains all beings from harm, spiritually and physically. |
-|82| **ٱلْمُقِيتُ** | Al-Muqīt | Nourisher | Gives strength, sustenance, and energy. |
-|83| **ٱلْحَسِيبُ** | Al-Hasīb | Accounter | Tracks every deed, reward and punishment measured perfectly. |
-|84| **ٱلْجَلِيلُ** | Al-Jalīl | Majestic | Supreme grandeur and majesty. |
-|85| **ٱلْكَرِيمُ** | Al-Karīm | Generous | Unlimited generosity, honors those who ask and give thanks. |
-|86| **ٱلرَّقِيبُ** | Ar-Raqīb | Watchful | Forever vigilant, always aware of every act and intention. |
-|87| **ٱلْمُجِيبُ** | Al-Mujīb | Responsive | Answers prayers, present for every call. |
-|88| **ٱلْوَاسِعُ** | Al-Wāsi‘ | All-Encompassing | Vasts in mercy, knowledge, ability. |
-|89| **ٱلْحَكِيمُ** | Al-Hakīm | Wise | Divine wisdom saturates all creation. |
-|90| **ٱلْوَدُودُ** | Al-Wadūd | Loving | Pure affection and tenderness. |
-|91| **ٱلْمَجِيدُ** | Al-Majīd | Glorious | Infinite glory and honor. |
-|92| **ٱلْبَاعِثُ** | Al-Bā‘ith | Resurrector | Revives the dead, inspires new beginnings. |
-|93| **ٱلشَّهِيدُ** | Ash-Shaheed | Witness | Present, aware, and testifying to all. |
-|94| **ٱلْحَقُّ** | Al-Haqq | Truth | Embodiment of truth, seek certainty. |
-|95| **ٱلْوَكِيلُ** | Al-Wakīl | Trustee | Ultimate reliance, takes care of affairs. |
-|96| **ٱلْقَوِيُّ** | Al-Qawī | Strong | Provides real strength and resilience. |
-|97| **ٱلْمَتِينُ** | Al-Matīn | Firm | Stability and steadfastness in all. |
-|98| **ٱلْوَلِيُّ** | Al-Wali | Guardian | Loyal and protective companion. |
-|99| **ٱلْحَمِيدُ** | Al-Hamīd | Praiseworthy | Worthy of all praise and gratitude. |
+---
 
-***
+## Theme 3: **Protection**
 
-The meaning for each name here reveals both its depth and spiritual significance. If you want further amplification for any particular name, or a separate table by specific use case or thematic purpose, please request more detail!.[1][2][6][7]
+| #  | Arabic Name   | Transliteration | Meaning                        | Detailed Explanation                                                                     |
+|----|---------------|----------------|--------------------------------|------------------------------------------------------------------------------------------|
+| 5  | ٱلسَّلَامُ       | As-Salām          | The Source of Peace and Security  | Grants inner and outer peace; invoked against calamity, anxiety, and fear [Qur’an 59:23].   |
+| 6  | ٱلْمُؤْمِنُ       | Al-Mu’min         | The Giver of Faith and Security   | Bestows faith and secures hearts; invoked in prayers for assurance and spiritual safety [Qur’an 59:23].        |
+| 7  | ٱلْمُهَيْمِنُ     | Al-Muhaymin       | The Guardian, Overseer           | Watches, guards, and preserves all; used for vigilant guardianship over self or family [Qur’an 59:23].         |
+| 38 | ٱلْحَفِيظُ       | Al-Hafeez         | The Preserver                    | Protects from dangers and loss; invoked for safeguarding from evil, calamity, or forgetfulness [Qur’an 11:57].     |
+| 43 | ٱلرَّقِيبُ       | Ar-Raqeeb         | The Ever-Watchful                | Constantly aware of all; invoked for spiritual, mental, and physical security [Qur’an 4:1].                      |
+| 55 | ٱلْوَلِيُّ        | Al-Waliyy         | The Protecting Friend/Ally       | Offers intimate guardianship and defense; invoked when feeling alone or in distress [Qur’an 42:28].              |
 
-[1](https://myislam.org/99-names-of-allah/)
-[2](https://99namesofallah.name)
-[3](https://academy.seekersguidance.org/course/view.php?id=202)
-[4](https://yaqeeninstitute.org/read/paper/approaching-the-quran-through-the-names-of-allah)
-[5](https://www.youtube.com/watch?v=lCvuM0k8Stg)
-[6](https://ahadith.co.uk/99namesofAllah.php)
-[7](https://www.islamicreliefcanada.org/resources/99-names-of-allah)
+Names reflecting **protection** anchor supplications in times of fear, uncertainty, or vulnerability. Scholars such as Ibn al-Qayyim recommend invoking “As-Salām” for personal and communal safety, while “Al-Hafeez” is commonly used in prayers for children or property. The Quranic emphasis on Allah as “The Source of Peace” links protection to spiritual tranquility. In du’as, one might say, “Ya Hafeez, shield me from harm seen and unseen,” or, “Ya Mu’min, secure my heart from doubt and fear.”
+
+---
+
+## Theme 4: **Provision**
+
+| #  | Arabic Name   | Transliteration | Meaning                  | Detailed Explanation                                                                                 |
+|----|---------------|----------------|--------------------------|------------------------------------------------------------------------------------------------------|
+| 16 | ٱلْوَهَّابُ       | Al-Wahhab         | The Bestower                 | Freely and repeatedly gives gifts and blessings, material and spiritual, unasked and undeserved [Qur’an 3:8].      |
+| 17 | ٱلرَّزَّاقُ       | Ar-Razzaaq        | The Provider                 | Grants sustenance to all beings, often in unexpected or unseen ways [Qur’an 51:58].                   |
+| 21 | ٱلْبَاسِطُ       | Al-Baasit         | The Expander                 | Extends provision, blessings, and mercy; invoked when seeking expansion in income and opportunities [Qur’an 2:245].|
+| 39 | ٱلْمُقِيتُ       | Al-Muqeet         | The Sustainer                | Maintains and nourishes physical and spiritual needs; invoked when seeking resilience and support [Qur’an 4:85].   |
+| 88 | ٱلْمُغْنِي        | Al-Mughni         | The Enricher                 | Delivers self-sufficiency and wealth, material or immaterial; frequently recited in du’a for debt relief [Qur’an 35:15].|
+
+These Divine Names address all aspects of **provision** and prosperity. Whether anxious about sustenance, seeking bountiful offspring, or aiming for baraka in daily affairs, using “Ya Razzaaq” or “Ya Wahhab” in supplications is both Qur’anic and prophetic. For example, “Ya Razzaaq, grant me lawful and blessed rizq,” or “Ya Wahhab, bestow upon me and my family Your gifts.”
+
+---
+
+## Theme 5: **Majesty and Greatness**
+
+| #  | Arabic Name   | Transliteration | Meaning                      | Detailed Explanation                                                                    |
+|----|---------------|----------------|------------------------------|-----------------------------------------------------------------------------------------|
+| 3  | ٱلْمَلِكُ        | Al-Malik         | The King and Owner of Dominion   | Sovereign over all worlds; invoked for submission and humility before Divine power [Qur’an 59:23].    |
+| 10 | ٱلْمُتَكَبِّرُ    | Al-Mutakabbir    | The Supreme in Greatness          | Supreme, transcendent above all creation [Qur’an 59:23].                                  |
+| 33 | ٱلْعَظِيمُ       | Al-‘Azeem         | The Magnificent, The Supreme      | Reflects Allah’s sheer majesty, evoking awe and reverence [Qur’an 2:255].                 |
+| 37 | ٱلْكَبِيرُ       | Al-Kabīr          | The Most Great                   | Boundless greatness, contrasted with human limitations [Qur’an 34:23].                    |
+| 41 | ٱلْجَلِيلُ        | Al-Jaleel         | The Majestic                     | Inspires awe, reverence and deep humility [Qur’an 55:27].                                 |
+| 48 | ٱلْمَجِيدُ        | Al-Majeed         | The Glorious                     | Denotes immense glory, high status, and honor [Qur’an 11:73].                             |
+| 65 | ٱلْمَاجِدُ        | Al-Maajid         | The Glorious and Noble            | Intensive attribute of exalted greatness and nobility.                                    |
+| 84 | مَالِكُ ٱلْمُلْكُ | Malik al-Mulk     | Owner of Absolute Sovereignty      | Owns and controls all kingdoms, emphasizes detachment from worldly pursuits [Qur’an 3:26].|
+| 85 | ذُو ٱلْجَلَالِ وَٱلْإِكْرَامِ | Dhul-Jalāli wal-Ikram | Lord of Majesty and Honor        | Combines grandeur and generosity [Qur’an 55:27].                                          |
+
+These names are pivotal for praising Allah in worship, especially in times of need, or before requesting provision, victory, or justice. “Ya Malik al-Mulk” is recited when seeking deliverance from hardship, and “Ya Dhul-Jalali wal-Ikram” is frequent in prostration and prayers of gratitude.
+
+---
+
+## Theme 6: **Justice**
+
+| #  | Arabic Name   | Transliteration | Meaning                  | Detailed Explanation                                                                          |
+|----|---------------|----------------|--------------------------|-----------------------------------------------------------------------------------------------|
+| 28 | ٱلْحَكَمُ         | Al-Hakam          | The Judge                   | Ultimately arbitrates all matters with absolute fairness; invoked in disputes and oppression [Qur’an 6:114].                   |
+| 29 | ٱلْعَدْلُ         | Al-‘Adl           | The Utterly Just            | Ensures perfect balance and justice; called upon when seeking fairness and righting wrongs [Qur’an 6:115].                     |
+| 86 | ٱلْمُقْسِطُ        | Al-Muqsiṭ          | The Just One                | Applies justice equitably across all creation; invoked for social and personal equity [Qur’an 49:9].                           |
+| 40 | ٱلْحَسِيبُ         | Al-Ḥasīb           | The Reckoner                | Perfectly accounts for all deeds; central to accountability and self-evaluation [Qur’an 33:39].                                 |
+
+These names are foundational for dua in contexts of injustice, dispute, or when desiring restoration of rights. For oppressed, wronged, or mistreated individuals, the Prophet advised invoking “Al-Hakam” and “Al-‘Adl” to seek Divine assistance in securing fairness.
+
+---
+
+## Theme 7: **Knowledge**
+
+| #  | Arabic Name   | Transliteration | Meaning                     | Detailed Explanation                                                                                       |
+|----|---------------|----------------|-----------------------------|------------------------------------------------------------------------------------------------------------|
+| 19 | ٱلْعَلِيمُ       | Al-‘Aleem        | The All-Knowing                 | Comprehensive knowledge; invoked for gaining wisdom, clarity, and making life decisions [Qur’an 2:115].             |
+| 31 | ٱلْخَبِيرُ       | Al-Khabeer       | The All-Aware                   | Knows subtleties and hidden realities; invoked for discernment and guidance in complex affairs [Qur’an 49:13].      |
+| 26 | ٱلسَّمِيعُ       | As-Samee’        | The All-Hearing                 | Hears all supplications, prayers, and whispers; invoked for reassurance in private worship [Qur’an 2:127].          |
+| 27 | ٱلْبَصِيرُ       | Al-Baseer        | The All-Seeing                  | Observes everything public and private; invoked for consciousness and sincerity in one’s deeds [Qur’an 2:110].      |
+| 46 | ٱلْحَكِيمُ       | Al-Hakim         | The All-Wise                    | Places all things in their proper measure, invokes deep wisdom and understanding [Qur’an 6:18].                     |
+| 57 | ٱلْمُحْصِي       | Al-Muhsi         | The All-Enumerating             | Counts, measures, and records all things accurately [Qur’an 58:6].                                                  |
+
+**Knowledge** and awareness encompass not only the acquisition of knowledge, but also self-understanding, awareness of good and evil, and clarity in action and speech. When preparing for tests, seeking guidance, or faced with important decisions, “Ya ‘Aleem” and “Ya Hakeem” are widely recited.
+
+---
+
+## Theme 8: **Creation and Origin**
+
+| #  | Arabic Name   | Transliteration | Meaning                        | Detailed Explanation                                                                               |
+|----|---------------|----------------|--------------------------------|----------------------------------------------------------------------------------------------------|
+| 11 | ٱلْخَالِقُ       | Al-Khaaliq         | The Creator                       | Brought all into being from nothing with perfect design and intention [Qur’an 59:24].               |
+| 12 | ٱلْبَارِئُ       | Al-Baari’          | The Originator                     | Initiates creation in due measure and harmony with no precedent [Qur’an 59:24].                     |
+| 13 | ٱلْمُصَوِّرُ     | Al-Musawwir        | The Fashioner                      | Gives each creature its unique form; invoked in acceptance of self and diversity of creation.       |
+| 58 | ٱلْمُبْدِئُ        | Al-Mubdi’          | The Originator                      | Initiates all processes, life cycles, and events [Qur’an 10:34].                                   |
+| 59 | ٱلْمُعِيدُ         | Al-Mu’eed           | The Restorer                         | Brings things and people back after apparent end, especially after death [Qur’an 2:28].            |
+| 60 | ٱلْمُحْيِي         | Al-Muhyi            | The Giver of Life                     | Grants and restores all forms of life [Qur’an 41:39].                                             |
+| 61 | ٱلْمُمِيتُ         | Al-Mumeet           | The Creator of Death                    | Takes life away at destined time [Qur’an 67:2].                                                   |
+| 95 | ٱلْبَدِيعُ         | Al-Badi’            | The Incomparable Originator              | Creates in ways that are wondrous and unprecedented [Qur’an 59:24].                               |
+| 49 | ٱلْبَاعِثُ         | Al-Ba’ith           | The Resurrector                          | Raises to new life; invoked in prayers for renewal, revival, and after loss [Qur’an 22:7].        |
+
+These Names serve to increase awe and gratitude, and they are especially relevant in supplications for creativity, new beginnings, and healing. “Ya Khaaliq, guide my new journey” or “Ya Badi’, inspire unique solutions and ideas” are common formats in practical prayers.
+
+---
+
+## Theme 9: **Wrath and Power**
+
+| #  | Arabic Name   | Transliteration | Meaning                       | Detailed Explanation                                                                                                                                    |
+|----|---------------|----------------|-------------------------------|---------------------------------------------------------------------------------------------------------------------------------------------------------|
+| 15 | ٱلْقَهَّارُ       | Al-Qahhaar           | The Subduer, Ever-Dominating      | Overpowers all creation and ego; invoked in dua for victory over enemies (internal/external) [Qur’an 12:39].                                            |
+| 8  | ٱلْعَزِيزُ        | Al-Azeez             | The Almighty                       | Invincible, unconquerable might; sought for fortitude in adversity [Qur’an 14:4].                                 |
+| 9  | ٱلْجَبَّارُ        | Al-Jabbar            | The Compeller, The Restorer          | Mends the broken, enforces Divine will over oppressors [Qur’an 59:23].                                           |
+| 54 | ٱلْمَتِينُ        | Al-Mateen            | The Firm and Steadfast                | Unbreakable steadfastness; invoked for patience and resilience [Qur’an 51:58].                                   |
+| 68 | ٱلْقَادِرُ        | Al-Qaadir            | The All-Powerful                       | Complete and absolute power; recited for courage in difficulty [Qur’an 6:65].                                   |
+| 69 | ٱلْمُقْتَدِرُ      | Al-Muqtadir          | The All-Determining, Powerful            | Executes will with precision; invoked for manifest strength and conquering obstacles [Qur’an 54:42].           |
+| 81 | ٱلْمُنْتَقِمُ      | Al-Muntaqim          | The Avenger                               | Dishes out Divine retribution when injustice prevails [Qur’an 32:22].                                           |
+| 91 | ٱلضَّارُّ         | Ad-Dhaarr            | The Distressor                             | Permits tribulations for testing and growth; helps believers cope with and learn from adversity.                |
+
+While often invoked by the oppressed and wronged, the Names in this group encompass not just punitive anger, but also Divine firmness, corrective intervention, and the defeat of arrogance and injustice. "Ya Qahhaar, overpower the tyranny in my life," or "Ya Azeez, support me against all opposition" are examples of how these names focus supplicatory attention on empowerment and justice.
+
+---
+
+## Theme 10: **Forgiveness and Repentance**
+
+| #  | Arabic Name   | Transliteration | Meaning                     | Detailed Explanation                                                                         |
+|----|---------------|----------------|-----------------------------|----------------------------------------------------------------------------------------------|
+| 14 | ٱلْغَفَّارُ     | Al-Ghaffaar       | The Constant Forgiver            | Offers repeated forgiveness to those who return repenting—no matter how often they err [Qur’an 20:82].    |
+| 34 | ٱلْغَفُورُ     | Al-Ghafoor        | The All-Forgiving                | Extensive, magnanimous forgiveness—covers even lifelong sin when repented [Qur’an 2:173].                |
+| 80 | ٱلتَّوَّابُ     | At-Tawwaab        | The Accepter of Repentance       | Welcomes repeated repentance; invoked at times of moral lapses [Qur’an 2:128].                            |
+| 82 | ٱلْعَفُوُّ     | Al-‘Afūw          | The Pardoner                     | Completely erases and wipes out sin; best invoked for total absolution [Qur’an 4:99].                    |
+| 83 | ٱلرَّؤُوفُ     | Ar-Ra’ūf          | The Most Kind                    | Often paired with forgiveness; softens the heart of the repenter [Qur’an 16:7].                           |
+
+Making dua with these names infuses hope and sincerity into repentance. The Prophet recommended especially seeking “Al-‘Afūw” in the last ten nights of Ramadan, and “Al-Ghaffaar” and “At-Tawwaab” routinely after error. Example: “Ya Tawwaab, accept my repentance and guide me to steadfastness.”
+
+---
+
+## Theme 11: **Guidance and Light**
+
+| #  | Arabic Name   | Transliteration | Meaning                  | Detailed Explanation                                                                |
+|----|---------------|----------------|--------------------------|-------------------------------------------------------------------------------------|
+| 18 | ٱلْفَتَّاحُ     | Al-Fattaah        | The Opener                   | Opens doors of mercy, knowledge, and victory; invoked in choosing paths, facing blockades [Qur’an 34:26]. |
+| 94 | ٱلْهَادِي     | Al-Hadi           | The Guide                      | Guides to righteousness, understanding, and truth [Qur’an 2:213].                                    |
+| 97 | ٱلرَّشِيدُ     | Ar-Rashid          | The Guide to the Right Path       | Specifically brings clarity and correctness in decisions [Qur’an 2:256].                             |
+| 93 | ٱلنُّورُ       | An-Noor            | The Light                         | Illuminates hearts, minds, and spiritual faculties—aids in clear perception [Qur’an 24:35].         |
+
+Call upon “Ya Hadi” in confusion, “Ya Fattaah” for solutions, and “Ya Noor” for spiritual clarity and removal of darkness (doubt, ignorance). Examples include prayers before exams, travel, life transitions, or moral dilemmas.
+
+---
+
+## Integrative Usage: Supplications, Dhikr, and Spiritual Practice
+
+### Using the Names in Du’a
+The Qur’an (7:180) and the Sunnah both encourage invoking Allah by the most relevant name according to one’s circumstance. The practice includes:
+1. **Reflecting** on the meaning and context.
+2. **Memorizing** the Arabic, transliteration, and meaning.
+3. **Invoking** the Name(s) suited to the supplication:  
+   - Grieving? Use Ar-Rahman, Ar-Raheem.
+   - Afraid? Use Al-Mu’min, Al-Hafeez, Al-Muhaymin.
+   - In need? Use Ar-Razzaq, Al-Wahhab.
+   - Sinful? Use Al-Ghafur, Al-Ghaffar, At-Tawwab.
+
+### Dhikr (Remembrance)
+Frequent recitation (dhikr) of the Names is a devotional act recommended in hadith and by scholars such as Ibn al-Qayyim and Ibn Uthaymeen.
+
+### Structured Example of Dua Using Names:
+> “Ya Ar-Rahman, Ya Raheem! I turn to You for mercy in my time of hardship. I rely upon You, Al-Muhaymin, for Your protection against all that I fear. Provide for me, Ya Razzaq, and grant me security, Ya Mu’min. Forgive my shortcomings, Ya Ghafur, and accept my repentance, Ya Tawwab. O Allah, I beseech You as the King, Al-Malik, the Source of all Power, Al-Azeez, and the Judge, Al-Hakam—grant me justice where I have been wronged. Illuminate my heart, Ya Noor, and guide me to the straight path, Ya Hadi. Amin.”
+
+### Cautions and Etiquette
+- **Invoke with sincerity and respect**—not as a formula but with full awareness of the attribute.
+- Avoid using unauthenticated names or those not established in the Qur’an/Sunnah.
+- **Memorization**: Scholars state reward is in integrating meaning and usage—not just rote memorization.
+
+---
+
+## Conclusion: Embodying Divine Attributes in Supplication and Life
+
+**Understanding the 99 Names of Allah is foundational to an intimate relationship with the Divine.** They offer a multi-faceted understanding of who Allah is—at once merciful, loving, just, powerful, forgiving, and protective. Grouping them by thematic relevance is not only scholarly sound, but also spiritually empowering, allowing the believer to **make targeted, heartfelt, and powerful supplications for every need and circumstance**.
+
+Proper use of Asma’ul Husna in dua is a method of drawing near to Allah, as the Qur’an enjoins:  
+> “And to Allah belong the best names, so invoke Him by them.” (Qur’an 7:180)
+
+Whether one seeks relief, gratitude, forgiveness, love, clarity, or justice, there is an appropriate Divine Name—rooted in revelation, preserved in the Sunnah, and validated by centuries of scholarship.
+
+**Let every believer approach dua with the beauty, richness, and specificity that the Asma’ul Husna afford, for within these names lie endless doors to Divine closeness, answered supplications, and spiritual fulfillment.**
 
 💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞
 
