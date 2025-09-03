@@ -246,7 +246,7 @@ Each table is followed by in-depth explanatory paragraphs and practical guidance
 | 1  | ٱلرَّحْمَٰنُ     | Ar-Raḥmān        | The Most/Entirely Merciful | **Universal, infinite mercy** that encompasses all creation. Foundation of divine compassion—invoked in prayer for general mercy [Qur’an 1:1, 19:58]. |
 | 2  | ٱلرَّحِيمُ     | Ar-Raḥīm         | The Especially Merciful    | **Mercy specially directed to the believers.** Used when seeking personal closeness, forgiveness, and salvation [Qur’an 1:3].    |
 | 30 | ٱللَّطِيفُ     | Al-Laṭīf         | The Subtle, Gentile        | **Kindness in delicate, hidden ways**; makes affairs easy seemingly without explanation. Invoked for unseen relief, aid, and subtle divine care [Qur’an 42:19]. |
-| 32 | ٱلْحَلِيمُ     | Al-Ḥalīm         | The Most Forbearing        | **Patient with faults**, overlooking mistakes. Used when seeking leniency and divine patience [Qur’an 3:155].             |
+| 32 | ٱلْحَلِيمُ     | Al-Ḥalīm         | The Most Tolerant        | **Patient with faults**, overlooking mistakes. Used when seeking leniency and divine patience [Qur’an 3:155].             |
 | 34 | ٱلْغَفُورُ     | Al-Ghafūr        | The Exceedingly Forgiving  | **Forgives repeatedly and comprehensively.** Invoked for complete, repeated pardon [Qur’an 2:173].                         |
 | 14 | ٱلْغَفَّارُ     | Al-Ghaffār       | The Constant Forgiver      | Forgives again and again—even repeated, habitual sins, so long as repentance is sincere [Qur’an 20:82].           |
 | 82 | ٱلْعَفُوُّ     | Al-‘Afūw         | The Pardoner               | **Erases sins entirely, as if they never were.** Invoked for total spiritual cleansing, especially in Ramadan [Qur’an 4:99].       |
