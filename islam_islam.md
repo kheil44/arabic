@@ -1657,6 +1657,18 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+### Copy-ready card
+
+- **Arabic:** اللَّهُمَّ إِنَّكَ عَفُوٌّ تُحِبُّ العَفْوَ فَاعْفُ عَنِّي
+- **Transliteration:** Allāhumma innaka ʿafuwwun tuḥibbu al‑ʿafwa faʿfu ʿannī
+- **Translation:** O Allah, indeed You are Pardoning; You love pardon, so pardon me.
+- **Direct sources:** Tirmidhī 3513: https://sunnah.com/tirmidhi:3513 • Ibn Mājah 3850: https://sunnah.com/ibnmajah:3850
+
+---
+
+
+---
+
 **"سبحان الله وبحمده** 
 
 The authentic Hadith regarding the saying "SubhanAllahi wa bihamdihi" one hundred times a day for forgiveness of sins, even if they are as numerous as the foam of the sea, is found in Sahih al-Bukhari:
