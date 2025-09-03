@@ -1,4 +1,11 @@
 
+---
+
+https://youtu.be/_9voHb5ZPTc?list=PL9821CA747E7E0674&t=223
+
+How to refere to our Prophet pbuh as him being ...nor write nor read...
+
+---
 
 https://youtu.be/vldKHcVG2xA?list=PL9821CA747E7E0674&t=1381
 
