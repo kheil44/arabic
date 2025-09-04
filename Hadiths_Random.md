@@ -237,6 +237,16 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+### Theological and Asol-e-fiq issue that Does the Prophet pbuh have the Independent Ijtihad 
+#### _ Ijtihad ::: refers to a scholar's independent reasoning and exertion of effort to derive legal rulings on issues 
+
+in our peophet Mohammed pbuh case; for example visiting graves were not allowed....then...alowed.. 
+and more. 
+watch video nice little segment;
+
+https://youtu.be/RMsFEOzcNpk?list=PLAEA99D24CA2F9A8F&t=4102
+
+
 ---
 
 # Laylat al-qadr supplication: اللَّهُمَّ إِنَّكَ عَفُوٌّ…
