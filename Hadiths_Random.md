@@ -246,6 +246,72 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+There are actually **multiple verses in the Quran** that express the concept that Allah is the best of planners, schemers, or devisers. Here is a more comprehensive list of such verses, with Arabic, translations, and references:
+
+***
+
+### 1. Surah Al-Anfal (8:30)  
+**Arabic:**  
+وَإِذْ يَمْكُرُ بِكَ الَّذِينَ كَفَرُوا لِيُثْبِتُوكَ أَوْ يَقْتُلُوكَ أَوْ يُخْرِجُوكَ ۚ وَيَمْكُرُونَ وَيَمْكُرُ اللَّهُ ۖ وَاللَّهُ خَيْرُ الْمَاكِرِينَ  
+**Translation:**  
+"And [remember, O Muhammad], when those who disbelieved plotted against you to restrain you or kill you or evict you [from Makkah]. But they plan, and Allah plans. And Allah is the best of planners."  
+
+***
+
+### 2. Surah Ali 'Imran (3:54)  
+**Arabic:**  
+وَمَكَرُوا وَمَكَرَ اللَّهُ وَاللَّهُ خَيْرُ الْمَاكِرِينَ  
+**Translation:**  
+"And they (the disbelievers) planned, and Allah planned. And Allah is the best of planners."  
+
+***
+
+### 3. Surah Yunus (10:21)  
+**Arabic:**  
+وَإِذَا مَسَّ الْإِنسَانَ الضُّرُّ دَعَانَا لِجَنبِهِ أَوْ قَاعِدًا أَوْ قَائِمًا فَلَمَّا كَشَفْنَا عَنْهُ ضُرَّهُ مَرَّ كَأَن لَمْ يَدْعُنَا إِلَىٰ ضُرٍّ مَّسَّهُ ۚ كَذَٰلِكَ زُيِّنَ لِلْمُسْرِفِينَ مَا كَانُوا يَعْمَلُونَ  
+**Translation (related but in theme):**  
+"When We give relief to mankind, they continue to rebel against Our revelations; but when trouble touches them, they implore Allah, turning to Him in repentance. But when We remove the adversity, they return to what they were forbidden. Thus the deeds of the transgressors are made attractive to them."  
+(This verse emphasizes that Allah’s plan is swift and all-encompassing.)  
+
+***
+
+### 4. Surah Ar-Ra’d (13:42)  
+**Arabic:**  
+وَالَّذِينَ مِن قَبْلِهِمْ كَانُوا يَمْكُرُونَ فَكَانَ مَكْرُ اللَّهِ هُوَ الْمَكْرُ ۗ وَاللَّهُ خَيْرُ الْمَاكِرِينَ  
+**Translation:**  
+"And those before them had plotted, but all plot is Allah’s. And Allah is the best of planners."  
+
+***
+
+### Other Similar Verses:  
+- Surah Al-A’raf (7:99): They plot, but Allah is the best of controllers/planners.  
+- Surah As-Saff (61:4): Indeed, Allah loves those who rely upon Him and is the best disposer of affairs.  
+
+***
+
+### Summary  
+The exact phrase **"Allah is the best of planners" (اللَّهُ خَيْرُ الْمَاكِرِينَ)** appears notably in:
+
+- Surah Al-Anfal 8:30  
+- Surah Ali 'Imran 3:54  
+- Surah Ar-Ra’d 13:42  
+
+The theme of Allah's supreme planning is repeated throughout the Quran in various forms, emphasizing that **no plan by creatures can surpass Allah’s will and wisdom**.
+
+***
+
+If you'd like, I can provide the full Arabic text and translation for all related verses or specific tafsir explanations.  
+[sources, , , ]
+
+[1](https://myislam.org/quran-verses/allah-is-the-best-planner/)
+[2](https://wikiislam.net/wiki/Allah,_the_Best_Deceiver_(Qur'an_3:54))
+[3](https://muslimmatters.org/2012/03/21/allahs-plan-for-you-and-me/)
+[4](https://quran.com/en/al-anfal/30)
+[5](https://www.quranexplorer.com/blog/lord-of-the-world/Best_Inspirational_Quran_Quotes_Islamic_quotes)
+[6](https://tarteel.ai/blog/10-verses-of-quran-for-when-you-need-comfort/)
+[7](https://myislam.org/tawakkul-quotes/)
+[8](https://blog.iou.edu.gm/indeed-allah-is-the-best-planner/)
+
 ---
 
 ## abrogation
