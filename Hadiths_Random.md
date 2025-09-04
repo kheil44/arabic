@@ -235,6 +235,11 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+saying wrong wordings in emotional;
+2 short stories in few minutes here;
+
+https://youtu.be/fxhVPZYC20g?list=PLAEA99D24CA2F9A8F&t=1942
+
 ---
 
 ### Theological and Asol-e-fiq issue that Does the Prophet pbuh have the Independent Ijtihad 
