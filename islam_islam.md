@@ -3254,6 +3254,10 @@ This hadith is accepted and practiced by scholars and the Ummah, and its reward 
 
 “All praise is for Allah, Who gave me this food and provided it for me, though I had no power or ability.”
 
+#### Putting on / wearing clothes;
+
+
+**اَلْحَمْدُ لِلّهِ الَّذِي كَسَانِي هَذَا (الثَّوْبَ) وَرَزَقَنِيهِ مِنْ غَـيـْرِ حَوْلٍ مِنِّي وَلَا قُـوَّةٍ**
 #### Leaving the House
 
 **سْمِ اللهِ تَوَكَّلْتُ عَلَى اللَّهِ، وَلَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِاللهِ**
