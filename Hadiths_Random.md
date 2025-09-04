@@ -232,6 +232,50 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+https://youtu.be/fxhVPZYC20g?list=PLAEA99D24CA2F9A8F&t=3257
+
+Certainly! Here is the beautified version of the story with **bold keywords and emojis**, along with direct source references for each main point:
+
+***
+
+🌟 **Mus'ab ibn Umair** was a young, handsome, and wealthy companion of the Prophet Muhammad ﷺ, from the noble Quraysh tribe. When he embraced Islam, his family persecuted him severely. Despite his luxurious life being taken away, Mus'ab remained steadfast in his faith. 💪✨  
+(Source: Wikipedia; Al Islam )[1][3]
+
+📜 As the **first ambassador of Islam** sent to Medina, Mus'ab was instrumental in spreading Islam, teaching the people, and preparing the community to embrace the new faith. He was admired for his courage and dedication. 🌿🕊️  
+(Source: Al Islam; Yaqeen Institute )[3][6]
+
+⚔️ During the **Battle of Badr**, one of the earliest and most decisive battles in Islamic history, Muslims fought against the Quraysh of Mecca. Among the captives was Mus'ab's brother, **Abu Aziz ibn Umair**. When Mus'ab saw his brother captured, he said firmly to his custodian:
+
+**"Tie him firmly! His mother is wealthy and might ransom him."** 🤝🔗
+
+This surprised Abu Aziz, who asked, **"Is this your order for me?"** Mus'ab replied with conviction:
+
+**"He is my brother, but he is not your brother. Faith is stronger than blood ties."** 🕌❤️
+
+This moment powerfully highlights that for Mus'ab and the early Muslims, **religious faith and allegiance to Islam were above all family bonds**. 🕋🔥  
+(Source: Alim.org; Islamonweb )[5][10]
+
+🛡️ Later, at the **Battle of Uhud**, Mus'ab carried the Muslim flag bravely. Despite being wounded, he never let it fall, becoming a symbol of unwavering bravery and sacrifice. His martyrdom is remembered as a testament to his faith and love for Islam. 🏅⚔️  
+(Source: Al Islam; Wikipedia )[1][3]
+
+***
+
+Mus'ab ibn Umair’s story is a remarkable journey from luxury to sacrifice, embodying the early spirit of Islam — commitment, courage, and faith beyond all else. ✨🙏
+
+***
+
+If more detailed citations for specific lines are needed, just ask!
+
+[1](https://en.wikipedia.org/wiki/Mus'ab_ibn_Umayr)
+[2](https://deenwaypoint.com/from-luxury-to-legacy-the-life-of-musab-ibn-umair/)
+[3](https://www.alislam.org/articles/musab-bin-umair/)
+[4](https://en.wikishia.net/view/Mus'ab_b._Umayr)
+[5](https://www.alim.org/history/prophet-companions/41/)
+[6](https://yaqeeninstitute.org/watch/series/musab-ibn-umair-ra-the-man-who-gave-it-all-the-firsts)
+[7](https://www.icfbayarea.com/YCNotes/Lives_Of_Young_Companions/Lesson_11_Mus%60ab_ibn_Umair.pdf)
+[8](https://theislamicreflections.com/2022/06/musab-ibn-umair-the-first-ambassador-of-islam/)
+[9](https://www.scribd.com/document/40162323/The-Life-of-Mus-Ab-Ibn-Umair-RA)
+[10](https://en.islamonweb.net/thrilling-detailed-account-of-battle-of-badr)
 
 ---
 
