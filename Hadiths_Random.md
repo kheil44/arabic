@@ -324,6 +324,9 @@ Al Anfaal, 8:15
 
 https://youtu.be/N4oCwMagirM?list=PLAEA99D24CA2F9A8F&t=2873
 
+and good segment at;
+
+https://youtu.be/N4oCwMagirM?list=PLAEA99D24CA2F9A8F&t=4503
 
 ---
 
