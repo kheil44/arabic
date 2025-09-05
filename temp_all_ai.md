@@ -45,6 +45,8 @@ check tafsir for 3 questions asked by  '' from Prophet pbuh.
 
 📜✂️🛑 📜✂️🛑 📜✂️🛑 📜✂️🛑 📜✂️🛑 📜✂️🛑 📜✂️🛑 📜✂️🛑 📜✂️🛑 📜✂️🛑 📜✂️🛑 📜✂️🛑
 
+---
+
 ## 📜 📜 📜 Greater level of explaination of All 30s are done at the End. 📜 📜 📜
 ### 🧮 Qur’anic Abrogation & Specification Matrix  
 ### Theme: **Legal & Ritual Rulings**
