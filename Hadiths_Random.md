@@ -244,6 +244,14 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️
+
+## Wrong Claim that our Prophet pbuh was Anti-Jew, Living Harmoney with Muslims till 1948;
+
+https://youtu.be/IgY3lFhBj_g?list=PLAEA99D24CA2F9A8F&t=1573
+
+✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️✡️
+
 ---
 
 There are actually **multiple verses in the Quran** that express the concept that Allah is the best of planners, schemers, or devisers. Here is a more comprehensive list of such verses, with Arabic, translations, and references:
