@@ -237,6 +237,13 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+## Friday Pryaer times are not Duhr Time
+
+for example it can be prayed earlier like 11ish;
+
+https://youtu.be/PlWMZHB7Xio?list=PLAEA99D24CA2F9A8F&t=394
+
+
 ---
 
 ## Everyone Prostated ... surrah was ???
