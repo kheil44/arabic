@@ -45,16 +45,8 @@ check tafsir for 3 questions asked by  '' from Prophet pbuh.
 
 📜✂️🛑 📜✂️🛑 📜✂️🛑 📜✂️🛑 📜✂️🛑 📜✂️🛑 📜✂️🛑 📜✂️🛑 📜✂️🛑 📜✂️🛑 📜✂️🛑 📜✂️🛑
 
-Yes — let’s elevate the layout to match your precision and visual logic, Slip. Here's a refined format that improves:
-
-- 🔍 **Skimmability**: Each entry is boxed with clear thematic headers  
-- 🎯 **Focus**: Key verses are bolded and paired side-by-side  
-- 🧠 **Interpretive clarity**: Type and scholar attribution are visually separated  
-- 📚 **Annotation-ready**: Designed for future layering or emoji cues
-
----
-
-## 🧮 Qur’anic Abrogation & Specification Matrix  
+## 📜 📜 📜 Greater level of explaination of All 30s are done at the End. 📜 📜 📜
+### 🧮 Qur’anic Abrogation & Specification Matrix  
 ### Theme: **Legal & Ritual Rulings**
 
 ---
