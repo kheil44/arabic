@@ -239,6 +239,37 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+## Everyone Prostated ... surrah was ???
+
+https://youtu.be/BoIr6tVXw00?list=PLAEA99D24CA2F9A8F&t=3062
+
+"Qisa ut Gharaniq" (or "Qissat al-Gharaniq" قصة الغرانيق in Arabic), also known as the "Story of the Cranes" or the "Satanic Verses," is an Islamic historical and controversial narrative.
+
+### Summary of the Story:- The event is reported to have occurred when Prophet Muhammad was reciting verses from Surah An-Najm (Chapter 53 of the Quran) before the Quraysh in Mecca.
+- When reciting the verses mentioning the pagan goddesses al-Lat, al-'Uzza, and Manat (Quran 53:19-20), the Prophet allegedly uttered additional verses praising these deities as exalted "gharaniq" (cranes or magnificent birds whose intercession is hoped for).
+- This pleased the pagan audience and caused great rejoicing as it seemed the Prophet acknowledged their gods.
+- Later, according to the narrative, the angel Gabriel came to Muhammad and informed him that those additional verses were not from God but were whispered by Satan.
+- These verses were thus abrogated and removed from the Quranic text.
+- The story is mentioned in early Islamic sources but is disputed and rejected by many Muslim scholars as unreliable or fabricated.
+- The term "gharaniq" is interpreted as "cranes" or metaphorically as exalted beings or deities.
+
+### Significance:This episode symbolizes a moment of supposed prophetic error influenced by Satanic suggestion, but Islamic orthodoxy strongly rejects the idea that the Prophet would intentionally or unknowingly misrepresent God's message.
+
+This story has been widely discussed and debated in Islamic scholarship, history, and oriental studies.
+
+Would you like me to provide the specific Quranic verses or more scholarly views on this incident?
+
+[1](https://al-islam.org/message-jafar-subhani/chapter-19-fiction-gharaniq)
+[2](https://www.reddit.com/r/islam/comments/9g4cd8/ibn_taymiyyah_and_the_satanic_verses/)
+[3](https://al-islam.org/180-questions-enquiries-about-islam-volume-2-various-issues/43-what-myth-gharaniq-or-satanic-verses)
+[4](https://wikiislam.net/wiki/Satanic_Verses_(Gharaniq_Incident))
+[5](https://nooremarfat.com/index.php/Noor-e-marfat/article/download/28/10)
+[6](https://en.wikipedia.org/wiki/Satanic_Verses)
+[7](https://en.wikishia.net/view/Myth_of_Gharaniq)
+[8](https://arqadhi.blogspot.com/2015/11/016-incident-of-satanic-verses_26.html)
+[9](https://ia800909.us.archive.org/29/items/satanicversesdarkagesofhadeethmabrahimfalco/Satanic%20Verses%20Dark%20Ages%20of%20Hadeeth_M_Abrahim_Falco.pdf)
+[10](https://www.patheos.com/blogs/amoderndayshair/2021/01/the-al-gharaniq-episode-or-the-satanic-verses/)
+
 ---
 
 ### 🫓🫓🫓🫓🫓🫓🫓🫓🫓🫓🫓🫓🫓🫓🫓🫓🫓🫓
