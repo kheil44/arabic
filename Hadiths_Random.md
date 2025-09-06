@@ -235,6 +235,85 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+## Dua reccommended to Javeria by our beloved Prophet pbuh
+
+https://sunnah.com/riyadussalihin:1433
+
+## _ther are few version here._
+
+https://youtu.be/6zWX6aOKuPo?list=PLAEA99D24CA2F9A8F&t=3227
+
+# Morning Dhikr Versions with Full Diacritics, Transliteration, and Translation
+
+## Version 1: Ṣaḥīḥ Muslim (رواه مسلم)
+
+سُبْحَانَ اللَّهِ وَبِحَمْدِهِ، عَدَدَ خَلْقِهِ، وَرِضَا نَفْسِهِ، وَزِنَةَ عَرْشِهِ، وَمِدَادَ كَلِمَاتِهِ
+
+Version: رواه مسلم
+
+Transliteration:  
+Subḥānallāhi wa biḥamdihi, ‘adada khalqihi, wa riḍā nafsihi, wa zinata ‘arshihi, wa midāda kalimātihi
+
+Translation:  
+“Allah is free from imperfection and praise be to Him as numerous as His creation, in accordance with His pleasure, equal to the weight of His Throne, and to the ink of His words.”
+
+---
+
+## Version 2: Alternate Wording (Ṣaḥīḥ Muslim)
+
+سُبْحَانَ اللَّهِ عَدَدَ خَلْقِهِ  
+سُبْحَانَ اللَّهِ رِضَا نَفْسِهِ  
+سُبْحَانَ اللَّهِ زِنَةَ عَرْشِهِ  
+سُبْحَانَ اللَّهِ مِدَادَ كَلِمَاتِهِ
+
+Version: رواه مسلم
+
+Transliteration:  
+Subḥānallāhi ‘adada khalqihi  
+Subḥānallāhi riḍā nafsihi  
+Subḥānallāhi zinata ‘arshihi  
+Subḥānallāhi midāda kalimātihi
+
+Translation:  
+“Allah is free from imperfection as numerous as His creation.”  
+“Allah is free from imperfection in accordance with His pleasure.”  
+“Allah is free from imperfection equal to the weight of His Throne.”  
+“Allah is free from imperfection to the ink of His words.”
+
+---
+
+## Version 3: Jāmi‘ al-Tirmidhī (رواه الترمذي)
+
+سُبْحَانَ اللَّهِ عَدَدَ خَلْقِهِ  
+سُبْحَانَ اللَّهِ عَدَدَ خَلْقِهِ  
+سُبْحَانَ اللَّهِ عَدَدَ خَلْقِهِ  
+
+سُبْحَانَ اللَّهِ رِضَا نَفْسِهِ  
+سُبْحَانَ اللَّهِ رِضَا نَفْسِهِ  
+سُبْحَانَ اللَّهِ رِضَا نَفْسِهِ  
+
+سُبْحَانَ اللَّهِ زِنَةَ عَرْشِهِ  
+سُبْحَانَ اللَّهِ زِنَةَ عَرْشِهِ  
+سُبْحَانَ اللَّهِ زِنَةَ عَرْشِهِ  
+
+سُبْحَانَ اللَّهِ مِدَادَ كَلِمَاتِهِ  
+سُبْحَانَ اللَّهِ مِدَادَ كَلِمَاتِهِ  
+سُبْحَانَ اللَّهِ مِدَادَ كَلِمَاتِهِ  
+
+Version: رواه الترمذي
+
+Transliteration (each phrase three times):  
+Subḥānallāhi ‘adada khalqihi (three times)  
+Subḥānallāhi riḍā nafsihi (three times)  
+Subḥānallāhi zinata ‘arshihi (three times)  
+Subḥānallāhi midāda kalimātihi (three times)
+
+Translation (each phrase three times):  
+“Allah is free from imperfection as numerous as His creation.” (three times)  
+“Allah is free from imperfection in accordance with His pleasure.” (three times)  
+“Allah is free from imperfection equal to the weight of His Throne.” (three times)  
+“Allah is free from imperfection to the ink of His words.” (three times)
+
 ---
 
 ## Friday Pryaer times are not Duhr Time
