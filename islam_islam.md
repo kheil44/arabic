@@ -2041,6 +2041,31 @@ https://www.youtube.com/watch?v=42DsXENKySo
 
 ### ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
 
+
+### ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
+
+## The recommended dhikr from the Prophet Muhammad (ﷺ) to Juwairiyah bint Al-Harith (رضي الله عنها)
+
+https://youtu.be/6zWX6aOKuPo?list=PLAEA99D24CA2F9A8F&t=3227
+
+
+
+The recommended dhikr from the Prophet Muhammad (ﷺ) to Juwairiyah bint Al-Harith (رضي الله عنها) is found in several authentic sources. Slight variations in wording exist between narrations, but the *core meaning remains consistent*. The wording from Sahih Muslim and Riyad as-Salihin is:
+
+### Arabic
+سُبْحَانَ اللهِ وَبِحَمْدِهِ، عَدَدَ خَلْقِهِ، وَرِضَا نَفْسِهِ، وَزِنَةَ عَرْشِهِ، وَمِدَادَ كَلِمَاتِهِ
+
+### Transliteration
+Subhanallahi wa bihamdihi, 'adada khalqihi, wa ridha nafsihi, wa zinata 'arshihi, wa midaada kalimatihi.
+
+### Translation
+"Glory is to Allah and praise is to Him: by the number of His creation, by His pleasure, by the weight of His Throne, and by the ink (used in recording) His words."
+
+
+
+
+### ✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦✦
+
 #### probably one of the most comprehensive dua in Sirah;
 
 https://youtu.be/FBKcLGsCGCw?list=PLfp2JeoDQyGPLP0yPqC_klq03JuvBlEQp&t=953
