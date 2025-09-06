@@ -235,7 +235,18 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
-## Dua reccommended to Javeria by our beloved Prophet pbuh
+## The recommended dhikr from the Prophet Muhammad (ﷺ) to Juwairiyah bint Al-Harith (رضي الله عنها)
+
+The recommended dhikr from the Prophet Muhammad (ﷺ) to Juwairiyah bint Al-Harith (رضي الله عنها) is found in several authentic sources. Slight variations in wording exist between narrations, but the *core meaning remains consistent*. The wording from Sahih Muslim and Riyad as-Salihin is:
+
+### Arabic
+سُبْحَانَ اللهِ وَبِحَمْدِهِ، عَدَدَ خَلْقِهِ، وَرِضَا نَفْسِهِ، وَزِنَةَ عَرْشِهِ، وَمِدَادَ كَلِمَاتِهِ
+
+### Transliteration
+Subhanallahi wa bihamdihi, 'adada khalqihi, wa ridha nafsihi, wa zinata 'arshihi, wa midaada kalimatihi.
+
+### Translation
+"Glory is to Allah and praise is to Him: by the number of His creation, by His pleasure, by the weight of His Throne, and by the ink (used in recording) His words."
 
 https://sunnah.com/riyadussalihin:1433
 
