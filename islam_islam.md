@@ -201,6 +201,10 @@ Here is a detailed, authenticated summary of the **pillars (arkān), obligations
 
 # The 99 Names of Allah (Asma’ul Husna): A Thematic and Supplication-Oriented Guide
 
+## _Pronounciations;_
+
+https://myislam.org/99-names-of-allah/
+
 ---
 
 https://www.google.com/search?q=site%3Ahttps%3A%2F%2Funderstandquran.com+ar-rahman&sca_esv=21d142fe9e0fef6b&ei=Bny4aILlDdjQhbIPrK7B0Qs&ved=0ahUKEwiCgNiTkL2PAxVYaEEAHSxXMLoQ4dUDCBA&uact=5&oq=site%3Ahttps%3A%2F%2Funderstandquran.com+ar-rahman&gs_lp=Egxnd3Mtd2l6LXNlcnAiKnNpdGU6aHR0cHM6Ly91bmRlcnN0YW5kcXVyYW4uY29tIGFyLXJhaG1hbkibf1DmDViMeXAEeAGQAQCYAc0CoAHwFaoBCDAuMTIuMy4xuAEDyAEA-AEB-AECmAIIoALzBqgCCsICChAAGLADGNYEGEfCAhAQLhgDGLQCGOoCGI8B2AEBwgIQEAAYAxi0AhjqAhiPAdgBAcICBxAAGIAEGA3CAgYQABgNGB7CAgYQABgWGB6YAxDxBQHPZJoLRDjRiAYBkAYIugYECAEYCpIHBzQuMi4xLjGgB48osgcHMC4yLjEuMbgH4gbCBwU3LjMtMcgHEA&sclient=gws-wiz-serp
