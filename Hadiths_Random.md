@@ -230,7 +230,7 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ## tribalism (‘ʿaṣabiyyah’) [4 thing of Jahiliya]
 
-_our beloved Prophet pbuh said....4 thing of Jahiliya will remain in my Ummah._
+_our beloved Prophet pbuh said....4 thing of Jahiliya will remain in my Ummah till Uome-Qiyamat[day of Judment]....one of which is Tribalism "الْفَخْرُ فِي الأَحْسَابِ" literally means **"pride in one's lineage/ancestry"**. In the context of Islamic teachings, it refers to boasting about one's ancestors,._
 
 https://youtu.be/v_TOXkO0mYs?list=PLAEA99D24CA2F9A8F&t=2455
 
