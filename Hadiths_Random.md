@@ -230,12 +230,29 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+#### 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 
+
+https://youtu.be/v_TOXkO0mYs?list=PLAEA99D24CA2F9A8F&t=520
+
+### Mother Aysha said '...we would go to restroom(toilets) after every few nights....Arabs restrained from building toilet inside the houses....[ author commentary now: no runnig water so not the best thing ]
+
+#### 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 
 
 ---
 
 #### 💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰
 
-I can do this comprehensively, but the corpus is very large. I’ll deliver it collection-by-collection in clean batches with only the English translations and direct sunnah.com links. Here is Part 1 to get you started; if this format works, say “continue” and I’ll proceed through every collection until complete.
+### 📜 Sunnah & Historical Context
+
+The Prophet ﷺ was aware of many munāfiqūn by name, but he did not publicly expose them. Instead, he entrusted **Hudhayfah ibn al-Yamān** with their names. This led to a famous incident where **ʿUmar ibn al-Khaṭṭāb** asked Hudhayfah if he was among them.
+
+One of the most notorious figures was **ʿAbdullāh ibn Ubayy ibn Salūl**, often considered the leader of the hypocrites in Madinah. His actions included:
+- Attempting to sow division after the Battle of Uhud.
+- Spreading slander in the incident of **Ifk** against Sayyidah ʿĀ’ishah (RA).
+- Undermining the Prophet ﷺ’s authority repeatedly.
+
+
+💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰
 
 ---
 
