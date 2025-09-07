@@ -221,6 +221,13 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
+
+## to pray in time distress, anytime our beloved Prophet bpuh was disturbed , he will pray
+
+https://youtu.be/m-jclg6LY0g?list=PLAEA99D24CA2F9A8F&t=2315
+
+🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
 ---
 
