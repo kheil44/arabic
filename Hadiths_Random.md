@@ -226,6 +226,34 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+https://youtu.be/v_TOXkO0mYs?list=PLAEA99D24CA2F9A8F&t=2722
+
+#### _ihave not validate the following as its ai generate._
+
+***
+
+**بِسْمِ ٱللَّٰهِ ٱلرَّحْمَٰنِ ٱلرَّحِيمِ، ٱلْحَمْدُ لِلَّٰهِ رَبِّ ٱلْعَٰلَمِينَ، وَٱلصَّلَاةُ وَٱلسَّلَامُ عَلَىٰ أَشْرَفِ ٱلْأَنْبِيَاءِ وَٱلْمُرْسَلِينَ، نَبِيِّنَا مُحَمَّدٍ وَعَلَىٰ آلِهِ وَصَحْبِهِ أَجْمَعِينَ، أَمَّا بَعْدُ...**
+
+***
+
+**Transliteration:**  
+Bismi-llāhi ar-Raḥmāni ar-Raḥīm, al-ḥamdu lillāhi rabbi al-‘ālamīn, waṣ-ṣalātu wa-s-salāmu ‘alā ashraf al-anbiyā’i wa-l-mursalīn, nabiyyinā Muḥammad wa ‘alā ālihi waṣ-ḥabihi ajma‘īn, ammā ba‘du...
+
+***
+
+If you need help with pronunciation or more examples with full harakat, feel free to ask!
+
+[1](https://riwaqalquran.com/blog/harakat-in-tajweed-and-arabic/)
+[2](https://cleolingo.com/alhamdulillah-egyptian-arabic/)
+[3](https://kalimah-center.com/arabic-harakat-tashkeel-diacritics/)
+[4](https://mualim-alquran.com/en/harakat-and-tanween-exercises)
+[5](https://kalimah-center.com/vowels-in-arabic/)
+[6](https://sahlahacademy.net/harakat/)
+[7](https://muslimtots.com/vowel-marks-in-arabic/)
+[8](https://www.youtube.com/watch?v=eyzIzZBWV7Y)
+[9](https://quranandlife.com/what-is-harakat-in-arabic/)
+[10](https://www.youtube.com/watch?v=MOLKKnCKZTQ)
+
 ---
 
 ## tribalism (‘ʿaṣabiyyah’) [4 thing of Jahiliya]
