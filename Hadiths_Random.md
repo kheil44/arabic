@@ -228,6 +228,48 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+## tribalism (‘ʿaṣabiyyah’) [4 thing of Jahiliya]
+
+_our beloved Prophet pbuh said....4 thing of Jahiliya will remain in my Ummah._
+
+https://youtu.be/v_TOXkO0mYs?list=PLAEA99D24CA2F9A8F&t=2455
+
+You’re right to call that out. Some links I gave were off. Here’s a corrected, no‑nonsense write‑up with only hadith that are actually on Sunnah.com, full English, and working links. I’m keeping it tight and verifiable.
+
+---
+
+## Four traits of Jahiliyyah and related hadith on tribalism
+
+### Sahih Muslim 934a — Four traits of Jahiliyyah will remain
+
+> The Messenger of Allah (ﷺ) said:  
+> “There are four traits among my Ummah which belong to the pre-Islamic period which they will not abandon: boasting of high rank, reviling other peoples’ genealogies, seeking rain by the stars, and wailing. And he (ﷺ) said: The woman who wails, if she does not repent before she dies, will be raised on the Day of Resurrection wearing a garment of tar and a shield of scabies.”  
+Link: https://sunnah.com/muslim:934a
+
+---
+
+### Sunan Ibn Majah 3948 — Dying a death of Jahiliyyah for tribal banners
+
+> It was narrated from Abu Hurairah that the Messenger of Allah (ﷺ) said:  
+> “Whoever fights under a banner of folly, supporting tribalism, or getting angry for the sake of tribalism, he dies in a state of ignorance.”  
+Link: https://sunnah.com/ibnmajah:3948
+
+---
+
+### Sunan Ibn Majah 3949 — Definition of ‘asabiyyah (tribalism)
+
+> ‘Abbad bin Kathir Ash-Shami narrated from a woman among them, called Fasilah, that she heard her father say:  
+> “I asked the Prophet (ﷺ): ‘O Messenger of Allah, is it tribalism (‘asabiyyah) if a man loves his people?’ He said: ‘No, rather tribalism is when a man helps his people to do wrong.’”  
+Link: https://sunnah.com/ibnmajah:3949
+
+---
+
+## Notes and scope
+
+- I’ve included only hadith I can verify on Sunnah.com with working links.  
+- If you want, I can expand this with more entries strictly after verifying each link on Sunnah.com (e.g., additional reports on “calls of Jahiliyyah,” lineage boasting, and wailing), and I’ll paste the full English for each one. Just say “add more” and I’ll build it out in batches for accuracy.
+
+
 ---
 
 #### 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 🚽 
