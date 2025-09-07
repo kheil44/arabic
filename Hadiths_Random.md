@@ -233,6 +233,260 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+#### 💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰
+
+I can do this comprehensively, but the corpus is very large. I’ll deliver it collection-by-collection in clean batches with only the English translations and direct sunnah.com links. Here is Part 1 to get you started; if this format works, say “continue” and I’ll proceed through every collection until complete.
+
+---
+
+### Sahih al-Bukhari — explicit “hypocrite/hypocrisy”
+
+- **Sahih al-Bukhari 34 — Four characteristics of pure hypocrisy:**  
+  “Whoever has the following four (characteristics) will be a pure hypocrite and whoever has one of the following four characteristics will have one characteristic of hypocrisy unless and until he gives it up. 1. Whenever he is entrusted, he betrays. 2. Whenever he speaks, he tells a lie. 3. Whenever he makes a covenant, he proves treacherous. 4. Whenever he quarrels, he behaves in a very imprudent, evil and insulting manner.”  
+  Link: https://sunnah.com/bukhari:34 
+
+- **Sahih al-Bukhari 33 — Three signs of a hypocrite:**  
+  “The signs of a hypocrite are three: 1. Whenever he speaks, he tells a lie. 2. Whenever he promises, he always breaks it (his promise). 3. If you trust him, he proves to be dishonest. (If you keep something as a trust with him, he will not return it.)”  
+  Link: https://sunnah.com/bukhari:33 
+
+> Sources: 
+
+---
+
+### Sahih Muslim — explicit “hypocrite/hypocrisy”
+
+- **Sahih Muslim 2772 — ‘When the hypocrites come…’ and the story of ‘Abdullah b. Ubayy:**  
+  “We set out on a journey along with Allah’s Messenger (ﷺ) in which we faced many hardships. ‘Abdullah b. Ubayy said to his friends: Do not give what you have in your possession to those who are with Allah’s Messenger (ﷺ) until they desert him… I came to Allah’s Apostle (ﷺ) and informed him about that… I was much perturbed because of this until this verse was revealed attesting my truth: ‘When the hypocrites come’ (63:1). Allah’s Apostle (ﷺ) then called them in order to seek forgiveness for them, but they turned away their heads as if they were hooks of wood fixed in the wall, and they were in fact apparently good-looking persons.”  
+  Link: https://sunnah.com/muslim:2772a 
+
+> Sources: 
+
+---
+
+### Riyad as-Salihin — explicit “hypocrite/hypocrisy” (for completeness outside the Six Books)
+
+- **Riyad as-Salihin 199 — Three signs of a hypocrite:**  
+  “There are three signs of a hypocrite: When he speaks, he lies; when he makes a promise, he breaks it; and when he is trusted, he betrays his trust.” Another narration adds: “Even if he observes fasts, performs Salat and asserts that he is a Muslim.”  
+  Link: https://sunnah.com/riyadussalihin:199 
+
+> Sources: 
+
+---
+
+If this layout is good, say “continue” and tell me the order you prefer. Default sequence I’ll use:
+1) Sahih Muslim (full chapter on hypocrites), 2) Abu Dawud, 3) Tirmidhi, 4) Nasa’i, 5) Ibn Majah, 6) Muwatta Malik, then the rest of sunnah.com collections (Adab al-Mufrad, Shamā’il, etc.).
+
+Perfect—here’s **Part 2** of your hadith compilation on *explicit mentions of hypocrite/hypocrisy*, now covering:
+
+---
+
+### 📘 Jami` at-Tirmidhi — explicit “hypocrite/hypocrisy”
+
+- **Jami` at-Tirmidhi 2632 — Four traits of hypocrisy:**  
+  “There are four things that whoever has them, then he is a hypocrite, and whoever has one attribute from among them, then he has an attribute of hypocrisy, until he leaves it: Whoever lies whenever he speaks, he does not fulfill whenever he promises, he is vulgar whenever he argues, and whenever he makes an agreement he proves treacherous.”  
+  🔗 [Direct link to hadith](https://sunnah.com/tirmidhi:2632)
+
+---
+
+### 📘 Sunan an-Nasa’i — explicit “hypocrite/hypocrisy”
+
+- **Sunan an-Nasa’i 5020 — Four traits of hypocrisy:**  
+  “There are four (traits), whoever has them is a hypocrite and whoever has one of them, then has one of the traits of hypocrisy, until he gives it up: When he speaks, he lies; when he makes a promise, he breaks it; when he makes a covenant, he betrays it; and when he argues, he resorts to foul language.”  
+  🔗 [Direct link to hadith](https://sunnah.com/nasai:5020)
+
+- **Sunan an-Nasa’i 5021 — Three signs of a hypocrite:**  
+  “The signs of the hypocrite are three: When he speaks, he lies; when he makes a promise he breaks it; and when he is entrusted with something, he betrays (that trust).”  
+  🔗 [Direct link to hadith](https://sunnah.com/nasai:5021)
+
+---
+
+### 📘 Sunan Ibn Majah — explicit “hypocrite/hypocrisy”
+
+- **Sunan Ibn Majah 214 — Parable of the hypocrite and Qur’an:**  
+  “The likeness of the believer who recites the Qur'an is that of a citron, the taste and smell of which are good... The likeness of a hypocrite who reads the Qur'an is that of a sweet basil, the smell of which is good but its taste is bitter. And the likeness of a hypocrite who does not read the Qur'an is that of a colocynth (bitter apple), the taste of which is bitter and it has no smell.”  
+  🔗 [Direct link to hadith](https://sunnah.com/ibnmajah:214)
+
+- **Sunan Ibn Majah 797 — Burdensome prayers for hypocrites:**  
+  “The most burdensome prayers for the hypocrites are the 'Isha' prayer and the Fajr prayer. If only they knew what (reward) there is in them, they would come to them even if they had to crawl.”  
+  🔗 [Direct link to hadith](https://sunnah.com/ibnmajah:797)
+
+---
+
+### 📘 Muwatta Malik — explicit “hypocrite/hypocrisy”
+
+- **Muwatta Malik 15:48 — The prayer of the hypocrites:**  
+  “The prayer of the hypocrites, the prayer of the hypocrites, the prayer of the hypocrites is that one of them sits until the sun becomes yellow and is between the horns of Shaytan, and then gets up and rattles off four rakas, hardly remembering Allah in them at all.”  
+  🔗 [Direct link to hadith](https://sunnah.com/malik:518)
+
+---
+
+### 📘 Adab al-Mufrad — explicit “hypocrite/hypocrisy”
+
+No hadith in Adab al-Mufrad uses the word *munāfiq* explicitly in the English translation. However, if you want to include behavioral traits or indirect references (e.g. false praise, betrayal, lying), I can flag those in the broader set.
+
+---
+
+### 📘 Shamā’il al-Muḥammadiyyah — explicit “hypocrite/hypocrisy”
+
+No hadith in Shamā’il uses the word *hypocrite* directly. This collection focuses on the Prophet’s ﷺ physical and behavioral attributes, so it’s not a primary source for munāfiq-related content.
+
+---
+
+Let me know if you want **Part 3**: Mishkat al-Masabih, Musnad Ahmad, and other extended collections. Or I can now begin the **broader set**—traits and behaviors tied to hypocrisy even if the word isn’t used. Your call.
+
+Here’s **Part 3** of your compilation—covering *explicit mentions of hypocrite/hypocrisy* from:
+
+---
+
+### 📘 Mishkat al-Masabih — explicit “hypocrite/hypocrisy”
+
+- **Mishkat al-Masabih 56 — Four traits of hypocrisy:**  
+  “Four characteristics constitute anyone who possesses them a sheer hypocrite, and anyone who possesses one of them possesses a characteristic of hypocrisy till he abandons it: when he is trusted he betrays his trust, when he talks he lies, when he makes a covenant he acts treacherously, and when he quarrels he deviates from the truth.”  
+  🔗 [Direct link to hadith](https://sunnah.com/mishkat/1/50)
+
+- **Mishkat al-Masabih 2742 — Dajjal and hypocrites expelled from Madinah:**  
+  “There is no town on which the Dajjal will not tread, with the exception of Mecca and Medina. There is none of its mountain paths which does not have angels in it drawn up in rows and guarding it. He will then go down to the marshy land, and Medina will put its people into commotion three times; then every infidel and hypocrite will go out to him.”  
+  🔗 [Direct link to hadith](https://sunnah.com/mishkat/10/231)
+
+---
+
+### 📘 Musnad Ahmad — explicit “hypocrite/hypocrisy”
+
+- **Musnad Ahmad 143 — Hypocrite with eloquent speech:**  
+  “The thing I fear most for my Ummah is every hypocrite who speaks with knowledge.”  
+  🔗 [Direct link to hadith](https://sunnah.com/ahmad/2/60)
+
+---
+
+If you want me to continue with **broader traits** next—like laziness at prayer, abandoning Jumu‘ah, showing off, or fear of being exposed—just say “broader set next.” Or if you want me to continue with **other collections** (e.g. Darimi, Bayhaqi, etc.), I can do that too.
+
+Your call, Slip.
+
+Excellent—now we move into the **broader set of hadith** that describe *traits, behaviors, and signs* traditionally associated with hypocrisy, even if the word *munāfiq* or *nifāq* isn’t explicitly mentioned. These are critical for understanding the deeper diagnostic spectrum used by the Prophet ﷺ.
+
+---
+
+### 🕋 Broader Traits of Hypocrisy — Hadith with Direct Links
+
+#### ❌ Laziness in Prayer (especially Fajr and ‘Isha)
+
+- **Sunan Ibn Majah 797**  
+  “The most burdensome prayers for the hypocrites are the 'Isha' prayer and the Fajr prayer. If only they knew what (reward) there is in them, they would come to them even if they had to crawl.”  
+  🔗 [View on sunnah.com](https://sunnah.com/ibnmajah:797)
+
+- **Sahih Muslim 651a**  
+  “The heaviest prayers for the hypocrites are the 'Isha' and Fajr prayers. If they knew what they contain, they would come to them even if they had to crawl.”  
+  🔗 [View on sunnah.com](https://sunnah.com/muslim:651a)
+
+---
+
+#### 🗣️ Lying, Breaking Promises, Betraying Trust
+
+- **Sahih al-Bukhari 33 & 34**  
+  Already covered in the explicit set, but these traits are often cited independently as signs of hypocrisy even when the label isn’t used.
+
+---
+
+#### 🧠 Dual Allegiances / Inconsistency
+
+- **Sahih Muslim 2784a**  
+  “The similitude of a hypocrite is that of a sheep which roams aimlessly between two flocks. She goes to one at one time and to the other at another time.”  
+  🔗 [View on sunnah.com](https://sunnah.com/muslim:2784a)
+
+---
+
+#### 🧍 Showing Off in Worship
+
+- **Sahih al-Bukhari 649**  
+  “Whoever lets the people hear of his good deeds intentionally, to win their praise, Allah will let the people know his real intention (on the Day of Judgment), and whoever does good deeds in public to show off and to win the praise of the people, Allah will disclose his real intention and humiliate him.”  
+  🔗 [View on sunnah.com](https://sunnah.com/bukhari:649)
+
+---
+
+#### 🕌 Delaying or Rushing Prayer
+
+- **Muwatta Malik 15:48**  
+  “The prayer of the hypocrites is that one of them sits until the sun becomes yellow and is between the horns of Shaytan, and then gets up and rattles off four rakas, hardly remembering Allah in them at all.”  
+  🔗 [View on sunnah.com](https://sunnah.com/malik:518)
+
+---
+
+#### 🧭 Avoiding Jumu‘ah or Community Obligations
+
+- **Sahih Muslim 865a**  
+  “People must cease to neglect the Friday prayer or Allah will seal their hearts and they will be among the heedless.”  
+  🔗 [View on sunnah.com](https://sunnah.com/muslim:865a)
+
+---
+
+#### 🧨 Stirring Fitnah / Slander
+
+- **Sahih Muslim 2772**  
+  Describes ‘Abdullah ibn Ubayy’s role in slander and division, including the incident of Ifk and his denial of statements that were later confirmed by revelation.  
+  🔗 [View on sunnah.com](https://sunnah.com/muslim:2772a)
+
+---
+
+Would you like me to continue with **Qur’anic verses grouped by trait**, or build a **Markdown matrix** that overlays hadith traits with Qur’anic condemnations and historical incidents? I can also flag **ambiguous cases** where scholars debated whether a trait constitutes hypocrisy or just weakness.
+
+
+Here’s a structured matrix of **Qur’anic traits of hypocrisy**, grouped thematically for diagnostic clarity. Each entry includes the verse reference, a brief English translation, and a direct www-style link to the full verse.
+
+---
+
+### 🧠 **Deception & False Claims**
+
+| Trait | Verse | Translation | 🔗 Link |
+|------|-------|-------------|--------|
+| Pretending belief while deceiving | al-Baqarah 2:8–9 | “They say, ‘We believe in Allah and the Last Day,’ but they do not believe. They seek to deceive Allah and the believers…” | [Qur’an 2:8–9](https://quran.com/2/8) |
+| Mocking believers behind their backs | al-Baqarah 2:14 | “When they meet those who believe, they say, ‘We believe.’ But when alone with their devils, they say, ‘We are with you; we were only mocking.’” | [Qur’an 2:14](https://quran.com/2/14) |
+| Swearing falsely to cover sin | al-Mujādilah 58:16 | “They have made their oaths a cover, so they hinder from the path of Allah…” | [Qur’an 58:16](https://quran.com/58/16) |
+
+---
+
+### 🕯️ **Laziness & Showmanship in Worship**
+
+| Trait | Verse | Translation | 🔗 Link |
+|------|-------|-------------|--------|
+| Laziness in prayer | al-Nisā’ 4:142 | “When they stand for prayer, they do so lazily, only to be seen by people, and they remember Allah but little.” | [Qur’an 4:142](https://quran.com/4/142) |
+| Forgetfulness of Allah | al-Tawbah 9:67 | “They have forgotten Allah, so He has forgotten them…” | [Qur’an 9:67](https://quran.com/9/67) |
+
+---
+
+### 🧨 **Spreading Mischief & Division**
+
+| Trait | Verse | Translation | 🔗 Link |
+|------|-------|-------------|--------|
+| Claiming peace while causing harm | al-Baqarah 2:11–12 | “When told not to spread corruption, they say, ‘We are only reformers.’ But they are the corrupters…” | [Qur’an 2:11–12](https://quran.com/2/11) |
+| Enjoining evil, forbidding good | al-Tawbah 9:67 | “They enjoin what is wrong and forbid what is right…” | [Qur’an 9:67](https://quran.com/9/67) |
+| Lying in wait to exploit believers | al-Nisā’ 4:141 | “They wait and watch you. If you gain victory, they say, ‘Were we not with you?’…” | [Qur’an 4:141](https://quran.com/4/141) |
+
+---
+
+### 🧭 **Rejection of Divine Guidance**
+
+| Trait | Verse | Translation | 🔗 Link |
+|------|-------|-------------|--------|
+| Turning away from Allah’s rulings | al-Nisā’ 4:61 | “When told to follow what Allah has revealed and the Messenger, you see the hypocrites turn away…” | [Qur’an 4:61](https://quran.com/4/61) |
+| Rationalizing sin with false intentions | al-Nisā’ 4:62 | “They come to you swearing, ‘We meant only goodwill and reconciliation!’” | [Qur’an 4:62](https://quran.com/4/62) |
+
+---
+
+### 🧱 **Spiritual Blindness & Moral Decay**
+
+| Trait | Verse | Translation | 🔗 Link |
+|------|-------|-------------|--------|
+| Deaf, dumb, and blind | al-Baqarah 2:18 | “They are deaf, dumb, and blind—so they will not return.” | [Qur’an 2:18](https://quran.com/2/18) |
+| Hardened hearts | al-Munāfiqūn 63:3 | “That is because they believed, then disbelieved—so their hearts were sealed…” | [Qur’an 63:3](https://quran.com/63/3) |
+
+---
+
+Would you like this expanded into a **Markdown reference table** with copy-paste usability and emoji cues for each trait group? Or grouped by **functional spectrum** (e.g. internal belief vs external behavior vs communal impact)? I can also overlay this with hadith traits for a full diagnostic matrix.
+
+
+
+#### 💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰💰
+
 ---
 
 ## The recommended dhikr from the Prophet Muhammad (ﷺ) to Juwairiyah bint Al-Harith (رضي الله عنها)
