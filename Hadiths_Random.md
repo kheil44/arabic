@@ -216,6 +216,47 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+https://youtu.be/XlcZj24RJ8g?list=PLAEA99D24CA2F9A8F&t=1258
+
+
+### Standing for people in the Sunnah
+
+You asked for the full English texts only (with direct sunnah.com links) on the specific topic of expecting or practicing people standing/rising for someone out of deference. Here’s a clean, copy-ready first batch of the core narrations that directly address this etiquette. If you want me to continue sweeping all collections book-by-book, say “continue,” and I’ll keep adding until exhaustive.
+
+---
+
+#### Direct prohibition on liking people to stand for you
+
+- **Narrated Abu Mijlaz:**
+  “Mu’awiyah went out to Ibn Az-Zubair and Ibn ‘Amir. Ibn ‘Amir got up, and Ibn Az-Zubair remained sitting. Mu’awiyah said to Ibn ‘Amir: ‘Sit down, for I heard the Messenger of Allah (ﷺ) say: He who likes that people should stand up before him, let him take his place in the Fire.’”
+  
+  https://sunnah.com/abudawud:5229
+
+---
+
+#### The Prophet disliked people standing up for him
+
+- **Narrated Anas bin Malik:**
+  “There was no person whom they loved more than the Messenger of Allah (ﷺ). Yet when they saw him, they did not stand up for him, knowing that he disliked that.”
+  
+  https://sunnah.com/tirmidhi:2754
+
+---
+
+#### Contextual exception (standing for need, not veneration)
+
+- **Narrated Abu Sa’eed (and others) about Sa’d bin Mu’adh’s judgment:**
+  The Prophet (ﷺ) told the Ansar regarding Sa’d bin Mu’adh (who was injured and being brought for judgment concerning Banu Qurayzah): “Stand up for your chief (or: leader).” Scholars explain this as standing to assist/honour due to his condition and the gravity of the moment, not as a general norm of veneration.
+  
+  https://sunnah.com/bukhari:3043
+
+---
+
+### Notes and next steps
+
+- These are the principal, most-cited narrations establishing the ethic: seeking people’s standing is blameworthy; the Companions avoided standing for the Prophet (ﷺ) because he disliked it; and there is a specific, contextual instance of standing for Sa’d (radiyallahu ‘anhu) that’s understood as practical assistance/honor due to circumstance, not an open license for ceremonial standing.
+- Say “continue” and I’ll expand across the rest of sunnah.com’s collections (Bukhari/Muslim variants, Ibn Majah, Nasa’i, Adab al-Mufrad, Riyad as-Salihin, Mishkat, Bulugh al-Maram), including Arabic-only entries rendered in English, each with the exact link and full text.
+
 ---
 
 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 
