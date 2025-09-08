@@ -59,7 +59,365 @@ check tafsir for 3 questions asked by  '' from Prophet pbuh.
 
 ## 🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧
 
+💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢
 
+# Compilation of Hadiths Related to Anger and Temper from Sunnah.com
+
+---
+
+## Introduction
+
+Anger is a universally experienced emotion and its management is a persistent ethical concern across cultures and religious traditions. In Islamic teaching, the Qur’an and Hadith literature provide comprehensive guidance on how to understand and mitigate the destructive effects of uncontrolled anger. The Prophet Muhammad ﷺ is recorded in many hadiths as cautioning against anger, describing its spiritual dangers, and recommending practical and spiritual methods for control. This report presents an exhaustive collection of hadiths specifically related to anger and temper, extracted from key canonical sources as found on Sunnah.com. It includes both translated and Arabic-only narrations, providing new translations where necessary and including direct links to each hadith's source.
+
+Each hadith is presented under a clear heading, with its full English translation and a direct URL to the original entry on Sunnah.com. For Arabic-only hadiths, the translation is provided in this report. The organization and elaboration ensure completeness, clarity, and ease of navigation for researchers, educators, and anyone seeking comprehensive Islamic guidance on the subject of anger.
+
+---
+
+## **1. True Strength Lies in Controlling Anger**
+
+### **Al-Adab Al-Mufrad 1317 & Sahih al-Bukhari 6114**
+
+**Narration:**  
+Abu Hurayra reported that the Messenger of Allah, may Allah bless him and grant him peace, said:  
+*"The person who is strong is not strong because he can knock people down. The person who is strong is the one who controls himself when he is angry."*
+
+- [Al-Adab Al-Mufrad 1317 (Book 57, Hadith 1)](https://sunnah.com/adab/57/1)
+- [Sahih al-Bukhari 6114 (Book 78, Hadith 141)](https://sunnah.com/bukhari/78/141)
+- [Bulugh al-Maram - The Comprehensive Book (Book 16, Hadith 45)](https://sunnah.com/urn/2054430)
+
+**Elaboration:**  
+This pivotal hadith recurs throughout the canonical collections, emphasizing the core Islamic ethic that strength is not in overcoming others through physical might but lies in mastering one's own impulses at the moment of anger. The Prophet ﷺ redefined the cultural notion of severity and masculinity, making self-restraint in the face of anger a mark of true courage and virtue. It is a concise teaching that underscores both emotional intelligence and spiritual maturity, qualities that are repeatedly praised throughout the Sunnah and are integral to maintaining family, social, and communal harmony.
+
+---
+
+## **2. The Greatest Reward for Swallowing Anger**
+
+### **Al-Adab Al-Mufrad 1318**
+
+**Narration:**  
+Ibn 'Umar said:  
+*"There is nothing that is swallowed greater with Allah in reward than a slave of Allah who swallows and contains his rancour out of desire for the pleasure of Allah."*
+
+- [Al-Adab Al-Mufrad 1318 (Book 57, Hadith 2)](https://sunnah.com/adab/57/2)
+
+**Elaboration:**  
+Ibn 'Umar's report, while not a direct statement from the Prophet ﷺ, is given prominent placement in collections due to its spiritual insight. The use of "swallowing" for anger metaphorically shows that its suppression, especially for Allah’s sake, carries immense divine reward. This theme recurs in many moral traditions, but its placement here demonstrates the Islamic approach: that spiritual advancement and reward are tied to the internal struggle (jihad al-nafs) against destructive emotions. By containing anger, one not only brings peace to interpersonal relations but also earns high standing with Allah.
+
+---
+
+## **3. Words to Say When Angry: Seeking Refuge from Shaytan**
+
+### **Al-Adab Al-Mufrad 1319 / Sahih al-Bukhari 3282 / Jami` at-Tirmidhi 3452 / Sunan Abi Dawud 4780**
+
+**Narration:**  
+Sulayman ibn Surad said:  
+*"Two men abused one another in the presence of the Prophet, may Allah bless him and grant him peace, and one of them began to get angry and his face got red. The Prophet, may Allah bless him and grant him peace, looked at him and said, 'I know some words that, if he says them, will remove this from him. They are: "I seek refuge with Allah from the Accursed Shaytan."' The man went to that man and said, 'Do you know what he said? He said, "I seek refuge with Allah from the Accursed Shaytan."' The man retorted. 'Do you think me mad?'"*
+
+- [Al-Adab Al-Mufrad 1319 (Book 57, Hadith 3)](https://sunnah.com/adab:1319)
+- [Sahih al-Bukhari 3282 (Book 59, Hadith 91)](https://sunnah.com/bukhari:3282)
+- [Jami` at-Tirmidhi 3452 (Book 48, Hadith 83)](https://sunnah.com/tirmidhi/48/83)
+- [Sunan Abi Dawud 4780 (Book 43, Hadith 8)](https://sunnah.com/abudawud:4780)
+
+**Elaboration:**  
+The recurrence of this episode in various authentic hadith collections lends it unparalleled weight in Islamic pedagogy. The Prophet ﷺ identifies the spiritual root of destructive anger—namely, the influence of Shaytan (Satan). He prescribes a simple spiritual remedy: seeking refuge in Allah from Shaytan. The additional details in some versions, such as the visible physical symptoms of anger and the man’s stubbornness, illustrate both the universality of anger and the practical challenge of adopting prophetic advice in heated moments. The hadith teaches Muslims to be conscious of spiritual influences behind strong emotions and provides actionable, faith-based strategies for regaining composure.
+
+---
+
+## **4. A Variant of the Previous Hadith**
+
+### **Al-Adab Al-Mufrad 1319b**
+
+**Original Arabic:**  
+كُنْتُ جَالِسًا مَعَ النَّبِيِّ صلى الله عليه وسلم وَرَجُلاَنِ يَسْتَبَّانِ، فَأَحَدُهُمَا احْمَرَّ وَجْهُهُ، وَانْتَفَخَتْ أَوْدَاجُهُ، فَقَالَ النَّبِيُّ صلى الله عليه وسلم‏:‏ إِنِّي لَأَعْلَمُ كَلِمَةً لَوْ قَالَهَا لَذَهَبَ عَنْهُ مَا يَجِدُ، فَقَالُوا لَهُ‏:‏ إِنَّ النَّبِيَّ صلى الله عليه وسلم قَالَ‏:‏ تَعَوَّذْ بِاللَّهِ مِنَ الشَّيْطَانِ الرَّجِيمِ، قَالَ‏:‏ وَهَلْ بِي مِنْ جُنُونٍ‏؟‏‏.
+
+**Translation (from Arabic):**  
+Sulaiman ibn Surad said:  
+*"I was sitting with the Prophet ﷺ while two men were insulting each other, and one of them's face became red and his veins swelled. The Prophet ﷺ said: 'I know of a word, which if he said, what he feels will go away.' They said to him: 'The Prophet ﷺ has said: Seek refuge with Allah from the Accursed Shaytan.' The man replied: 'Am I mad?'"*
+
+- [Al-Adab Al-Mufrad 1319b (Book 57, Hadith 4)](https://sunnah.com/adab:1319b)
+
+**Elaboration:**  
+This variant highlights both the real-life context of confrontation and the internal resistance individuals may feel to spiritual advice, even when delivered by the Prophet himself. The advice remains the same, underlining the universality of the remedy. The abrupt rejection ("Am I mad?") is a window into human pride and denial, inviting readers to self-examination.
+
+---
+
+## **5. What to Say in Anger: A Consistent Prescription**
+
+Beyond these narrations, multiple authentic hadiths repeat the Prophet’s warning that seeking refuge in Allah from Shaytan can quell anger. These include:
+
+- [Jami` at-Tirmidhi 3452](https://sunnah.com/tirmidhi/48/83)
+- [Sunan Abi Dawud 4780](https://sunnah.com/abudawud:4780)
+
+**Elaboration:**  
+The Prophet’s advice is given not only as an abstract principle but as a practical action to be performed in the midst of discord. The insistence and repetition demonstrate both the seriousness of anger’s danger and the simplicity of its spiritual antidote.
+
+---
+
+## **6. "Do Not Get Angry": The Most Frequent Prophetic Counsel**
+
+### **Sahih al-Bukhari 6116, Al-Adab Al-Mufrad 1323, Jami’ at-Tirmidhi 2020, Bulugh al-Maram Book 16 Hadith 56**
+
+**Narration:**  
+Abu Huraira narrated:  
+*"A man said to the Prophet, 'Advise me.' The Prophet ﷺ said, 'Do not get angry.' The man asked repeatedly and the Prophet ﷺ answered each time, 'Do not get angry.'"*
+
+- [Sahih al-Bukhari 6116 (Book 78, Hadith 143)](https://sunnah.com/bukhari:6116)
+- [Jami` at-Tirmidhi 2020 (Book 27, Hadith 126)](https://sunnah.com/tirmidhi:2020)
+- [Bulugh al-Maram 1535 (Book 16, Hadith 56)](https://sunnah.com/urn/1323490)
+- [Al-Adab Al-Mufrad 1323 (Book 57, Hadith 9)](https://sunnah.com/adab/57/9)
+- [Riyad as-Salihin 638](https://sunnah.com/riyadussalihin:638)
+
+**Elaboration:**  
+No advice is repeated more frequently in the hadith corpus than this succinct command: "Do not get angry." The Prophet ﷺ did not elaborate, suggesting that all evil is encompassed in unchecked anger. Scholars often explain that one may not always be able to prevent the feeling of anger but must control its outward expression and consequences. The advice underscores the breadth and depth of the problem, emphasizing that avoiding anger is key to the comprehensive set of virtues required in Islamic character-building.
+
+---
+
+## **7. Practical Methods to Manage Anger: Changing Physical State**
+
+### **Sunan Abi Dawud 4782**
+
+**Narration:**  
+Abu Dharr reported that the Messenger of Allah ﷺ said:  
+*"When one of you becomes angry while standing, he should sit down. If the anger leaves him, well and good; otherwise, he should lie down."*
+
+- [Sunan Abi Dawud 4782 (Book 43, Hadith 10)](https://sunnah.com/abudawud:4782)
+
+**Elaboration:**  
+In addition to spiritual supplications, the Prophet ﷺ provided physiological interventions to control anger. By changing one’s posture from standing to sitting or lying down, a person can physically reduce tension and the potential for impulsive, violent action. The hadith illustrates the holistic approach of Islam, combining spiritual guidance with practical behavioral strategies in managing emotions.
+
+---
+
+## **8. Remaining Silent When Angry**
+
+### **Al-Adab Al-Mufrad 1320**
+
+**Narration:**  
+Ibn Abbas said:  
+*"The Messenger of Allah, may Allah bless him and grant him peace, said, 'Teach and make it easy. Teach and make it easy,' three times. He went on, 'When you are angry, be silent' twice."*
+
+- [Al-Adab Al-Mufrad 1320 (Book 57, Hadith 5)](https://sunnah.com/adab:1320)
+
+**Elaboration:**  
+Silence is prescribed as another technique for anger management. Verbal expressions of anger can escalate conflicts, so this Prophetic guidance prevents potential harm and regret. The repetition "Teach and make it easy" highlights the context: anger often arises in correction or disagreement. The Prophet ﷺ’s layered guidance connects pedagogy, mercy, and self-restraint.
+
+---
+
+## **9. Reward for Restraining Anger — Special Rewards on the Day of Judgment**
+
+### **Sunan Ibn Majah 4186**
+
+**Narration:**  
+Sahl bin Mu’adh bin Anas, from his father, said:  
+*"Whoever restrains his anger when he is able to implement it, Allah will call him before all of creation on the Day of Resurrection, and will give him his choice of any houri that he wants."*
+
+- [Sunan Ibn Majah 4186 (Book 37, Hadith 87)](https://sunnah.com/ibnmajah:4186)
+
+**Elaboration:**  
+Resisting the urge to act out in anger, especially when one has the power to do so, is singled out for exceptional reward in the hereafter. The hadith describes public recognition and a unique, physical reward, communicating the enormity of such self-restraint. This teaching radically reframes honor—not as vengeance or dominance—but as moral mastery.
+
+---
+
+## **10. Restraining Anger Protects from Allah’s Punishment**
+
+### **Bulugh al-Maram Book 16, Hadith 70**
+
+**Narration:**  
+Anas reported:  
+*"If one restrained his anger, Allah will keep His punishment from him (on the Day of Resurrection)."*
+
+- [Bulugh al-Maram Book 16, Hadith 70](https://sunnah.com/bulugh/16/70)
+
+**Elaboration:**  
+The value of self-control is not only spiritual but has direct eschatological significance in Islamic teaching. Those who hold back anger will have Allah’s punishment withheld from them in return, reflecting a reciprocal principle: mercy for mercy, restraint for restraint. Thus, anger management is not merely a social virtue but a key to salvation.
+
+---
+
+## **11. Anger of Allah at Violating His Limits**
+
+### **Riyad as-Salihin 64**
+
+**Narration:**  
+Abu Hurayrah reported that the Prophet ﷺ said:  
+*"Verily, 'Allah, the Exalted, becomes angry, and His Anger is provoked when a person does what Allah has declared unlawful."*
+
+- [Riyad as-Salihin 64](https://sunnah.com/riyadussalihin:64)
+
+**Elaboration:**  
+Allah’s anger is distinct from human anger, being just and directed at violation of divine boundaries. This hadith affirms the seriousness of violating prohibitions and sets the believer’s pursuit of self-mastery in the context of the divine character trait of righteous anger. Just as a believer controls anger at personal affront, Allah’s anger is only provoked by substantive evil.
+
+---
+
+## **12. Anger During Religious Oratory**
+
+### **Riyad as-Salihin 170 / Bulugh al-Maram Book 2, Hadith 368**
+
+**Narration:**  
+Jabir reported:  
+*"Whenever the Messenger of Allah ﷺ delivered a Khutbah, his eyes would become red, his tone loud, and he showed anger as if he were warning us against an army..."*
+
+- [Riyad as-Salihin 170](https://sunnah.com/riyadussalihin:170)
+- [Bulugh al-Maram Book 2, Hadith 368](https://sunnah.com/bulugh/2/368)
+
+**Elaboration:**  
+Anger for the sake of Allah (ghadab lillah) is both real and sometimes necessary. This narrates the Prophet’s public warning against evil, where his righteous indignation intensified as he cautioned against innovation and loss. It contextualizes anger not as always negative, but as justifiable—and praiseworthy—when motivated by divine concern.
+
+---
+
+## **13. The Prophet’s Anger for Allah’s Sake**
+
+### **Sahih al-Bukhari 6109**
+
+**Narration:**  
+`Aisha said:  
+*"The Prophet (ﷺ) entered upon me while there was a curtain having pictures (of animals) in the house. His face got red with anger, and then he got hold of the curtain and tore it into pieces. The Prophet (ﷺ) said, 'Such people as paint these pictures will receive the severest punishment on the Day of Resurrection.'"*
+
+- [Sahih al-Bukhari 6109 (Book 78, Hadith 136)](https://sunnah.com/bukhari:6109)
+
+**Elaboration:**  
+Here, the Prophet’s anger is a demonstrative reaction to a violation of religious law (making images). The hadith distinguishes between personal anger (blameworthy) and principled anger for the sanctity of Allah’s commandments (commendable). The physicality of his response further reinforces righteous passion for preserving religious purity.
+
+---
+
+## **14. The Lord’s Anger Is in the Parent’s Anger**
+
+### **Al-Adab al-Mufrad 2 / Jami` at-Tirmidhi 1899**
+
+**Narration:**  
+Abdullah ibn 'Umar said:  
+*"The pleasure of the Lord lies in the pleasure of the parent. The anger of the Lord lies in the anger of the parent."*
+
+- [Al-Adab Al-Mufrad 2](https://sunnah.com/adab:2)
+- [Jami` at-Tirmidhi 1899](https://sunnah.com/tirmidhi:1899)
+
+**Elaboration:**  
+This hadith expands the discussion of anger to encompass not only individual control but also duty to social and familial relationships. Respecting parents is equated with earning Allah’s pleasure; arousing their anger risks divine wrath. It's a strong warning of the spiritual stakes of family behavior.
+
+---
+
+## **15. Charity Extinguishes Allah’s Anger**
+
+### **Jami` at-Tirmidhi 664**
+
+**Narration:**  
+Anas bin Malik narrated:  
+*"Indeed, charity extinguishes the Lord's anger and it protects against the evil death."*
+
+- [Jami` at-Tirmidhi 664](https://sunnah.com/tirmidhi/7/48)
+
+**Elaboration:**  
+This hadith beautifully links a positive action—charity—with the extinguishing of divine wrath. While humans are called to restrain and subdue their anger, acts of goodness also invoke Allah’s mercy and turn aside His anger. It teaches that proactive virtue, not just avoidance of vice, is necessary for spiritual wellbeing.
+
+---
+
+## **16. Prophetic Character: Tolerance and Forbearance**
+
+### **Sunan Abi Dawud 4773, 4774**
+
+**Narration 4773:**  
+Anas said:  
+*"The Messenger of Allah (ﷺ) was one of the best of men in character. One day he sent me to do something, and I said: I swore by Allah that I would not go. But in my heart I felt that I should go... All of a sudden the Messenger of Allah (ﷺ) who had come up behind caught me by the back of the neck, and when I looked at him he was laughing... I served him for seven or nine years, and he never said to me about a thing which I had done: Why did you do such and such? Nor about a thing which I left: why did not do such and such?"*
+
+- [Sunan Abi Dawud 4773](https://sunnah.com/abudawud/43/1)
+
+**Narration 4774:**  
+Anas ibn Malik said:  
+*"I served the Prophet (ﷺ) at Medina for ten years... but he never said to me: Fie, nor did he say to me: Why did you do this? or Why did you not do this?"*
+
+- [Sunan Abi Dawud 4774](https://sunnah.com/abudawud/43/2)
+
+**Elaboration:**  
+These narrations offer compelling testimony to the practical embodiment of anger control and forbearance by Prophet Muhammad ﷺ. Despite ample opportunity for irritation or censure, he never once rebuked his servant harshly. For Muslims, this provides ultimate role modeling—anger should rarely, if ever, be directed against others for personal failings.
+
+---
+
+## **17. If a Man Says "I Seek Refuge in Allah," His Anger Subsides**
+
+### **(Arabic-Only, Now Translated)**
+
+**Original Arabic:**  
+إذا غضب الرجل فقال: أعوذ بالله سكن غضبه
+
+**Translation:**  
+*"If a man becomes angry and says, 'I seek refuge in Allah,' his anger subsides."*
+
+- [Cited in various secondary sources (e.g., Silsilah Sahihah 1376)](https://followingthesunnah.com/what-to-say-when-angry/)
+
+**Elaboration:**  
+This concise but profound remnant from the Prophetic tradition further confirms the prescription that invoking Allah's protection when angry has a real, calming effect. The focus of this narration on immediate recitation strengthens the case for repeated, habitual use as spiritual therapy.
+
+---
+
+## **18. Remain Balanced in Love and Hate**
+
+### **Al-Adab Al-Mufrad 1321**
+
+**Narration:**  
+'Ali said to Ibn al-Kawwa’:  
+*"Do you know what the first one said? 'Loving the one you love is an easy matter. It may be that one day he will be the one you hate. Hating the one who hate is an easy matter, It may be that one day he will be the one you hate.' "*
+
+- [Al-Adab Al-Mufrad 1321](https://sunnah.com/adab/57/6)
+
+**Elaboration:**  
+This wise saying ascribed to the Prophet’s cousin, though not a direct statement from the Prophet ﷺ, perfectly complements the advice on anger. One should exercise restraint and balance in all strong emotions—lest today's friend become tomorrow's enemy. Moderation is the key to relational stability.
+
+---
+
+## **19. Additional Quranic Context**
+
+Many hadith chapters reference these verses:
+
+> **“Those who spend (in Allah’s cause) in prosperity and in adversity, who repress their anger, and who pardon men, verily, Allah loves the good-doers.”**  
+> – Qur'an 3:134
+
+**Elaboration:**  
+Repression of anger is made a mark of the truly God-conscious (muttaqin). The example of the Prophet ﷺ, his companions, and the Qur’anic ideal together create a comprehensive, multifaceted program for inner purification and social harmony.
+
+---
+
+## **20. Anger and Decision-Making**
+
+It is also clear from the broader Sunnah that the Prophet ﷺ discouraged making judgments, rulings, or major decisions while angry, as anger clouds sound judgment and can lead to regretful actions. This wisdom is implicit in the emphasis on forbearance, silence, and behavioral change during moments of anger as described above.
+
+---
+
+## **21. Summary Table of Key Anger Hadiths**
+
+| Collection (Book)    | Hadith # / Ref | Core Message                                             | Direct Link                                               |
+|----------------------|----------------|----------------------------------------------------------|-----------------------------------------------------------|
+| Al-Adab Al-Mufrad    | 1317           | True strength is self-control at anger                   | [Hadith 1317](https://sunnah.com/adab/57/1)               |
+| Sahih al-Bukhari     | 6114           | True strength is self-control at anger                   | [Hadith 6114](https://sunnah.com/bukhari/78/141)          |
+| Bulugh al-Maram      | 1524           | True strength is self-control at anger                   | [Hadith](https://sunnah.com/urn/2054430)                  |
+| Al-Adab Al-Mufrad    | 1319           | Seek refuge from Shaytan when angry                      | [Hadith 1319](https://sunnah.com/adab:1319)               |
+| Sahih al-Bukhari     | 3282           | Seek refuge from Shaytan when angry                      | [Hadith 3282](https://sunnah.com/bukhari:3282)            |
+| Jami` at-Tirmidhi    | 2020           | "Do not get angry" repeated                              | [Hadith 2020](https://sunnah.com/tirmidhi:2020)           |
+| Sunan Abi Dawud      | 4782           | Change posture (sit/lie); advice to calm anger           | [Hadith 4782](https://sunnah.com/abudawud:4782)           |
+| Al-Adab Al-Mufrad    | 1320           | Remain silent when angry                                 | [Hadith 1320](https://sunnah.com/adab:1320)               |
+| Sunan Ibn Majah      | 4186           | Restraining anger brings reward on Resurrection Day      | [Hadith 4186](https://sunnah.com/ibnmajah:4186)           |
+| Bulugh al-Maram      | 1549           | Restraining anger averts Allah's punishment              | [Hadith 1549](https://sunnah.com/bulugh/16/70)            |
+| Riyad as-Salihin     | 64             | Allah’s anger at unlawful acts                           | [Hadith 64](https://sunnah.com/riyadussalihin:64)         |
+| Sahih al-Bukhari     | 6109           | Anger for violation of Allah’s limits                    | [Hadith 6109](https://sunnah.com/bukhari:6109)            |
+| Al-Adab Al-Mufrad    | 2              | Parent's anger = Allah's anger                           | [Hadith 2](https://sunnah.com/adab:2)                     |
+| Jami` at-Tirmidhi    | 664            | Charity extinguishes Allah’s anger                       | [Hadith 664](https://sunnah.com/tirmidhi/7/48)            |
+
+---
+
+## **Conclusion**
+
+The collected hadiths from Sunnah.com present a rich, coherent, and practical body of Islamic guidance on the issue of anger and temper. Many hadiths echo and reinforce one another, highlighting that controlling anger is an explicit, recurrent theme in the Prophetic tradition. This control is presented as both a spiritual and practical imperative—not merely a personal asset, but a duty to God, self, and community.
+
+**Key takeaways include:**
+
+- **True strength lies not in subduing others but in mastering one’s own anger.**
+- **Suppressing anger is rewarded exceptionally by Allah.**
+- **When angry, seek refuge in Allah from Shaytan, remain silent, and change physical posture.**
+- **Anger is only ever praiseworthy when it is for the limits of Allah or in the defense of divine principles, never for personal reasons.**
+- **Parental anger has profound spiritual implications, directly tied to God's pleasure or wrath.**
+
+This report has attempted to gather and arrange, with precise translation and referencing, all major Prophetic guidance on anger, drawing on all key hadith sources accessible via Sunnah.com. It is hoped that this exhaustive presentation facilitates learning, teaching, and spiritual growth for those seeking to emulate the exemplary character of the Prophet Muhammad ﷺ.
+
+---
+
+💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢💢
 ## 🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧
 
 ## 🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛🥛
