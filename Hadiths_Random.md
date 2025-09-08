@@ -218,6 +218,50 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 
+
+https://youtu.be/XlcZj24RJ8g?list=PLAEA99D24CA2F9A8F&t=1080
+
+## Ibn Ishāq and Ibn Hishām
+
+🌟 **Ibn Ishāq and Ibn Hishām** are the two towering figures in the early compilation of the *Sīrah*—the biography of Prophet Muhammad ﷺ. Their relationship is sequential and editorial, not parallel. Here's how they fit into the historical and scholarly landscape:
+
+---
+
+### 🧭 **Ibn Isḥāq (d. ~150 AH / 767 CE)**  
+**Full name:** Muḥammad ibn Isḥāq ibn Yasār  
+**Role:** *The original compiler of the Sīrah*  
+- He was the first to systematically collect reports about the Prophet’s life, battles (*maghāzī*), and lineage.
+- His work, *Sīrat Rasūl Allāh*, was based on oral reports, akhbār, and early written fragments.
+- He traveled widely—Medina, Egypt, Iraq—gathering material from senior Tābiʿūn and their students.
+- Though his original manuscript is lost, his narrations survive through later transmitters.
+- Hadith critics had mixed views: some praised his memory and breadth, others questioned his isnād rigor. Still, his maghāzī material was considered foundational.
+
+---
+
+### 🧾 **Ibn Hishām (d. 218 AH / ~833 CE)**  
+**Full name:** ʿAbd al-Malik ibn Hishām  
+**Role:** *The editor and redactor of Ibn Isḥāq’s Sīrah*  
+- He received Ibn Isḥāq’s work through Ziyād al-Bakkāʾī, a student of Ibn Isḥāq.
+- Ibn Hishām **edited, abridged, and annotated** the original Sīrah:
+  - Removed reports not directly related to the Prophet ﷺ.
+  - Omitted controversial or weak narrations (e.g. the Satanic Verses).
+  - Added genealogical clarifications, place descriptions, and poetic commentary.
+- His version, *Al-Sīrah al-Nabawiyyah*, became the **standard reference** for centuries.
+- He often inserts his own notes with the phrase: *qāla Ibn Hishām* (“Ibn Hishām says”).
+
+---
+
+### 📚 Surviving Legacy  
+- **Ibn Hishām’s recension** is the earliest complete biography of the Prophet ﷺ that we possess today.
+- It is the basis for many later historians, including al-Ṭabarī.
+- You can access the full English translation of Ibn Hishām’s *Sīrah* on [Archive.org](https://archive.org/details/sirahibnhisham).
+
+---
+
+Would you like a side-by-side comparison of their methodologies or a breakdown of how later scholars used their material? I can also trace how their work influenced tafsīr, maghāzī, and hadith literature.
+
+📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 📚 
 
 ---
 
