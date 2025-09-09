@@ -186,6 +186,8 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+Our beloved Prophet ﷺ
+
 # 👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇
 # 👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇
 
@@ -212,7 +214,32 @@ https://youtu.be/uuTiOtc_trI?list=PLYO6Oz7uwCSj9JH6lfGJVY_7zGOnkhDCA&t=2884
 
 ---
 
+### Yasir Qadi praising Al-Tabari [the encylopedia of Tafsirs, all tafsir comes from him]
+
+Al-Tabari, full name Abū Jaʿfar Muḥammad ibn Jarīr ibn Yazīd al-Ṭabarī (839–923 CE), was a prominent Sunni Muslim scholar, historian, exegete of the Qur'an, jurist, and theologian from Tabaristan, present-day Iran. He is considered one of the most important figures of the Islamic Golden Age and known for his prolific works on diverse subjects including Islamic history, Quranic commentary, and law. 
+
+His two most famous works are:
+- Tafsir al-Tabari, a comprehensive Qur'anic exegesis.
+- Tarikh al-Rusul wa al-Muluk (History of the Prophets and Kings), a detailed universal history from creation to his time.
+
+Al-Tabari was respected for his scholarship, objectivity, and independent judgment. He established his own school of Islamic jurisprudence, although it did not survive long after his death. He lived primarily in Baghdad during a period of political and theological turmoil and faced opposition from the Hanbalite scholars. His historical accounts remain a primary source for Islamic history up to the 10th century.[1][2][3][4]
+
+[1](https://en.wikipedia.org/wiki/Al-Tabari)
+[2](https://www.britannica.com/biography/al-Tabari)
+[3](https://iais.org.my/attach/IbnuJarir_al_Tabari_GreatIslamicHistorian_updated.pdf)
+[4](https://archive.org/details/the-history-of-al-tabari)
+[5](https://islamichistory.info/2021/11/03/brief-biography-of-imam-al-tabari/)
+[6](https://gajrc.com/media/features_articles/GAJHSS_11_1-5.pdf)
+[7](https://adviceforparadise.com/profiles/35/)
+
+https://youtu.be/kbaorsGGFio?list=PLAEA99D24CA2F9A8F&t=2138
+
 ---
+
+## Sohail and poeple talking getting back to old days of Jahliya after the death of Our beloved Prophet ﷺ
+
+https://youtu.be/DtvaaYZAIH8?list=PLAEA99D24CA2F9A8F&t=3498
+
 
 ---
 
