@@ -211,6 +211,10 @@ Our beloved Prophet ﷺ
 
 ---
 
+"al-hees" i think
+
+https://youtu.be/oWx_sjaW17c?list=PLAEA99D24CA2F9A8F&t=1766
+
 
 ---
 
