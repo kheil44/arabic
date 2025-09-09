@@ -234,6 +234,11 @@ Al-Tabari was respected for his scholarship, objectivity, and independent judgme
 
 https://youtu.be/kbaorsGGFio?list=PLAEA99D24CA2F9A8F&t=2138
 
+vs
+Noman Ali Khan critisizing him;
+
+https://www.youtube.com/watch?v=4j4u9_QzxYY
+
 ---
 
 ## Sohail and poeple talking getting back to old days of Jahliya after the death of Our beloved Prophet ﷺ
