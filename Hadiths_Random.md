@@ -211,6 +211,95 @@ Our beloved Prophet ﷺ
 
 ---
 
+---
+
+---
+
+
+---
+
+
+---
+
+---
+
+---
+
+---
+
+---
+
+---
+
+
+---
+
+
+---
+
+---
+
+---
+
+---
+
+---
+
+---
+
+
+---
+
+https://youtu.be/oknMkd2LJEs?list=PLAEA99D24CA2F9A8F&t=1380
+
+Saniat ul Wada (سنية الوداع) refers to the "Farewell Hajj" or "Hajjat al-Wadaʿ" in Arabic. It was the only Hajj pilgrimage that Prophet Muhammad ﷺ performed after the Hijra (migration to Medina), occurring in the year 10 AH (632 CE), just a few months before his passing. This Hajj is significant because the Prophet ﷺ delivered his famous Farewell Sermon during this pilgrimage, addressing important principles of justice, equality, and Islamic ethics.
+
+The term "Saniat ul Wada" literally means "year or pilgrimage of farewell," highlighting that it was the last Hajj performed by the Prophet ﷺ and marked the completion of the religion of Islam.
+
+During this pilgrimage, the Prophet emphasized the unity of Muslims and established many rituals and practices that are still followed today. It is also connected with the revelation of the Quranic verse on the completion of religion (Surah Al-Ma'idah 5:3).
+
+Another related term is "Tawaf al-Wada" or "Farewell Tawaf," which is the final circumambulation around the Kaaba that pilgrims perform before leaving Mecca after completing Hajj.[1][3]
+
+[1](https://en.wikishia.net/view/Hajjat_al-Wada')
+[2](https://en.wikishia.net/view/Sanat_al-Wufud)
+[3](https://thepilgrim.co/farewell-tawaf/)
+[4](https://kalimah-center.com/how-to-say-goodbye-in-arabic/)
+[5](https://mpeb.ie/for-teachers/glossary-of-islamic-terms/)
+[6](https://en.wikipedia.org/wiki/Glossary_of_Islam)
+[7](https://en.wikipedia.org/wiki/Kafir)
+[8](https://myislam.org/glossary-islamic-terms-and-phrases/)
+
+
+---
+
+## Mu'tah a Roman province of Syria
+
+https://youtu.be/oknMkd2LJEs?list=PLAEA99D24CA2F9A8F&t=257
+
+---
+
+## Last three (probably) great Sahab that accpeted islam togther;
+
+1- Uthman ibn Talha (رضي الله عنه). keeper of the key to the Kaaba
+
+2- Khalid ibn al-Walid was 
+
+3- Amr ibn al-As (رضي الله عنه) was a key Politican
+
+
+https://youtu.be/W2Xov5QXgCw?list=PLAEA99D24CA2F9A8F&t=3700
+
+
+---
+
+## the first time Tabai giving a Sahabi a dawa to accept islam
+
+## _Najashi (Mukhadramoon a type of Tabai who lived when was Our beloved Prophet ﷺ still alived ) to Amr bin Us_
+
+https://youtu.be/W2Xov5QXgCw?list=PLAEA99D24CA2F9A8F&t=2580
+
+---
+
 "al-hees" i think
 
 https://youtu.be/oWx_sjaW17c?list=PLAEA99D24CA2F9A8F&t=1766
