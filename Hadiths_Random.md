@@ -241,6 +241,13 @@ Our beloved Prophet ﷺ
 
 ---
 
+## Ijtihad
+## _Another example of Sahab doing ijtihad while Our beloved Prophet ﷺ alive_
+
+https://youtu.be/axuLd5cJdIk?list=PLAEA99D24CA2F9A8F&t=3024
+
+-> go back maybe 10 minutes when Amr prayed in state of .....
+
 ---
 
 ## Danger / wrong of Arrogance even for the One upon the truth;
