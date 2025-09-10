@@ -248,6 +248,12 @@ https://youtu.be/axuLd5cJdIk?list=PLAEA99D24CA2F9A8F&t=3024
 
 -> go back maybe 10 minutes when Amr prayed in state of .....
 
+## in the same clip;
+
+In the absence of water, or if one is unable to use it due to sickness, etc., one can perform Tayammum instead of Wudu and Ghusl.
+
+https://islamqa.info/en/answers/40204/can-you-do-tayammum-instead-of-ghusl
+
 ---
 
 ## Danger / wrong of Arrogance even for the One upon the truth;
