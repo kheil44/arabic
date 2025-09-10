@@ -243,7 +243,15 @@ Our beloved Prophet ﷺ
 
 ---
 
+## Danger / wrong of Arrogance even for the One upon the truth;
+
+https://youtu.be/5rxpD4hwkZg?list=PLAEA99D24CA2F9A8F&t=2538
+
 ---
+
+## Pakistani General 
+
+https://youtu.be/oknMkd2LJEs?list=PLAEA99D24CA2F9A8F&t=2303
 
 ---
 
