@@ -247,6 +247,9 @@ Our beloved Prophet ﷺ
 
 ---
 
+ʿAbdullāh ibn Rawāḥah رضي الله عنه sitting at the door as soon as he heard....
+
+https://youtu.be/oknMkd2LJEs?list=PLAEA99D24CA2F9A8F&t=1929
 
 ---
 
