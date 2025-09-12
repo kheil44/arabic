@@ -241,6 +241,11 @@ Our beloved Prophet ﷺ
 
 ---
 
+## Duha [After Sharooq all the way right before Zur 3-5 hours ] Prayer Time and no
+### _The best time 11:30 or so 4 mimim perfection....video ._
+
+https://youtu.be/iHGjT3Ey1Yo?list=PLAEA99D24CA2F9A8F&t=261
+
 ---
 
 ## Ijtihad
