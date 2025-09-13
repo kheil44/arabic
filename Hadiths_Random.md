@@ -225,6 +225,10 @@ Our beloved Prophet ﷺ
 
 ---
 
+## Correction Made in this video about only two battles mentioned in Quran not 3.
+
+https://youtu.be/ALiBDNykR28?list=PLAEA99D24CA2F9A8F&t=1236
+
 ---
 
 https://youtu.be/ALiBDNykR28?list=PLAEA99D24CA2F9A8F&t=548
