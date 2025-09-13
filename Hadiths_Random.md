@@ -227,6 +227,27 @@ Our beloved Prophet ﷺ
 
 ---
 
+https://youtu.be/ALiBDNykR28?list=PLAEA99D24CA2F9A8F&t=548
+
+The incident often mentioned involving Abu Musa al-Ash'ari and his uncle, Abu Amir al-Ash'ari, is from the Battle of Hunayn (and the Expedition of Autas). Abu Musa was present when his uncle was mortally wounded. Abu Musa recounts:
+
+- Abu Amir was struck in the knee with an arrow. Abu Musa asked him who shot him, and Abu Amir pointed out the culprit.
+- Abu Musa chased down the man, called out to him to face him like an Arab, and after a brief exchange, killed him.
+- Abu Musa returned to his uncle, who asked him to pull out the arrow; when Abu Musa did, water flowed from the wound. Abu Amir then sent Abu Musa to convey salam to the Prophet and request prayers for him.
+- Abu Amir died shortly thereafter, making Abu Musa the commander. When Abu Musa reported the news to the Prophet, the Prophet made wuduʿ, raised his hands in prayer, and sought forgiveness and honor for Abu Amir. Abu Musa asked for the same, and the Prophet also prayed for him.[1][4][7]
+
+There is no widely cited report of a dramatic incident involving Abu Musa and a nephew at the time of Abu Musa’s own death. Reports about his death record that he died in Kufa or Mecca, and his descendants—chiefly his son Abu Burda—became notable scholars and judges in later generations.[2]
+
+[1](https://en.wikipedia.org/wiki/Expedition_of_Abu_Musa_Al-Ashari)
+[2](https://en.wikishia.net/view/Abu_Musa_al-Ash'ari)
+[3](https://en.wikishia.net/view/Al-Ash'ari_Family)
+[4](https://mahajjah.com/biography-of-abu-musa-al-ashari/)
+[5](https://www.alim.org/history/prophet-companions/53/)
+[6](https://sunnah.com/riyadussalihin/17)
+[7](https://aalequtub.com/hazrat-abu-moosa-al-ashari-r-a/)
+[8](https://www.iium.edu.my/deed/hadith/bukhari/078_sbt.html)
+[9](https://ahadith.co.uk/chapter.php?page=4&rows=50)
+
 ---
 
 ## Hadith of a Hanging TREE ...
