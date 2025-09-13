@@ -229,6 +229,12 @@ Our beloved Prophet ﷺ
 
 ---
 
+## Hadith of a Hanging TREE ...
+
+## _good luck tree..forbidden....._
+
+https://youtu.be/ttEsGxFxDKA?list=PLAEA99D24CA2F9A8F&t=1527
+
 ---
 
 ## boasting the size of Army... unknown Prophet mentioned;
