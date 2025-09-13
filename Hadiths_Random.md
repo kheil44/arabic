@@ -231,8 +231,17 @@ Our beloved Prophet ﷺ
 
 ---
 
+## boasting the size of Army... unknown Prophet mentioned;
+
+https://youtu.be/ttEsGxFxDKA?list=PLAEA99D24CA2F9A8F&t=1357
+
 ---
 
+## Fiq: Points derived;
+
+#### 1- allowed to break Ramadan fast.... 2-Travelling begins outside your home city not home.....3- Duha 8 raka recommened...4-musafir to pray 2 where 4 rakat. this is recommeded.. how long can you stay Musafir-> 4 days to be on safe side but ....
+
+https://youtu.be/iHGjT3Ey1Yo?list=PLAEA99D24CA2F9A8F&t=3353
 
 ---
 ## Do Not Curse Sahaba(said to Khalid bin Waleed)....
