@@ -235,9 +235,19 @@ Our beloved Prophet ﷺ
 
 
 ---
+## Do Not Curse Sahaba(said to Khalid bin Waleed)....
+
+https://youtu.be/iHGjT3Ey1Yo?list=PLAEA99D24CA2F9A8F&t=3216
 
 
 ---
+
+## even our Our beloved Prophet ﷺ   was told to... prepare for death.... Extra Worship & Extra Istighfar....
+
+https://youtu.be/iHGjT3Ey1Yo?list=PLAEA99D24CA2F9A8F&t=2691
+
+also go back few minutes to see ibn Abbas tafsir.
+
 
 ---
 
