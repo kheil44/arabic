@@ -185,6 +185,54 @@ check tafsir for 3 questions asked by  '' from Prophet pbuh.
 
 ## 🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧
 
+Al-Ḥāfiẓ Ibn Ḥajar al-ʿAsqalānī (d. 852 AH / 1449 CE) was one of the most towering scholars in Islamic history—especially in the science of ḥadīth. His full name was **Abū al-Faḍl Shihāb al-Dīn Aḥmad ibn ʿAlī ibn Muḥammad ibn Ḥajar al-ʿAsqalānī al-Kinānī ash-Shāfiʿī**.
+
+Here’s a structured overview of his life and legacy:
+
+---
+
+### 🧠 **Core Specialization: Hadith Mastery**
+
+- He earned the title **"Al-Ḥāfiẓ"**, meaning he memorized **at least 100,000 hadiths with full chains (isnāds)**.
+- His magnum opus is **Fatḥ al-Bārī**, the most celebrated commentary on **Ṣaḥīḥ al-Bukhārī**.
+- He also authored **Bulūgh al-Marām**, a hadith collection widely used in fiqh training.
+
+📘 [Read about his works and legacy](https://dusp.org/hafiz-ibn-hajar.htm)
+
+---
+
+### 🏛️ **Education & Teachers**
+
+- Memorized the Qur’an by age 9.
+- Studied under giants like **al-Zayn al-ʿIrāqī**, **al-Balqīnī**, and **Ibn al-Mulaqqin**.
+- Traveled to **Makkah, Madinah, Syria, and Yemen** to study hadith and other sciences.
+
+📘 [Detailed biography and scholarly lineage](https://www.adviceforparadise.com/profiles/9/)
+
+---
+
+### 📚 **Major Contributions**
+
+| 📖 Work | 📝 Description |
+|--------|----------------|
+| **Fatḥ al-Bārī** | Commentary on Ṣaḥīḥ al-Bukhārī; unmatched in depth and precision |
+| **Bulūgh al-Marām** | Hadiths used in fiqh rulings; grouped by topic |
+| **Tahdhīb al-Tahdhīb** | Biographical dictionary of hadith narrators |
+| **Al-Iṣābah fī Tamyīz al-Ṣaḥābah** | Encyclopedia of the Companions of the Prophet ﷺ |
+
+---
+
+### ⚖️ **Judicial Role & Influence**
+
+- Served as **Chief Judge (Qāḍī al-Quḍāt)** in Egypt for over **20 years**.
+- Taught at **Al-Azhar**, **Jāmiʿ ʿAmr**, and other major institutions.
+- His students included **al-Sakhāwī**, **al-Biqāʿī**, and many others who preserved and expanded his legacy.
+
+📘 [Historical context and personal life](https://baitulhikmahinstitute.com/2021/07/10/allama-ibn-hajar-al-asqalani-ra/)
+
+---
+
+If you want his exact phrasing on divine knowledge, hadith grading, or his views on controversial narrators, I can pull direct quotes from his works next. Just say the word.
 
 ## 🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧
 
