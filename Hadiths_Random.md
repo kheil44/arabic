@@ -217,6 +217,52 @@ Our beloved Prophet ﷺ
 
 ---
 
+## Marriage, Divorce, Death
+
+## _The woman whom Prophet Muhammad (peace be upon him) divorced the same night was Fatima bint Duhaq or  Umaymah bint Sharaaheel or etc etc at least six seven names...._
+
+https://youtu.be/dP--QLPUK_8?list=PLAEA99D24CA2F9A8F&t=2856
+
+### The woman and the complete dialogue in Islamic sources
+
+- **Name variants:**  
+  - **Bint al-Jawn** (بِنْتُ الجَوْن)  
+  - **al-Jūniyya** (الجُونِيَّة)  
+  - Often identified as **Asmāʾ bint an‑Nuʿmān al‑Kindiyyah** (أَسْمَاءُ بِنْتُ النُّعْمَانِ الكِنْدِيَّة). Scholars note variant reports, but the dialogue and outcome are consistent.
+
+---
+
+### The core narration with dialogue
+
+- **Arabic (with diacritics):**  
+  - قالت: **«أَعُوذُ بِاللّٰهِ مِنْكَ»**  
+  - فقال ﷺ: **«لَقَدْ عُذْتِ بِعَظِيمٍ، الحَقِي بِأَهْلِكِ»**  
+  - وفي رواية: **«قَدْ عُذْتِ بِعَظِيمٍ»** ثم قال: **«الْحَقِي بِأَهْلِكِ»**  
+  - وفي بعض الطرق: أمر ﷺ أبا أُسَيْدٍ السَّاعِدِيَّ أن يُلْحِقَهَا بِأَهْلِهَا ويُعْطِيَهَا كِسْوَةً.
+
+- **Translation:**  
+  - She said: “I seek refuge in Allah from you.”  
+  - He ﷺ said: “You have sought refuge with the Most Great; go back to your family.”  
+  - In another wording: “Indeed, you have sought refuge with the Most Great,” then he said: “Return to your family.”  
+  - Some routes add: He ﷺ instructed Abū Usayd al‑Sāʿidī to take her back to her people and give her clothing as a gift.
+
+---
+
+### Brief context and outcome
+
+- **Consent upheld:** The Prophet ﷺ ended the marriage immediately and honored her words without anger or coercion.  
+- **No consummation:** The reports indicate separation on the spot, with generosity in sending her back.  
+- **Ethical lesson:** Scholars cite this as a precedent that marital union requires mutual comfort and consent; when the woman expressed fear or refusal, he ﷺ respected it without pressure.
+
+---
+
+### Notes on identity and sources
+
+- **Identity variance:** Some hadith name her “Bint al‑Jawn/al‑Jūniyya,” others identify her as Asmāʾ bint an‑Nuʿmān. Commentators reconcile these by noting she may have been known by more than one descriptor (tribal/nasab vs. nisbah).  
+- **Primary sources mentioned by scholars:** The incident appears in major hadith collections and sīrah/adab works, with slight wording differences; the essential dialogue above is stable across narrations.
+
+If you want, I can list the major hadith routes with full isnād chains and note the wording variants line‑by‑line for verification.
+
 
 ---
 
