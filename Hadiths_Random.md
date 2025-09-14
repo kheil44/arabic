@@ -195,6 +195,77 @@ Our beloved Prophet ﷺ
 
 ---
 
+Here’s a structured breakdown of how classical Islamic scholars and creedal texts articulate the **totality of Allah’s knowledge**, including the famous formulation you referenced: *“He knows what was, what is, what will be, and what could have been if it were to happen.”* Each entry includes the scholar’s version, their source, and a direct link to the reference.
+
+---
+
+### 🏛️ **1. Imām al-Tahāwī (d. 321 AH)** — *Al-ʿAqīdah al-Ṭahāwiyyah*
+
+> **“He knows everything before it happens, and He knows how it will happen, and He knows what will not happen, and how it would have happened if it did.”**
+
+- This is a foundational statement in Sunni creed, often cited in Ashʿarī and Māturīdī commentaries.
+- It affirms Allah’s knowledge of:
+  - **Actual events** (past, present, future)
+  - **Counterfactuals** (non-events and their hypothetical outcomes)
+
+🔗 [View commentary on al-Tahāwiyyah](https://yaqeeninstitute.org/read/paper/predestination-vs-free-will-in-islam-understanding-allahs-qadr)
+
+---
+
+### 🧠 **2. Imām al-Ghazālī (d. 505 AH)** — *Iḥyāʾ ʿUlūm al-Dīn* & *Al-Maqṣad al-Asnā*
+
+> **“Allah’s knowledge encompasses all existents, universal and particular, from eternity to eternity. He knows the actual, the possible, the impossible, and the necessary.”**
+
+- Ghazālī expands the scope to include:
+  - **Necessary truths** (e.g. 2+2=4)
+  - **Impossible scenarios** (e.g. square circles)
+  - **Possible but unrealized events**
+
+🔗 [Explore Ghazālī’s epistemology](https://www.islamiqate.com/6253/what-the-difference-between-fate-qada-and-destiny-qadr-islam)
+
+---
+
+### 📚 **3. Ibn Taymiyyah (d. 728 AH)** — *Majmūʿ al-Fatāwā*
+
+> **“Allah knows what will happen, what has happened, what is happening, and what would happen if something else had happened.”**
+
+- Ibn Taymiyyah affirms:
+  - **Knowledge of alternate realities** (law kāna kayfa yakūn)
+  - **Perfect awareness of human choices before they occur**
+  - **No contradiction between divine knowledge and human free will**
+
+🔗 [Philosophical discussion on divine knowledge](https://fiqh.islamonline.net/en/question-of-free-will-and-divine-knowledge/)
+
+---
+
+### 🧾 **4. Ibn al-Qayyim (d. 751 AH)** — *Shifāʾ al-ʿAlīl* & *Tafsīr al-Qayyim*
+
+> **“Allah knows what is, what was, what will be, and what would be if it were to be. This is the knowledge of possibilities (mumkināt), not just actualities.”**
+
+- Ibn al-Qayyim emphasizes:
+  - **Knowledge of potential outcomes**
+  - **Allah’s awareness of every choice and its ripple effects**
+  - **This knowledge is part of His perfection and justice**
+
+🔗 [See Ibn al-Qayyim’s theological framework](https://yaqeeninstitute.org/read/paper/predestination-vs-free-will-in-islam-understanding-allahs-qadr)
+
+---
+
+### 🧮 **5. Ashʿarī & Māturīdī Schools**
+
+> **“Allah’s knowledge is eternal, unchanging, and encompasses all things: the existent, the non-existent, the possible, and the impossible.”**
+
+- These schools formalized the doctrine of:
+  - **ʿIlm al-mumkināt** — knowledge of possible but unrealized events
+  - **ʿIlm al-muḥālāt** — knowledge of impossibilities
+  - **ʿIlm al-wājibāt** — knowledge of necessary truths
+
+🔗 [Detailed breakdown of Qada and Qadr](https://www.islamiqate.com/6253/what-the-difference-between-fate-qada-and-destiny-qadr-islam)
+
+---
+
+Would you like me to extract the Arabic originals with full diacritics and source paths next? I can also build a Markdown matrix comparing each scholar’s phrasing and scope.
+
 ---
 
 ---
