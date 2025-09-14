@@ -223,6 +223,31 @@ Our beloved Prophet ﷺ
 
 ---
 
+## Hakeem ibn Hizam
+
+https://youtu.be/ALiBDNykR28?list=PLAEA99D24CA2F9A8F&t=3378
+
+Hakeem ibn Hizam was a close companion and relative of the Prophet Muhammad (peace be upon him), specifically his nephew by his aunt Khadijah. He converted to Islam during the Conquest of Mecca.
+
+There is a well-known incident where Hakeem asked the Prophet for more wealth from the spoils of war (booty). The Prophet initially gave him 100 camels, then more when he asked again. When Hakeem asked a third time, the Prophet said:
+
+"This wealth is sweet and pleasant. Whoever acquires it with generosity of heart will find it fulfilling, but whoever acquires it with greed will not find it fulfilling and will be like a person who eats but is never satisfied." Then the Prophet advised that the "upper hand is better than the lower hand"—meaning giving is better than receiving.
+
+After hearing this, Hakeem vowed not to accept favors from anyone after the Prophet, to maintain humility and independence. He refrained from accepting gifts or official positions after that and became known for his generosity and wisdom.[1][2][4][5]
+
+So, Hakeem wanted more from the Prophet, but the Prophet used the moment to teach about the dangers of greed and the virtue of generosity.
+
+[1](https://rahimia.org/en/articles/hazrat-hakeem-ibn-hizam-al-qurashi-al-asadi/)
+[2](https://www.youtube.com/watch?v=Q0gXXE-RGAw)
+[3](https://www.youtube.com/watch?v=KkuUAqIZf44)
+[4](https://propheticprofit.org/2018/07/)
+[5](https://en.wikipedia.org/wiki/Hakim_ibn_Hizam)
+[6](https://www.inkoffaith.com/post/born-inside-kabah)
+[7](http://ictruth.info/Stories-Of-The-Sahabah.aspx?type=4&CategoryID=4&PageId=62)
+[8](https://yaqeeninstitute.org/watch/series/hakim-ibn-hizam-when-money-stops-mattering-the-firsts-omar-suleiman)
+[9](https://seekingthedivinecountenance.wordpress.com/tag/hakim-ibn-hizam/)
+[10](https://ahadith.co.uk/hadithbynarrator.php?n=Hakim+bin+Hizam&bid=1&let=H)
+
 ---
 
 ## Correction Made in this video about only two battles mentioned in Quran not 3.
