@@ -220,6 +220,50 @@ Our beloved Prophet ﷺ
 
 ---
 
+## Hatim al-Ṭā’ī (حاتم الطائي) 
+
+https://youtu.be/dP--QLPUK_8?list=PLAEA99D24CA2F9A8F&t=1298
+
+Hatim al-Ṭā’ī (حاتم الطائي) is a legendary figure in pre-Islamic Arabia, renowned in Islamic literature primarily for his **exceptional generosity**, **noble character**, and **moral example**. While he lived before the advent of Islam (d. circa 578 CE), Islamic sources—especially hadith literature and early sīrah works—preserve and amplify his reputation as a paragon of virtue.
+
+---
+
+### 🕌 Hatim al-Ṭā’ī in Islamic Literature
+
+#### 1. **Mention in Hadith and Sīrah**
+- **Prophet Muhammad ﷺ referenced Hatim** in several narrations, often to highlight his generosity and noble traits.
+- His **son, ʿAdī ibn Ḥātim**, was a companion of the Prophet ﷺ and features prominently in hadith collections. Through ʿAdī, Hatim’s legacy is indirectly affirmed.
+- In *Musnad Aḥmad* and other collections, ʿAdī recounts his conversion to Islam and the Prophet’s ﷺ praise of his father’s generosity, saying:
+  > _"Your father loved noble qualities."_  
+  This is often cited as a tacit endorsement of Hatim’s character, despite his pre-Islamic status.
+
+#### 2. **Moral Legacy**
+- Hatim is upheld in Islamic literature as an **example of al-karam (الكرم)**—generosity so profound it became proverbial.
+- The Arabic saying _“ʾAkram min Ḥātim” (أكرم من حاتم)_ means “more generous than Hatim,” and is still used today to describe extreme selflessness.
+
+#### 3. **Role in Arab Cultural Memory**
+- Islamic scholars and poets like **Ibn ʿAbd Rabbih** and **al-Jāḥiẓ** included Hatim in lists of pre-Islamic figures who embodied virtues Islam later affirmed.
+- His stories are preserved in **adab literature**, especially in works like *Kitāb al-Aghānī* and *al-Bukhalaʾ* (The Book of Misers), where his generosity is contrasted with stinginess.
+
+---
+
+### 📜 Examples of His Legendary Generosity
+
+- He once **slaughtered his only horse** to feed a guest.
+- He gave away **all his possessions** multiple times, refusing to let anyone leave his tent empty-handed.
+- In one tale, he **rescued a captive** by offering his own son in exchange.
+
+These stories, though often embellished, were used by Muslim educators and storytellers to **instill moral values** in children and adults alike.
+
+---
+
+### 🧭 Islamic Perspective on Pre-Islamic Virtue
+
+Islamic scholars distinguish between **pre-Islamic ignorance (jāhiliyyah)** and **universal virtues**. Hatim is one of the few jāhili figures whose **moral excellence was acknowledged** by the Prophet ﷺ, making him a rare example of someone whose legacy was **absorbed into Islamic ethical discourse**.
+
+---
+
+Would you like a breakdown of how his legacy was treated in different Islamic schools of thought or how his son ʿAdī’s conversion shaped early Muslim views of tribal nobility? I can also trace how his image evolved in Persian and Urdu Islamic literature.
 
 ---
 
