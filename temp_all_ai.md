@@ -191,6 +191,204 @@ check tafsir for 3 questions asked by  '' from Prophet pbuh.
 
 ## 🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧
 
+# The Figure of Hatim al-Tai in Islamic Literature: A Comprehensive Study
+
+---
+
+## Introduction
+
+Hatim al-Tai (also rendered Hatam Atai), the legendary pre-Islamic Arab poet and chieftain of the Tayy tribe, occupies an exceptional place in Islamic literature and moral tradition. Renowned for his unrivaled generosity, nobility, and chivalry, Hatim al-Tai became an enduring cultural symbol whose legendary status transcended poetry to influence Islamic ethical discourse, biographical literature, and Sufi treatises. While his exploits and virtues have inspired folklore across cultures, the purpose of this report is to explore only those dimensions firmly rooted in Islamic sources and interpretative traditions. Central to this analysis are his explicit mentions in the hadith and sīrah literature, references in classical Islamic histories, biographical dictionaries, commentaries, Sufi teachings, and the ethical paradigms constructed around his figure.
+
+This report is structured into logical sections. Each section offers comprehensive, paragraph-based analysis anchored in primary Islamic sources and scholarly interpretations, in strict accordance with the thematic outline requested. A summary table of key references follows, providing an at-a-glance lens, which is then expanded in narrative analyses throughout the report.
+
+---
+
+## Table: Summary of Key References to Hatim al-Tai in Islamic Texts
+
+| Islamic Source Type          | Key Works & References                                        | Nature of Mention / Relevance                     |
+|-----------------------------|---------------------------------------------------------------|---------------------------------------------------|
+| Hadith Collections          | Sunan Abu Dawud, Musnad Ahmad                                 | Narrations discussing his generosity, family, and comparison with Islamic ideals  |
+| Sīrah Literature            | Ibn Ishaq's Sīrat Rasul Allah                                 | Incidental references, especially in context of son 'Adi b. Hatim's conversion |
+| Classical Islamic Histories | Al-Tabari's Tarikh, Ibn Kathir's Al-Bidaya wa'l-Nihaya        | Evaluative anecdotes and genealogical context    |
+| Biographical Dictionaries   | Ibn Hajar's Tahdhib al-Tahdhib, Ibn al-Athir's Usd al-Ghaba  | Details on family, character assessments  |
+| Quranic Tafsir Works        | Tafsir al-Tabari, other early commentators                    | Allusions in relation to generosity (not direct)|
+| Sufi Literature             | Treatise of Jawanmardi, poems by Sa'di                        | Allegories and didactic usage of Hatim as paragon of virtue |
+| Classical Poetry            | Diwan of Hatim, references by later poets                     | Poems expressing ideals of generosity and hospitality |
+| Proverbs and Adages         | Classical and modern Arabic proverb collections               | "More generous than Hatim" as a proverbial expression |
+| Qisas al-Anbiya (Stories of the Prophets) | Narrative works, especially in Sunni collections         | Rare anecdotes, sometimes as literary comparison |
+| Sīrah of Companions         | Accounts of 'Adi b. Hatim al-Tai (Companion, Hatim's son)    | Background context and moral contrast         |
+
+The table above encapsulates the breadth of Hatim al-Tai’s mentions across various Islamic genres. Each cell distills comprehensive primary and secondary references that will be analyzed in detail in the following sections. The focus is to elucidate *not only the presence* of Hatim in these works, but *the style, purpose, and implications* of his representation within Islamic ethical narratives.
+
+---
+
+## Mentions in Hadith Collections
+
+Among canonical Islamic hadith collections, Hatim al-Tai is not a central figure, as he predated Islam by a generation and never encountered the Prophet Muhammad directly. However, his repute for generosity is explicitly acknowledged in certain authentic narrations. These hadiths appear principally in the context of encounters between the Prophet and Hatim’s son, ‘Adi b. Hatim, a Christian notable who later became one of the Prophet’s Sahaba (Companions).
+
+One of the most telling accounts appears in **Sunan Abu Dawud**. When ‘Adi b. Hatim presented himself before the Prophet, the Prophet, remembering Hatim al-Tai’s unmatched generosity, remarked, “Your father loved noble traits,” affirming and validating the virtues transmitted through generations. Another report transmits that the Prophet commented on Hatim’s lack of faith (in the monotheistic sense) but still acknowledged his exemplary moral qualities. These narrations collectively serve a dual purpose: they validate the *fada’il* (virtues) of Hatim, even as a non-Muslim, while affirming that ultimate righteousness integrates faith with good works.
+
+Furthermore, **Musnad Ahmad** contains references where the Prophet extols noble characteristics in ‘Adi that echo those celebrated in his father. The Prophet’s willingness to recognize pre-Islamic virtue, contextualized by the hadith, is a nuanced assertion of Islam's openness to inherited goodness, provided it is harmonized with iman (faith). While some minor narrations discuss isolated acts (such as the freeing of slaves or feeding of the hungry), the overwhelming hadith emphasis is on *the spirit* of Hatim's generosity, rather than any doctrine-specific validation.
+
+The broader implication of these narrations is their use as a template to convey Islamic appreciation for innate, universal virtues—generosity, hospitality, truthfulness—found even outside the Islamic ummah, while simultaneously asserting the completeness of virtue only with the acceptance of monotheism. Islamic interpreters and orators frequently draw upon Hatim's legacy in their expositions on noble akhlaq (character), often referencing the Prophet's positive mention of him as proof that good deeds are laudable regardless of religious affiliation, though ultimately perfected through Islam.
+
+---
+
+## Portrayal in Sīrah Literature
+
+Hatim al-Tai’s primary significance in the sīrah (biographical literature of the Prophet) is indirect, manifested largely through the story of his son, ‘Adi b. Hatim. In **Ibn Ishaq’s Sīrat Rasul Allah**, preserved and transmitted by Ibn Hisham and others, the conversion of ‘Adi receives considerable attention, especially as it intertwines the pre-Islamic virtues embodied by his father with the new Islamic ethos. Hatim himself, being deceased before the Prophet's mission, appears in these works more as a background figure—a focal point for discussions on the moral heritage and perceived worthiness of the Tayy tribe.
+
+The moment when ‘Adi approaches the Prophet is depicted with dramatic moral overtones. The Prophet’s dialogue with ‘Adi famously references Hatim’s reputation: “O ‘Adi! You escape from Islam because you see the state of the Muslims as poverty, but do you not see your father’s generosity? Do you not know how his honor is remembered?” This literary strategy has a significant ethical function, encouraging listeners and readers to recognize that honorable qualities are valuably transferable across generations and that Islam does not negate prior virtue, but seeks to complete and ennoble it.
+
+Additionally, references to Hatim in sīrah works often act as a foil, highlighting the transformative power of Islam. By contrasting the inherited nobility of the son with the spiritual transformation entailed by Islam, the sīrah narrative continues an implicit dialogue between pre-Islamic and Islamic values. Later compilers, such as Ibn Sa'd in his *Tabaqat*, further elaborate these themes, situating Hatim within the genealogical and ethical matrices of the early Islamic milieu.
+
+Importantly, the use of Hatim in the sīrah literature is always purposeful: he is never just a curiosity, but a point of didactic leverage, a bridge between the celebrated traits of Arab antiquity and their perfection in Islam’s holistic system of righteousness.
+
+---
+
+## Depictions in Classical Islamic Histories
+
+Islamic historiographical works, particularly those of the early centuries such as **al-Tabari’s Tarikh al-Rusul wa’l-Muluk** (“History of Prophets and Kings”), frequently record anecdotes about Hatim al-Tai to illuminate the values, genealogies, and exempla of Arab society. Within these sources, Hatim’s deeds are typically cataloged as benchmarks by which later figures—both Muslim and non-Muslim—are judged.
+
+Al-Tabari’s approach to Hatim is multifaceted. First, as an historian, he provides cultural and ethnographic background, describing how Hatim’s generosity became so famous that his tribe, descendants, and rivals all invoked his name. Al-Tabari includes tales of Hatim’s open-handedness, such as giving away his portion in a feast or sacrificing his only horse for a hungry guest—stories that acquire near-mythic framing in Islamic moral repertoires. Such anecdotes are also found in Ibn Khaldun's *Muqaddimah* and Ibn Kathir's *al-Bidaya wa’l-Nihaya*, reinforcing the notion that Hatim’s reputation was not just idiosyncratic, but foundational to Arab conceptions of nobility.
+
+This valorization is not uncritical. Some Islamic historians note the incompleteness of Hatim’s virtue outside the orbit of Islamic faith, drawing on an oft-cited principle: “Good deeds of the unbelievers avail them in the dunya (this world), not the akhirah (next world).” Yet, the stories are nonetheless preserved as *parables of excellence*, and Hatim’s memory is leveraged to argue for a dynamic relationship between inherited tribal honor and the moral evolution Islam sought to inaugurate.
+
+These historiographies often preserve competing traditions. While the overarching tone is one of admiration, there are places where the motivation for Hatim’s generosity is questioned—was it for fame or true benevolence? In nearly all cases, however, the consensus solidifies around the *unprecedented* nature of his generosity, regardless of underlying intention.
+
+---
+
+## Entries in Biographical Dictionaries
+
+Hatim al-Tai occupies a distinctive niche in the Muslim biographical tradition, receiving attention in pivotal works such as **Ibn Hajar’s Tahdhib al-Tahdhib** and **Ibn al-Athir’s Usd al-Ghaba fi Ma’rifat al-Sahaba**, though here the focus usually shifts to his progeny, most notably 'Adi b. Hatim. In these dictionaries, the entries on Hatim highlight key virtues, tribal origins, and famous anecdotes. Hatim is often described with honorifics such as *Sayyid al-Arab* (Master of the Arabs) or “the most generous of the Arabs.” Such epithets are not idle; rather, they serve as markers to contextualize Hatim in the moral genealogy of Arab, and later, Islamic society.
+
+These dictionaries sometimes include detailed genealogical information about the Tayy tribe, relating their social standing, kinship ties, and the transition of virtue—through figures such as Hatim—into the Islamic era. For example, the conversion stories of ‘Adi b. Hatim are nearly always accompanied by summaries of Hatim’s character, suggesting that full appreciation of the son’s achievements is tethered to understanding the father’s legacy.
+
+Additionally, in the **biographical compendia focused on poets**—e.g., *Al-Aghani* by Abu al-Faraj al-Isfahani—Hatim is frequently referenced, not just as a poet, but as a paradigm of the chivalrous virtues (muruwwa) that the early Islamic authors sought both to preserve and reorient within the new religious context. The reception in these dictionaries thus goes beyond cataloguing facts, functioning as loci for transmission and ethical pedagogy.
+
+---
+
+## Moral Qualities Attributed to Hatim al-Tai
+
+Hatim al-Tai’s reputation for **generosity (karam)** is virtually unrivaled in the Arabic-speaking world, so much so that the phrase “more generous than Hatim” became, and remains, proverbial throughout the Islamic world. Classical and modern collections of Arabic proverbs universally include this phrase, testifying to his mythic status as the supreme benefactor and host.
+
+Key traits commonly attributed to Hatim in Islamic literature include:
+
+- **Karam (Generosity):** Exemplified by countless stories of self-sacrifice, even to the detriment of his own interest.
+- **Muruwwa (Manly Virtue/Chivalry):** Hatim is often cited as embodying the *ideal* of Arab chivalrous behavior, including courage, forbearance, and defense of the weak.
+- **Sacrifice:** The motif of giving away one’s last possession is repeatedly attached to his name.
+- **Integrity and Truthfulness:** Despite some Qur’anic and hadith caution against ascribing salvation solely to pre-Islamic virtue, Islamic authors highlight that Hatim was trusted, honest, and lived by a moral code.
+- **Hospitality:** Numerous stories narrate episodes where Hatim fed strangers, guests, and the needy without hesitation.
+
+In **Islamic discourse**, these virtues serve a crucial function. They form the *baseline* for what may be considered noble in a human sense but are explicitly stated (by scholars like al-Ghazali and Ibn Qayyim al-Jawziyya) to achieve *perfection* only when conjoined with tawhid (faith in God alone) and adherence to the Prophetic Sunnah. Thus, Hatim's generosity is presented as both a *prerequisite* and a *foil* for true Islamic virtue. His example enables scholars to contrast inherited good nature with divinely-guided conduct.
+
+Moreover, Hatim is often cited as proof that Islam did not invent virtue, but sought to purify and systematize it. The moral qualities he displayed become the *starting point* for discussions on Islamic ethics, with his generosity invoked as a model for everyone: Muslim and non-Muslim alike.
+
+---
+
+## Legendary Stories of Generosity
+
+Literary and historical Islamic texts abound with legendary stories about Hatim al-Tai's generosity, some of which have been selected and retold in Sufi and ethical treatises as parables. A few prominent examples frequently cited in Islamic works include:
+
+**1. The Sacrifice of the Horse:** It is narrated that, during a time of scarcity, Hatim sacrificed his prized horse to feed a starving guest, despite this being his only means of livelihood. When the guest later attempted to repay him, Hatim declined, affirming that true generosity expects no return.
+
+**2. The Night of the Orphans:** In another commonly cited account, Hatim, upon learning of a group of orphans in distress on a cold night, gave them not just food, but also his own clothing and blankets, preferring their comfort over his own.
+
+**3. Never Turning Away the Needy:** Numerous anecdotes describe Hatim’s refusal to ever send away a supplicant empty-handed, even if it required him to part with his last possession. This is repeated in most classical biographies and is not merely literary embellishment but forms the very substance of his legend.
+
+**4. The Tale of the Captive:** Hatim is said to have secured the release of a captive, who later turned out to be a foe, demonstrating generosity that transcended enmity—a trait much admired by Islamic moralists.
+
+**5. Feast for Strangers:** It is widely narrated that Hatim would regularly light a fire outside his camp at night so that travelers and the needy could see from afar that hospitality awaited them.
+
+These stories are not merely folk literature; many are preserved in Islamic *adab* literature (ethical treatises) and Sufi commentaries as illustrations of *jawānmardī* (noble-mindedness).
+
+The cumulative effect of these narratives is the **construction of an archetype**. Generations of Islamic scholars have treated these stories not as unattainable legends but as practical exemplars, urging Muslims to emulate Hatim’s generosity as long as it is coupled with sincere faith.
+
+---
+
+## Role in Islamic Ethical Treatises
+
+Islamic ethical thought (akhlaq) draws systematically on the figure of Hatim al-Tai—not for his faith, but for his conduct. **Sufi manuals, ethical treatises, and sermons** frequently invoke his paragon status, using him as an entry point for discussions on the six or seven cardinal virtues.
+
+One of the most significant Sufi treatises to explicitly invoke Hatim is the **“Treatise of Jawanmardi”**, attributed to various mystics and also found as a “Risala” attributed to Hatim in some recensions. Here, the concept of *jawānmardī*, or noble selflessness, is the axis around which virtue revolves. Hatim’s example forms the opening section, with the treatise stating: “To be a jawānmard is to give of what you most love, to return good for evil, and to show open-handedness like Hatim al-Tai.” The treatise deliberately juxtaposes Hatim’s “natural” virtue with the “perfected” virtue to be found in saints and Prophets.
+
+Sufi literature, such as Sa'di’s *Bostan* and certain Qadiri treatises, frequently recount tales of Hatim and stress the spiritual lesson: giving is a key to purification of the soul (*tazkiya*). In *Bostan*, a famous Sufi poetic work, Hatim’s actions are set against those of supposedly righteous but stingy individuals, reinforcing the Sufi doctrine that intention (niyyah) and openness of heart matter as much as creedal orthodoxy.
+
+Later thinkers, such as al-Ghazali in *Ihya’ ‘Ulum al-Din*, cite Hatim as a demonstration of the importance of generosity (*karam*) as a station close to God, though always noting that for acceptance, these deeds should be coupled with faith. Thus, Hatim’s ethical significance is not merely incidental; his life is invested with didactic import for formation of the virtuous Muslim character, the *akhlāqī* ideal.
+
+In **Friday sermons (khutab) and contemporary Islamic lectures**, Hatim continues to be invoked as an example, with preachers urging their audiences to “give like Hatim,” promoting the idea that Islamic ethics is a natural progression from inherited virtue to revealed ideal.
+
+---
+
+## References in Qur’anic Tafsir Works
+
+While Hatim al-Tai is not explicitly mentioned in the Qur’an, tafsir writers have occasionally drawn analogical references, especially in glossing verses related to generosity, virtue, and the deeds of the non-Muslim righteous.
+
+In **Tafsir al-Tabari**, when interpreting verses about those whose worldly good deeds are not recognized in the Hereafter due to their lack of faith, commentators sometimes supply examples such as Hatim al-Tai to clarify the text for their contemporaries. The typical reference is to verses such as *Qur’an 11:15-16*, which discuss those whose good deeds avail them only in the dunya because they sought not the pleasure of Allah but worldly ends. However, this framing is not inherently disparaging; rather, it demonstrates that Islam recognizes and even lauds exquisite moral conduct, but situates ultimate reward within the paradigm of faith.
+
+Additionally, when glossing on verses addressing hospitality, kindness to strangers, or the value of ascribing no reward to oneself (Qur’an 76:8-9, for example), some tafsir commentaries invoke Hatim and his ilk as *pre-Islamic exemplars of partial virtue*, contrasting these with Prophetic and Quranic paradigms of complete righteousness.
+
+This *analogical*—rather than direct—mention plays a sustained didactic function: by mentioning Hatim in exegesis, scholars simultaneously recognize social memory and recalibrate it, urging the faithful both to emulate his generosity and to prioritize the intention and theological grounding of their actions.
+
+---
+
+## Appearances in Sufi Literature
+
+Hatim al-Tai’s stature in Sufi literature is elevated by his role as the quintessential “friend of the wayfarer” and “noble soul.” The **Treatise of Jawanmardi**, oft-attributed to Hatim (though more likely compiled centuries later), explicitly systematizes the virtues exemplified by him as *steps* on the Sufi path. This treatise, widely read among Persian and Central Asian Sufis, begins by listing Hatim’s legendary acts and deriving from them the cardinal principles of spiritual chivalry: giving without expectation, forbearance, humility, and protection of the weak.
+
+Sufi poets, such as Sa'di, Rumi, and much later Jami, refer to Hatim as the “lamp of the desert,” elucidating how the Sufi quest for *fana* (annihilation of self in God) is mapped onto the outward-facing, sacrificial generosity attributed to Hatim. In mystical poetry, every act of Hatim is allegorized as an act of spiritual union: feeding the hungry mirrors the feeding of the soul, opening the tent is akin to opening the heart to God.
+
+Crucially, Sufi authors use Hatim to *problematize* the relationship between pure intention and outward action. While Hatim’s generosity is universally lauded, the question persists—did he act for fame or purely for the sake of the deed? Sufis resolve this in two ways: first, by proposing that sustained generosity, repeated to the extent it was by Hatim, can only issue from a purified heart; and second, by insisting the highest form of giving is that done in obscurity and humility, as the Qur’an recommends.
+
+Hatim’s apotheosis in Sufi circles is thus not as a saint, but as a **threshold figure**, marking the passage from worldly nobility to spiritual elevation, and frequently serving as an entry topic in discourses on the refinement of the lower self (nafs).
+
+---
+
+## Stories in Qisas al-Anbiya (Stories of the Prophets)
+
+The genre of **Qisas al-Anbiya’** (Stories of the Prophets) is devoted primarily to the lives of biblical and Qur’anic prophets, but Islamic authors have at times included Hatim in these works as a foil or comparison. These stories serve a primarily didactic function, demonstrating the underlying moral thread that binds all noble figures, regardless of religious status. Hatim is occasionally invoked alongside pious figures from the “people of the interregnum” (ahl al-fatrah)—those who lived between prophets and whose religious status was ambiguous.
+
+In such narratives, Hatim’s value is less as a historical or theological actor, and more as *exemplar of fitra* (primordial human disposition towards good). Classical compilers, such as al-Tha‘labi, at times mention Hatim to contrast his conduct with that of more spiritually elevated figures, such as Job or Moses, thus reinforcing the message that the baseline of virtue is accessible to all, but perfection follows through prophecy and faith.
+
+Additionally, some stories in later compilations feature *hagiographical* accounts that blend Hatim’s exploits with miraculous elements, showing him as a “prophet of generosity.” While these stories are not considered part of theological dogma, they reinforce the persistence of Hatim’s figure in the collective imagination of Islamic civilization.
+
+---
+
+## Classical Poetry and Proverbs
+
+Hatim al-Tai was himself a poet, and a significant corpus of classical Arabic poetry is attributed to him. His diwan (collected poems) showcases both his mastery of eloquent expression and his commitment to the themes of generosity, hospitality, and noble competitive spirit (mufa’kharah).
+
+His own poetry, occasionally preserved in early anthologies, typically laments the fleeting nature of life and the importance of achieving honor through sacrifice for others. More importantly, however, the subsequent tradition of Arabic poetry and proverbs elevates his memory and extends his metaphorical value. Poets from the Umayyad and Abbasid periods, such as al-Farazdaq and al-Mutanabbi, frequently invoke Hatim as a measure of generosity against which others are compared.
+
+A proverb universally cited throughout the Islamic world is, **“More generous than Hatim.”** In Oman, the Levant, the Arabian Peninsula, and even in South Asia, this phrase is invoked to describe boundless hospitality and openhandedness. This illustrates the enduring social capital attached to his character, which exists independently of religious context but is continually reinforced by Islamic pedagogy.
+
+The embedding of Hatim in poetic and proverbial lore testifies to the capacity of Islamic societies to absorb and Islamize pre-Islamic values, using figures such as Hatim as lemma for the broader project of moral and religious edification.
+
+---
+
+## Evaluations by Early Muslim Scholars
+
+Early Muslim scholars took seriously the task of evaluating pre-Islamic figures in light of Islamic doctrine. In the case of Hatim al-Tai, their assessments are nuanced, uniformly praising his moral virtues while carefully delimiting the boundaries of religious approval.
+
+Imam al-Ghazali, in his famous book *Ihya’ Ulum al-Din*, discusses the importance of generosity and references Hatim in the context of “those who excelled in this virtue.” However, al-Ghazali—echoed by scholars like Ibn Qayyim—insists that true piety (*birr*) must ultimately be oriented to God, and so Hatim’s deeds, while heroic, are ultimately *insufficient* for salvation by Islamic standards if not joined to faith. Even so, al-Ghazali and others praise the *spirit* of Hatim’s generosity and urge Muslims to exceed even his famous benchmark, inspired by the example of the Prophet Muhammad, who is described as “more generous than the wind sent forth,” a phrase reminiscent of the absolute openness attributed to Hatim.
+
+Ibn Taymiyya, another early authority, viewed the stories of Hatim as critical *sites of instruction*—not idle tales, but lessons in the practical acquisition of virtue. Al-Nawawi, while compiling traits of the righteous, asks rhetorically, “If Hatim, lacking the guidance of Islam, attained such heights, what then is expected of the one who knows the truth?”
+
+Islamic jurisprudential works and treatises on *akhlaq* cite Hatim in discussions on the *maqasid* (objectives) of the Sharia: namely, that the law seeks the preservation and expansion of welfare (*maslaha*), of which generosity is a prime instance.
+
+In sum, early and classical scholars constructed a dual-use model for Hatim: he is both a native pre-Islamic exemplar and, following Islam, a challenge and aspiration for Muslims to outdo—even as faith and intention are considered the supreme axes of moral value.
+
+---
+
+## Conclusion
+
+Hatim al-Tai’s reputation as the paragon of generosity, chivalry, and virtue is deeply embedded in the Islamic literary, ethical, and spiritual canon. While his fame is rooted in pre-Islamic Arab tradition, Islamic sources—across hadith, sīrah, tariqh, tafsir, adab, Sufi treatises, proverbs, and poetry—have ontologically “Islamized” Hatim, making him a bridge between natural virtue and revealed ethics.
+
+Islamic sources emphasize that, while Hatim's generosity was unparalleled, the highest virtue is reserved for acts grounded in faith and sincere intention (*niyyah*). Yet, the Prophet’s mention of Hatim, the recurrence of his story in sīrah, the veneration in classical histories, and his status as an ethical model in Sufi literature all underscore that Islam values and integrates the finest strands of human moral striving—wherever they are found—into its own paradigm.
+
+The figure of Hatim al-Tai is therefore both an archetype and a threshold. He is the *yardstick* by which the generosity of others, even the Prophet himself, was measured in popular discourse, and simultaneously the *foil* against which Islamic virtue was explicated, refined, and transcended. His enduring presence in Islamic literature attests to the religion’s dual commitment: to honor inherited virtue and to complete it through the light of revelation.
+
+---
 
 ## 🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧
 
