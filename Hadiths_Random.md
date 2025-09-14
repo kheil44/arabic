@@ -217,6 +217,63 @@ Our beloved Prophet ﷺ
 
 ---
 
+---
+
+---
+
+---
+
+
+---
+
+
+---
+
+---
+
+---
+
+---
+
+---
+
+
+---
+
+---
+
+---
+
+---
+
+
+---
+
+
+---
+
+---
+
+---
+
+---
+
+---
+
+
+## Miracles of Our beloved Prophet ﷺ
+
+### _these will still not believe;_
+
+https://youtu.be/s6P90lMdtGs?list=PLAEA99D24CA2F9A8F&t=245
+
+### the whole episode;
+
+https://www.youtube.com/watch?v=s6P90lMdtGs&list=PLAEA99D24CA2F9A8F&index=85
+
+
+---
+
 ## Marriage, Divorce, Death
 
 ## _The woman whom Prophet Muhammad (peace be upon him) divorced the same night was Fatima bint Duhaq or  Umaymah bint Sharaaheel or etc etc at least six seven names...._
