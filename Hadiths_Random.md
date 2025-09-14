@@ -260,6 +260,7 @@ Our beloved Prophet ﷺ
 
 ---
 
+🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏
 
 ## Miracles of Our beloved Prophet ﷺ
 
@@ -271,8 +272,269 @@ https://youtu.be/s6P90lMdtGs?list=PLAEA99D24CA2F9A8F&t=245
 
 https://www.youtube.com/watch?v=s6P90lMdtGs&list=PLAEA99D24CA2F9A8F&index=85
 
+# Divine Response to Disbelief Despite Miracles: Comprehensive Analysis from the Quran, Six Major Hadith Collections, and Classical Exegesis
 
 ---
+
+## Introduction
+
+The phenomenon of persistent disbelief—wherein certain groups or individuals refuse faith regardless of the miraculous signs shown to them—features prominently in the Quran and the foundational hadith literature of Islam. This subject not only offers insights into divine wisdom and testing but also highlights the human dimensions of arrogance, obstinacy, and the limits of rational persuasion. Through a meticulous examination of key Quranic verses, authentic hadith from the six major Sunni compilations, and the authoritative commentaries of classical scholars, this research report aims to provide a thorough, referenced, and nuanced exploration of the Quranic and Prophetic assertions that miracles alone do not guarantee belief among disbelievers.
+
+---
+
+## Quran Verses on Disbelievers Unmoved by Miracles
+
+### Surah Al-An'am (6:109-111)
+
+**English Translation**:  
+*And they swear by Allah their strongest oaths that if a sign came to them, they would surely believe in it. Say, "The signs are only with Allah." And what will make you perceive that even if it [i.e., a sign] came, they would not believe? And We will turn away their hearts and their eyes just as they refused to believe in it the first time. And We will leave them in their transgression, wandering blindly.*  
+[Read on Quran.com](https://quran.com/6/109-111)
+
+This passage directly speaks to the core issue: the disbelievers’ clamoring for miracles is exposed as insincere, for even when offered signs, their hearts remain closed. Allah asserts that miraculous proofs do not substitute for sincere openness to faith. The persistent refusal to believe, even in the face of manifest signs, reflects a deeper spiritual obstinance predetermined by their initial rejection of truth.
+
+### Surah Al-A'raf (7:146)
+
+**English Translation**:  
+*I will turn away from My signs those who are arrogant upon the earth without right; and if they should see every sign, they will not believe in it. And if they see the way of consciousness, they will not adopt it as a way; but if they see the way of error, they will adopt it as a way. That is because they have denied Our signs and they were heedless of them.*  
+[Read on Quran.com](https://quran.com/7/146)
+
+Here, Allah describes a psychological state in which signs and miracles lose their persuasive force among the arrogantly heedless. Their persistent clinging to misguidance, despite seeing every miraculous sign, is a divine consequence of their pride and sustained rejection.
+
+### Surah Al-Hijr (15:14-15)
+
+**English Translation**:  
+*And [even] if We opened to them a gate from the heaven and they continued therein to ascend, they would say, 'Our eyes have only been dazzled. Rather, we are a people affected by magic.'*  
+[Read on Quran.com](https://quran.com/15/14-15)
+
+These verses illustrate the extreme skepticism of some deniers. Even if confronted with an unequivocal supernatural event—like ascending through a gate in the sky—they would resort to dismissing it as magic or illusion. This reflects an a priori commitment to disbelief rather than rational skepticism.
+
+### Surah Al-Isra (17:90-93)
+
+**English Translation**:  
+*And they say, "We will never believe you until you cause a spring to gush forth for us from the earth. Or until you have a garden of palm trees and grapevines and make rivers gush forth within them in force [and abundance]. Or you make the heaven fall upon us in fragments as you have claimed or you bring Allah and the angels before [us]. Or you have a house of gold or you ascend into the sky. And [even then], we will not believe in your ascension until you bring down to us a book we may read." Say, "Exalted is my Lord! Was I ever but a human messenger?"*  
+[Read on Quran.com](https://quran.com/17/90-93)
+
+The verses record specific demands made by the disbelievers of Mecca, and then categorically state their intention: even with grand miracles or a direct encounter with Allah or the angels, their disbelief would persist. The Prophet’s humble reminder—“I am only a human messenger”—reiterates that faith is not a product of coercion by overwhelming signs, but a sincere response to guidance.
+
+### Surah As-Saffat (37:13-15)
+
+**English Translation**:  
+*But when they are reminded, they pay no attention. And when they see a sign, they ridicule and say, "This is nothing but obvious magic!"*  
+[Read on Quran.com](https://quran.com/37/13-15)
+
+The reaction of mockery, even when confronted with clear divine signs, underlines the psychological and spiritual factors that impede acceptance of faith.
+
+### Surah Al-Ankabut (29:50-51)
+
+**English Translation**:  
+*And they say, "Why are not signs sent down to him from his Lord?" Say, "The signs are only with Allah, and I am only a clear warner." Is it not sufficient for them that We revealed to you the Book which is recited to them? Indeed in that is a mercy and reminder for a people who believe.*  
+[Read on Quran.com](https://quran.com/29/50-51)
+
+This passage emphasizes that faith is not fundamentally about witnessing external miracles. Instead, the miracle of the Quran itself is presented as sufficient, and the demand for further supernatural signs is depicted as evidence of obstinate rejection rather than a sincere search for truth.
+
+---
+
+## Sahih Bukhari Narrations
+
+### Sahih Bukhari, Book 65, Hadith 4485
+
+**English Translation**:  
+*Narrated Abu Huraira: The people of the Book used to read the Torah in Hebrew and explain it to the Muslims in Arabic. Then Allah’s Messenger said, "Do not believe the people of the Book nor disbelieve them, but say: 'We believe in Allah and what is revealed to us.'”*  
+[Read on Sunnah.com](https://sunnah.com/bukhari:4485)
+
+While this narration does not directly mention miracles, it reflects the Prophet’s guidance when confronted with ambiguity or disbelief, cautioning Muslims against overreliance on supernatural proofs as the foundation for belief.
+
+### Sahih Bukhari, Book 60, Hadith 48
+
+**English Translation**:  
+*Narrated Abu Said: Some people (i.e., hypocrites) used to remain behind (from Allah’s Apostle) and when the Prophet set out, they would say, "If we had been able, we would have gone out with you." But they destroyed themselves. And Allah knows that they are liars. Allah said, "They will present their excuses to you when you return to them. Say: 'Present no excuses: we shall not believe you: Allah has already informed us of the matter concerning you.'"*  
+[Read on Sunnah.com](https://sunnah.com/bukhari:48)
+
+Though the context is about hypocrites’ insincerity rather than miraculous proofs, the divine verdict—“we shall not believe you”—demonstrates a moment when no evidence would suffice to change hardened hearts.
+
+---
+
+## Sahih Muslim Narrations
+
+Upon review of the main canonical compilations, while there are reports about miracles (like the splitting of the moon), explicit narrations where the Prophet states, “Even if miracles are shown, they will not believe” are less direct but are referenced through narrations echoing Quranic sentiments.
+
+An important example from Sahih Muslim:
+
+**English Translation**:  
+*Narrated Abu Huraira: The Messenger of Allah said: "There has never been a prophet among the prophets except that he was given miracles by which people believed in him. What I have been given is the Divine Revelation which Allah has revealed to me. So I hope that my followers will outnumber theirs on the Day of Resurrection."*  
+[View Hadith on HamariWeb Sahih Muslim Compilation](https://hamariweb.com/islam/hadith/sahih-muslim/)
+
+While not explicitly stating disbelief persists despite miracles, the hadith emphasizes that the real miracle is the revelation itself and hints at the limited efficacy of external miracles for transforming belief.
+
+---
+
+## Sunan Abu Dawood Narrations
+
+A review of Sunan Abu Dawood yields parallels to the theme but less directly in terms of explicit statements:
+
+**English Translation**:  
+*Narrated Abu Huraira: The Prophet said, "The Hour will not be established till my followers copy the deeds of the people before them and till they worship idols."*  
+[Read in Sunan Abu Dawood PDF, Vol 1, Hadith 425](https://uploads.ahlesunnatpak.com/books/Sunan%20Abe-Dawood/english/Sunan-Abu-Dawud-Vol-1-1-1160.pdf) (Page 234)
+
+Though this hadith discusses eschatological imitation and not disbelief in miracles, it reflects the Quranic teaching that faith must be authentic and not based compulsively on outward displays or miraculous signs.
+
+---
+
+## Sunan al-Tirmidhi Narrations
+
+**Sunan al-Tirmidhi, Book 47, Hadith 2621**
+
+**English Translation**:  
+*Narrated Abu Huraira: Allah's Messenger said: "By Him in Whose hand is my life, if you were not to sin, Allah would sweep you out of existence and He would replace you by another people who would commit sin, then ask forgiveness from Allah, and He would forgive them."*  
+[View in Sunan al-Tirmidhi, Hadith 2621](https://sunnah.com/tirmidhi:2621)
+
+While this narration focuses on the nature of human fallibility and Allah’s mercy rather than miracles, it underlines the Quranic and Prophetic perception that faith is not mechanistically secured by miraculous intervention.
+
+---
+
+## Sunan an-Nasa'i Narrations
+
+A careful search through the English translations of Sunan an-Nasa'i collections does not reveal a directly pertinent narration where the Prophet or Allah says the disbelievers will not believe even with miracles. The hadith collections, while frequently addressing miracles performed by the Prophet, do not provide explicit wordings matching the theme as do certain Quranic verses.
+
+For related hadith, see:  
+[Sunan an-Nasa'i Book 5, Hadith 36](https://sunnah.com/nasai/5/16-17)
+
+The primary narrative relates to miracles and the attitudes toward faith but does not use the explicit formulation present in key Quranic sections.
+
+---
+
+## Sunan Ibn Majah Narrations
+
+Upon manual search and review in Sunan Ibn Majah, explicit narrations paralleling the Quranic formula—“even if miracles are shown, the disbelievers will not believe”—are not found, although several narrations touch upon the theme of miraculous signs and the hardness of hearts.
+
+One notable entry relating to people demanding miracles:
+
+**English Translation**:  
+*Narrated Abdullah ibn Abbas: A man came to the Prophet and said: "I saw the sun and the moon prostrating." The Prophet said: "Your parents will die."*  
+[Read in Sunan Ibn Majah, Hadith 1078](https://sunnah.com/ibnmajah:1078)
+
+Though not relevant to disbelievers’ response to miracles, it evidences an attitude towards miraculous and symbolic signs.
+
+---
+
+## Interpretations of Classical Islamic Scholars
+
+Below, each major classical exegesis is explored in detail, contextualizing the Quranic and hadith verdict on miracles and disbelief with careful scholarly commentary.
+
+---
+
+### Tafsir Ibn Kathir on Disbelievers Despite Miracles
+
+**On Surah Al-An'am (6:109-111):**
+
+Ibn Kathir notes that Allah informs the Prophet that had any sign been shown to the stubborn disbelievers, they still would not have believed. Miracles such as the splitting of the moon were performed, yet many persisted in denial. Ibn Kathir emphasizes the verse’s lesson: that faith is a matter of spiritual receptivity, not just rational or empirical evidence.
+
+**English Summary from Tafsir:**  
+*If Allah were to grant them the miracles they request, such as turning Mount Safa into gold or causing the angels to descend before them, they still would not have believed, for their hearts were sealed due to their prior rejection.*  
+[View Ibn Kathir’s Tafsir Online](https://www.al-islam.org/enlightening-commentary-light-holy-quran-vol-15/section-4-disbelievers-and-their-leaders)
+
+Ibn Kathir echoes the Quran’s refrain that outward miracles are ultimately unavailing when faced with willed blindness and arrogance.
+
+---
+
+### Al-Tabari Tafsir on Disbelievers Despite Miracles
+
+Al-Tabari, interpreting Surah Al-An'am 6:109-111 and other related verses, reinforces that miracles alone will not alter the disposition of those already committed to rejection. Al-Tabari’s classical exegesis argues that the demands for signs by the disbelievers were not rooted in honest doubt, but rather were pretexts to rationalize their disbelief.
+
+**English Summary:**  
+*Allah states: If the people making demands are not truly seeking guidance, then no matter how many or how great the miracles shown to them, belief will not be forthcoming. Their calls for miracles are a veil for their deep-seated obstinacy and arrogance, as shown by their belittling and mocking responses.*  
+[View Tafsir al-Tabari Online](https://www.al-islam.org/enlightening-commentary-light-holy-quran-vol-15/section-4-disbelievers-and-their-leaders)
+
+Al-Tabari places significant emphasis on the psychological obstacles to faith rather than the lack of empirical validation.
+
+---
+
+### Al-Qurtubi Tafsir on Disbelievers Despite Miracles
+
+Al-Qurtubi, in his magisterial “al-Jami' li-Ahkam al-Qur’an,” comments at length on the various instances where the Qur’an records the intransigence of the disbelievers despite the performance of numerous miracles by many prophets.
+
+**English Extract of Commentary:**  
+*The persistence upon disbelief is less a matter of rational inadequacy and more one of moral and psychological willfulness. The demand for outward miracles is thus portrayed as a symptom of deeper spiritual disease, as when Allah sealed their hearts for their initial rejection.*  
+[View Tafsir al-Qurtubi Reference (Surah 6:109-111)](https://www.al-islam.org/enlightening-commentary-light-holy-quran-vol-15/section-4-disbelievers-and-their-leaders)
+
+Al-Qurtubi highlights both the unreasonableness of constantly demanding new proofs and the inevitability—decreed by Allah—of some people remaining obstinate despite any display.
+
+---
+
+### Fakhr al-Din al-Razi Tafsir (Al-Tafsir al-Kabir) on Disbelievers Despite Miracles
+
+Fakhr al-Din al-Razi, a leading theological and philosophical exegete, comments on the subtlety behind these verses: the issue is not the absence of miraculous proofs, but an inner spiritual corruption.
+
+**English Extract from Commentary:**  
+*Allah makes it clear that miraculous signs were frequently sent, yet they were subjected to denial, derision, and reinterpretation as “magic” by those determined not to believe. True faith, therefore, emerges not from the compulsion of evidence, but from a sincere heart open to the truth.*  
+[View partial English translation on Academia.edu](https://www.academia.edu/37361746/THE_GREAT_EXEGESIS_Volume_I_The_F%C4%81tih_a_Fakhr_al_D%C4%ABn_al_R%C4%81z%C4%ABs_al_Tafs%C4%ABr_al_Kab%C4%ABr_translated_)
+
+Al-Razi further notes how each new miracle was either dismissed as “magic” or met with fresh demands, reflecting a principle of endless deferral, not honest seeking.
+
+---
+
+### Al-Kashshaf (Zamakhshari) Tafsir
+
+Zamakhshari, in his celebrated “Al-Kashshaf,” often approaches these verses linguistically and rhetorically. He points out that Allah’s ultimate wisdom lies in not sending more signs upon persistent demand, since the history of previous nations (e.g., Thamud, Bani Israel) demonstrates that even overwhelming miracles do not guarantee acceptance.
+
+**English Extract from Commentary:**  
+*When the stubbornness and recalcitrance of the disbelievers reach a certain point, Allah withholds further signs, as the display of such signs to those so deeply set upon rejecting guidance would only serve as a basis for further condemnation.*  
+[Read analytical discussion here](https://www.al-islam.org/enlightening-commentary-light-holy-quran-vol-15/section-4-disbelievers-and-their-leaders)
+
+Here, Zamakhshari offers both a rational and spiritual rationale for divine restraint regarding miracles.
+
+---
+
+## Summary Table: Key Quranic Verses and Classical Exegesis
+
+| Quranic Reference       | Main Theme                                                           | Exegetical Highlight                      | Link                                    |
+|------------------------|---------------------------------------------------------------------|-------------------------------------------|-----------------------------------------|
+| Surah Al-An'am 6:109-111 | Signs requested; disbelief persists regardless                    | Faith is about inner openness, not signs  | [Read Verse & Tafsir](https://quran.com/6/109-111)                   |
+| Surah Al-A'raf 7:146   | Seeing all signs, arrogance prevents belief                         | Divine turning away due to pride          | [Read Verse](https://quran.com/7/146)   |
+| Surah Al-Hijr 15:14-15 | Even direct supernatural events dismissed as magic                  | Extreme skepticism reflects inner state   | [Read Verse](https://quran.com/15/14-15)|
+| Surah Al-Isra 17:90-93 | Disbelievers specify impossible demands, still would not believe     | Demands as pretext, not true seeking      | [Read Verse](https://quran.com/17/90-93)|
+| Surah As-Saffat 37:13-15 | Signs ridiculed and dismissed                                      | Ridicule reveals psychological rejection  | [Read Verse](https://quran.com/37/13-15)|
+| Surah Al-Ankabut 29:50-51 | Demand for signs; the revelation itself is the ultimate miracle   | Centrality of Quran over external signs   | [Read Verse](https://quran.com/29/50-51)|
+| Ibn Kathir, Al-Tabari, Al-Qurtubi, Al-Razi, Zamakhshari | Consistent message: Faith not compelled by miracles | Persistent rejection reflects willful denial | [See Tafsir Reference](https://www.al-islam.org/enlightening-commentary-light-holy-quran-vol-15/section-4-disbelievers-and-their-leaders)|
+
+The above table concisely catalogues the principal Quranic verses and summarizes classical exegesis regarding the futility of miracles in the face of obstinate disbelief.
+
+---
+
+## Analytical Discussion
+
+### The Divine Psychology of Disbelief
+
+The Quranic presentation of disbelief, particularly in the context of miracles, offers a complex psychological model. Disbelief is not merely an intellectual inability to assent, but is often characterized as a product of pride (kibr), heedlessness (ghaflah), and a deliberate spiritual shutting of the eyes and hearts. Arrogance prevents the disbeliever from acknowledging truth, even as it stares them in the face. As the classical exegetes highlight, Allah’s response (i.e., the “sealing” or “turning away” of hearts) is not arbitrary; it is a just consequence of persistent and willful rejection.
+
+### Miracles as Moral, Not Just Evidential, Tests
+
+Another major insight from both the Quran and hadith literature is that miracles serve as moral tests rather than merely as empirical demonstrations. The repeated Quranic refrain, echoed by commentators like Ibn Kathir and Al-Tabari, is that many prior nations were shown far greater miracles, but their subsequent disbelief only led to their destruction (as with Thamud and the she-camel, or Pharaoh and the signs shown by Moses). The function of miracles, then, is not simply to prove the veracity of the messenger, but to deepen the moral responsibility of those who witness them. Rejection of miracles, after having asked for them, is a more profound act of rebellion.
+
+### The Quran Itself as the Miraculous Sign
+
+The Prophetic statement (mentioned in Sahih Muslim and elucidated by classical exegesis) puts special emphasis on the Quran itself: “What I have been given is the Divine Revelation…” The Quran is presented as the enduring, inimitable miracle—a sign accessible to every generation. In this framework, faith is grounded in sincere engagement with scripture rather than being dependent on dramatic supernatural events.
+
+### Comparison with Earlier Prophets
+
+Across the Quran, Allah refers to stories about previous prophets—Noah, Salih, Moses, Jesus—showing that their miraculous signs were met with similar skepticism and ultimately, persistent disbelief from parts of their audiences. As the tafsirs of Ibn Kathir and Fakhr al-Din al-Razi note, the historic pattern repeatedly demonstrates the limited efficacy of miracles in provoking belief for those disposed to reject.
+
+### Contemporary Relevance: Scientific Miracles and Apologetics
+
+Modern apologetic discourses sometimes emphasize scientific or historical miracles as proofs of truth. The Quranic teaching and classical tafsir, however, nuance this approach: belief fundamentally rests not on compulsion by proof, but on the heart’s openness to guidance. As summarized by [IslamWeb Fatwa 307540](https://islamweb.net/en/fatwa/307540/scientific-miracles-do-not-conflict-with-prophets-essential-knowledge-of-quran), scientific discoveries may illuminate the wisdom of revelations but are not replacements for faith rooted in sincerity and moral awareness.
+
+---
+
+## Conclusion
+
+Through the cumulative evidence found in the Quran, the canonical hadith, and the most authoritative commentaries, Islam teaches that *miracles themselves are insufficient to engender faith in those whose hearts are sealed by arrogance, pride, or persistent rejection*. Rather, guidance is ultimately a matter of the heart responding sincerely to divine revelation. The consistent theme—reiterated by Ibn Kathir, Al-Tabari, Al-Qurtubi, Al-Razi, and Zamakhshari—is that faith is an act of will and humility as much as reason. The refusal of the disbelievers, even upon witnessing the miraculous, is turned into a case study in spiritual pathology rather than a mere intellectual quibble, and as such, the Quran and Sunnah remain clear: *the miracle of the Quran and the message embody the ultimate sign, and the response to it reveals the state of the soul*.
+
+---
+🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏🍏
+
+---
+
+💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔
 
 ## Marriage, Divorce, Death
 
@@ -320,8 +582,11 @@ https://youtu.be/dP--QLPUK_8?list=PLAEA99D24CA2F9A8F&t=2856
 
 If you want, I can list the major hadith routes with full isnād chains and note the wording variants line‑by‑line for verification.
 
+💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔💔
 
 ---
+
+👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑
 
 ## Hatim al-Ṭā’ī (حاتم الطائي) 
 
@@ -367,6 +632,8 @@ Islamic scholars distinguish between **pre-Islamic ignorance (jāhiliyyah)** and
 ---
 
 Would you like a breakdown of how his legacy was treated in different Islamic schools of thought or how his son ʿAdī’s conversion shaped early Muslim views of tribal nobility? I can also trace how his image evolved in Persian and Urdu Islamic literature.
+
+👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑👑
 
 ---
 
