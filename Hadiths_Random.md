@@ -331,6 +331,8 @@ Would you like me to extract the Arabic originals with full diacritics and sourc
 
 ### Our beloved Prophet ﷺ got angry at them...and he ﷺ said what Allah wanted him ﷺ to say said Maaz.... this is Maaz hadith.
 
+#### _Maaz didnt want to narrate this harsh phrases....._
+
 https://youtu.be/UL66Hz1zCHE?list=PLAEA99D24CA2F9A8F&t=860
 
 ---
