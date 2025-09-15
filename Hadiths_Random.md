@@ -327,6 +327,10 @@ Would you like me to extract the Arabic originals with full diacritics and sourc
 
 ---
 
+## Momen's Iman; in itself to have inclamation does not mean lack of faith..... Our beloved Prophet ﷺ said ...when momen reminded he remmbers 
+
+https://youtu.be/3gb3ES-rEFQ?list=PLAEA99D24CA2F9A8F&t=1321
+
 ---
 
 Al-Ḥāfiẓ Ibn Ḥajar al-ʿAsqalānī (d. 852 AH / 1449 CE) was one of the most towering scholars in Islamic history—especially in the science of ḥadīth. His full name was **Abū al-Faḍl Shihāb al-Dīn Aḥmad ibn ʿAlī ibn Muḥammad ibn Ḥajar al-ʿAsqalānī al-Kinānī ash-Shāfiʿī**.
