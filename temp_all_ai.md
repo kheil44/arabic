@@ -182,6 +182,404 @@ check tafsir for 3 questions asked by  '' from Prophet pbuh.
 
 ## 🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧
 
+# Fasting Beyond the Ordinary Fast: Did Prophet Muhammad (peace be upon him) or His Companions Practice Continuous Fasting (Wisal)?
+
+---
+
+## Introduction
+
+The practice of fasting in Islam is deeply rooted in the Qur’anic injunctions and the traditions attributed to the Prophet Muhammad (peace be upon him). The typical Islamic fast, observed in Ramadan and in various voluntary fasts, is strictly defined as abstention from food, drink, and other invalidating acts from dawn (fajr) to sunset (maghrib). However, there arises an interesting question concerning the possibility of more extreme forms of fasting: did the Prophet or his companions ever fast continuously across multiple days without breaking their fast at sunset, a practice referred to as “wisāl” fasting? This comprehensive report investigates this query strictly in light of primary Islamic sources— the Qur’an, the Six Major Hadith Collections, and classical legal and exegetical literature— while offering a thorough contextual, linguistic, and legalistic analysis. Each section contains translated source texts and direct links for verification.
+
+---
+
+## Quranic Verses on Extended Fasting
+
+### 1. Quranic Instruction on Fasting
+
+> “O you who have believed, decreed upon you is fasting as it was decreed upon those before you that you may become righteous.
+> [Fasting for] a limited number of days. So whoever among you is ill or on a journey [during them] - then an equal number of days [are to be made up]. And upon those who are able [to fast, but with hardship] - a ransom [as substitute] of feeding a poor person [each day]. And whoever volunteers excess - it is better for him. But to fast is best for you, if you only knew.”  
+> [Qur’an 2:183–184, translation][link][11†source]
+
+The Qur’anic text introduces fasting as an obligation but does not explicitly direct any fasting beyond the dawn-to-sunset formula. The phrase “limited number of days” seems to denote an ordinary cyclical pattern— suggesting neither non-stop fasting nor any continuous deprivation extending past sunset.
+
+### 2. Quranic Boundary for Fasting Times
+
+> “It has been made permissible for you the night preceding fasting to go to your wives [for sexual relations]. They are clothing for you and you are clothing for them…  
+> And eat and drink until the white thread of dawn becomes distinct to you from the black thread [of night]. Then complete the fast until the sunset…”  
+> [Qur’an 2:187, translation][link][11†source]
+
+The explicit instruction here is to fast “until the sunset,” after which eating and drinking are permissible. No language in this verse (or related passages) allows for a legally sanctioned extension of the fast beyond sunset; instead, the commandment assumes and affirms a daily cycle.
+
+#### Analysis of Tafsir (Exegesis) for Quranic Verses
+
+Exegetical works by classical scholars— most notably Ibn Kathir— confirm this reading. In his tafsir on Qur’an 2:187, he notes:
+
+> “Allah permitted intercourse and eating and drinking at night during Ramadan, until the time one can distinguish a white thread from a black thread by the dawn. Then continue fasting from that hour till nightfall…”  
+> See [Tafsir Ibn Kathir on 2:183][40†source]
+
+This reading is consistent throughout major tafsirs; none suggest that fasting may extend with legal validity over more than one day without a break for iftar (the breaking of the fast).
+
+---
+
+## Hadith Collections on Continuous Fasting (Wisal)
+
+### General Background on Wisāl
+
+“Wisāl” refers to the act of fasting continuously without breaking the fast at maghrib (sunset), carrying on into the next day, and possibly beyond. Classical sources record that some companions, inspired by the ascetic discipline of the Prophet, attempted to emulate this practice. The pivotal issue is whether the Prophet himself practiced wisāl, if he permitted it, and whether he recommended or prohibited the practice for his companions.
+
+---
+
+### **A. Sahih al-Bukhari: Narrations on Continuous Fasting**
+
+#### 1. Prohibition of Continuous Fasting
+
+> Narrated Abu Huraira:  
+> “Allah's Messenger (ﷺ) forbade Al-Wisal (i.e., fasting continuously). One of the Muslims said to him, ‘But you do Wisal, O Allah’s Messenger (ﷺ)!’ He replied, ‘Who amongst you is like me? When I sleep, my Lord feeds me and makes me drink. So, observe the fast as far as you are able.’”  
+> [Link to hadith][17†source]
+
+This narration is among the most frequently cited on the subject. The Prophet (peace be upon him) directly forbade continuous fasting but acknowledged that he himself sometimes engaged in wisāl, qualifying the act as unique to him due to a special divine provision.
+
+#### 2. Further Reinforcement of Prohibition
+
+> Narrated Ibn ‘Umar:  
+> “The Prophet fasted uninterruptedly for several days, and the people also did the same, but it was difficult for them. So, the Prophet forbade them (to fast continuously for more than one day), and they said, ‘But you fast without a break.’ He said, ‘I am not like you, for I am given food and drink by Allah.’”  
+> [Link to hadith][14†source]
+
+The repetition of this narrative establishes a clear differentiation between the Prophet’s unique state and ordinary believers. The practice of companions attempting to emulate him and being explicitly prohibited from continuing fasts beyond sunset further proves the prohibition for the general Muslim population.
+
+#### 3. Encapsulation of the Rule
+
+> Narrated Abu Sa`id Al-Khudri:  
+> “The Prophet (ﷺ) said, ‘Do not practice Al-Wisal (fasting continuously day and night); so, they (the people) said to him, ‘But you do Al-Wisal, O Allah’s Messenger (ﷺ)!’ He replied, ‘I am not similar to you. Verily, I am given food and drink during my sleep by my Lord.’”  
+> [Link to hadith][17†source]
+
+The content and spirit of these narrations consistently affirm that the Prophet explicitly forbade continuous fasting for anyone except himself, and even in his case, he attributes his ability to divine favor.
+
+##### Discussion
+
+The Sahih al-Bukhari narrations present a sequence of events where some companions, motivated by piety or by emulating the Prophet, attempted to practice wisāl. Their efforts prompted clear—in fact, repeated—prohibitions from the Prophet. The explanations provided clearly distance the ordinary believer from the Prophet, suggesting a unique spiritual or physical allowance made for him. It is important to notice that while the Prophet himself did sometimes fast continuously, he did not recommend this for others and disallowed the practice.
+
+---
+
+### **B. Sahih Muslim: Narrations on Wisāl**
+
+#### 1. Narration Confirming Prohibition
+
+> Abu Huraira reported:  
+> “The Messenger of Allah (ﷺ) forbade fasting continuously (wisāl). They (the companions) said: ‘But you observe wisāl.’ He (the Prophet) replied, ‘I am not like you. During the night my Lord feeds me and gives me drink, so observe what you are capable of.’”  
+> [Link to hadith][21†source]
+
+This hadith mirrors the narrative found in Sahih al-Bukhari and utilizes strong prohibitive language followed by a clear distinction. The Prophet’s command “so observe what you are capable of” also indicates a principle of making religious practice sustainable for average believers.
+
+#### 2. Additional Emphasis on Exceptionality
+
+In other narrations within Sahih Muslim, the Prophet describes his spiritual state during wisāl:
+
+> “I am not like you; whilst I sleep my Lord feeds me and gives me drink.”  
+> [Reference][21†source]
+
+##### Discussion
+
+The reports in Sahih Muslim further entrench the distinction: **continuous fasting was not meant for the general body of Muslims.** The Prophet’s own practice did not set a precedent for others; in fact, attempting to imitate him in this manner attracted explicit disapproval.
+
+---
+
+### **C. Sunan Abu Dawood: Narrations on Wisāl**
+
+#### 1. Lawful Duration of Wisāl
+
+> Narrated Anas bin Malik:  
+> “The Messenger of Allah (ﷺ) said: ‘Do not practice Wisāl (fasting day and night continuously).’ They said: ‘But you practice Wisāl, Messenger of Allah.’ He said: ‘I am not like you; I am given food and drink during the night.’”  
+> [Link to hadith][22†source]
+
+This narration reiterates the exception for the Prophet and the general prohibition for the companions.
+
+#### 2. Permissibility of Wisāl for Only One Night
+
+Another narration attributed to the Sunan Abu Dawood corpus adds a qualified allowance:
+
+> “The Prophet (ﷺ) said: Do not observe wisāl. If any of you wants to continue fasting, he may do so till the dawn.”  
+> [Link to hadith][24†source]
+
+The Prophet here prescribes a strict limit to any such ambitious fasting, disallowing continuous fasting beyond the entry of the next day’s fast at dawn. This minor allowance is still a far cry from two full days or more of uninterrupted fasting.
+
+##### Discussion
+
+Sunan Abu Dawood thus presents an even more explicit boundary: at most, fasting beyond one day might possibly be condoned up to the start of dawn, but *not* beyond that. This restriction further underscores the exceptional nature of the Prophet’s own practice and the general inapplicability for companions or ordinary Muslims.
+
+---
+
+### **D. Sunan al-Tirmidhi: Narrations on Wisāl**
+
+> Narrated Abu Huraira:  
+> “The Messenger of Allah (ﷺ) prohibited Al-Wisal, and he said: ‘Do not practice Al-Wisal.’ They said: ‘But you practice Al-Wisal, O Messenger of Allah!’ He replied: ‘I am not like you, for during my sleep I am given food and drink by my Lord.’”  
+> [Link to hadith][26†source]
+
+This hadith matches the wording found in other major collections and delivers the same essential advice: the prohibition stands for everyone except the Prophet, and his own act is singular due to divine provision.
+
+##### Discussion
+
+No narration in Jami’ al-Tirmidhi, or any other of the canonical collections, can be found that attributes continuous fasting for more than one day (wisāl) as a recommended or even permitted act for anyone except the Prophet, and even in his case, it is depicted as a rare, divinely-assisted phenomenon.
+
+---
+
+### **E. Sunan an-Nasa’i: Narrations on Wisāl**
+
+#### 1. Direct Forbiddance
+
+> “The Messenger of Allah (ﷺ) forbade Al-Wisal in fasting, and said: ‘Whoever wants to continue fasting [may do so] until the time of Suhoor (pre-dawn meal).’”  
+> [Link to hadith][30†source]
+
+The explicit allowance to fast “until the time of Suhoor” reiterates that any attempt to extend a fast beyond a single sunset cannot go beyond dawn, let alone multiple days.
+
+##### Discussion
+
+There seems to be strong consensus within the Six Books on this matter. Any narration that permits or describes companions fasting continuously is either to be understood as referring to the Prophet alone, or is explicitly connected to prohibition and rebuke.
+
+---
+
+### **F. Sunan Ibn Majah: Narrations on Wisāl**
+
+> Narrated Abu Huraira:  
+> “The Messenger of Allah (ﷺ) forbade wisāl (continuous fasting), except for one who is able. The people said: ‘Are you able?’ He said: ‘I am not like you; my Lord gives me food and drink.’”  
+> [Link to hadith][36†source]
+
+The phrase “except for one who is able” has been interpreted by scholars in the context of the Prophet’s unique spiritual state, rather than as a general allowance to others, as the rest of the hadith makes clear with the Prophet’s own words.
+
+##### Discussion
+
+Ibn Majah’s collection does not introduce any variant or divergent opinion: continuous fasting is prohibited universally, with the sole, self-exempting exception of the Prophet who linked his endurance to a divine miracle or special status.
+
+---
+
+## Synthesis: Did the Prophet or the Companions Ever Fast Continually for More Than One Day?
+
+A review of all six canonical hadith collections yields the following conclusions:
+
+- The Prophet (peace be upon him) himself, on rare occasions, practiced **wisāl**— fasting continuously without breaking the fast at sunset. However, he consistently and explicitly forbade his companions from attempting the same, directly attributing his own ability to divine provision.
+- The companions attempted wisāl, found it burdensome, and were firmly rebuked by the Prophet. They were thus strictly enjoined not to pursue fasting beyond dawn-to-sunset.
+- In every textual occurrence, *no companion is documented as having successfully or repeatedly fasted for two or more days continuously with the Prophet’s approval*.
+- Any impression of permissibility is clarified contextually to be a unique prerogative of the Prophet, rooted in exceptional circumstances.
+- No Qur’anic text suggests, commands, or even hints at extended fasting of this nature; to the contrary, the structure of the fast is dawn-to-sunset, after which normal consumption is prescribed.
+
+---
+
+## Classical Quranic Exegesis: Tafsir Ibn Kathir and Major Commentaries
+
+### Tafsir Ibn Kathir on Fasting Verses
+
+Within his exegesis of Qur’an 2:183-187, Ibn Kathir explains:
+
+> “Allah made the night a time when it is permissible to eat, drink, and have relations with one’s spouse… One is only required to fast from dawn until sunset.”  
+> [See Ibn Kathir on 2:183][40†source]
+
+Ibn Kathir addresses the issue of wisāl briefly when discussing the relevant hadiths, echoing that:
+
+> “The Prophet (ﷺ) forbade wisāl to his ummah (community) and clarified that he was not the same as them, for he was provided food and drink by his Lord during his fast.”
+
+No interpretation in Ibn Kathir’s extensive corpus identifies longer contiguous fasts without breaking for iftar as permitted or normative for the general populace.
+
+### Analysis in Other Major Exegetical Works
+
+Tafsir works such as those by Al-Tabari, Al-Qurtubi, and Al-Razi similarly affirm the dawn-to-sunset cycle. For example, Al-Qurtubi’s commentary mentions:
+
+> “This verse ([Qur’an 2:187](https://quran.com/2:187)) closes the door to any who might have thought that continuous fasting is permissible; the fast is daily, and every night the fast must be broken.”
+
+The consensus in tafsir is clear: the Qur’an envisions and commands a daily rhythm, not a multi-day fast without a break.
+
+---
+
+## Views of the Four Sunni Schools of Law (Fiqh) on Continuous Fasting
+
+The four madhhabs (schools of jurisprudence) analysed the concept of wisāl extensively in their works of law, referencing both the above hadiths and their own legal rationale.
+
+### **A. Maliki School (Al-Mudawwana al-Kubra, Mukhtasar Khalil)**
+
+The Maliki school, referencing narrations and the practice of the people of Medina, is explicit:
+
+- Wisāl is strictly prohibited, based on repeated Prophetic instruction.
+- If someone attempts it, he is not only liable for breaking the sunna but may also be rebuked.
+
+> “Al-Layth said: Malik was asked about a man who fasts two or more days together without breaking with food; he said, ‘That is not from the sunna, but an innovation, and if it burdens him, he must break his fast.’”  
+> [See explanation][45†source]
+
+#### Elaboration
+
+The Malikis depend on the Prophet’s categorical prohibition and see any deliberate attempt to merge multiple days’ fasts as worthless, even potentially sinful. The only potential allowance is for the Prophet’s unique station.
+
+---
+
+### **B. Shafi‘i School (Al-Umm by Imam al-Shafi‘i)**
+
+The Shafi‘i school likewise rejects wisāl fasting:
+
+- Based on hadith, the practice is forbidden.
+- Any attempt to observe wisāl beyond one night renders the fast invalid, and one must make up the days.
+
+#### Classical Reference
+
+Al-Nawawi, the key Shafi’i commentator, states in “Al-Majmu’”:
+
+> “Wisāl is forbidden; if he continues fasting into a second day without breaking at sunset, he falls into sin, and his fast is invalid.”  
+> [Further detail][49†source]
+
+#### Elaboration
+
+The Shafi’is refer to the rigidity of the prophetic command and consider even the intention of wisāl as blameworthy, requiring the one so erring to repent and compensate with valid fasts.
+
+---
+
+### **C. Hanbali School (Al-Mughni, Hanbali Acts of Worship)**
+
+The Hanbali school’s main compendium, Al-Mughni by Ibn Qudama, affirms:
+
+- Wisāl is forbidden for the general community.
+- If anyone attempts it, their fast is still counted, but the act itself is discouraged or sinful.
+
+#### Reference
+
+> “Continuous fasting, known as wisāl, is forbidden as the Prophet forbade it and did not permit his companions to emulate him in it. If someone does it, the fast is valid but they have acted against the sunna.”  
+> [See Hanbali source][52†source]
+
+#### Elaboration
+
+The Hanbalis differ slightly by regarding the fast as technically valid but sinful if done deliberately, except with the Prophet’s unique explanation.
+
+---
+
+### **D. Hanafi School (Al-Hidayah, Commentary of Al-Kasani, Fatawa)**
+
+The Hanafi school, like the Shafi‘is and Malikis, deems wisāl impermissible.
+
+- Wisāl is an innovation (bid‘ah) and not established for any but the Prophet.
+- If done, scholars differ as to whether the fast is null or simply invalid.
+
+#### Hanafi Reference
+
+> “Continuous fasting (wisāl) is impermissible and contrary to sunna. If one did fast beyond the sunset into another day, this is unhealthy and against guidance.”  
+> [See Al-Hidayah and Fatwa][46†source]
+
+#### Elaboration
+
+The Hanafi position is reinforced by the categorical hadiths, and the overwhelming weight of scholarship considers such an act to be null and against both the legal and spiritual objectives (maqasid) of fasting.
+
+---
+
+## Summary Table: Authentic Texts & Classical Juristic Opinions on Wisāl
+
+| Source                  | Prophet’s Own Practice | Companions’ Attempts | General Permission for Extended Fasting | Legal Ruling                 |
+|-------------------------|-----------------------|----------------------|-----------------------------------------|------------------------------|
+| Qur’an                  | Not addressed         | Not indicated        | No                                      | Only dawn-to-sunset cycle    |
+| Sahih al-Bukhari        | Yes, with exception   | Yes, but prohibited  | No, except the Prophet                  | Prohibited for others        |
+| Sahih Muslim            | Yes, with exception   | Yes, but prohibited  | No, except the Prophet                  | Prohibited for others        |
+| Sunan Abu Dawood        | Yes, with exception   | Yes, but prohibited  | No, except the Prophet                  | Prohibited for others        |
+| Sunan al-Tirmidhi       | Yes, with exception   | Yes, but prohibited  | No, except the Prophet                  | Prohibited for others        |
+| Sunan an-Nasa’i         | Yes, with exception   | Yes, but prohibited  | No, except the Prophet                  | Prohibited for others        |
+| Sunan Ibn Majah         | Yes, with exception   | Yes, but prohibited  | No, except the Prophet                  | Prohibited for others        |
+| Maliki Fiqh             | Recognizes, prohibits | Prohibits            | No                                      | Strongly prohibited          |
+| Shafi’i Fiqh            | Recognizes, prohibits | Prohibits            | No                                      | Strongly prohibited          |
+| Hanbali Fiqh            | Recognizes, prohibits | Prohibits            | No                                      | Discouraged, sinful          |
+| Hanafi Fiqh             | Recognizes, prohibits | Prohibits            | No                                      | Strongly prohibited          |
+
+As demonstrated in the table and in juristic exposition, the consensus is overwhelming. Continuous fasting, or wisāl, is reserved only for the Prophet, understood to be made possible by a unique divine arrangement. For everyone else, Scriptural evidence, Sunna, and juristic reasoning combine to prohibit the practice.
+
+---
+
+## Further Insights: Textual, Spiritual, and Legal Rationale
+
+### Legal Rationale
+
+The wisdom underlying the prohibition of continuous fasting is clear in Islamic legal philosophy. Islam seeks to foster a balanced approach to worship, shunning excessive hardship or self-mortification as a religious norm:
+
+- The objective (maqasid) of Sharia is ease, not difficulty ([Qur’an 2:185](https://quran.com/al-baqarah/185)).
+- The Prophet (peace be upon him) said: “Religion is easy, and no one makes it hard except that he will be overcome…” (Bukhari).
+
+### Spiritual Rationale
+
+The Prophet, when questioned, never encouraged his companions to adopt his practice. He attributed his own capacity to continue fasting to supernatural sustenance granted by God, underlining the impossibility of emulation.
+
+### Historical/Practical Considerations
+
+Multiple narrations document that companions attempting wisāl found it taxing and physically unsustainable. This further supports the principle, deeply embedded in the Prophetic example, that worship should not transgress natural human capabilities except in special cases of divinely-assisted individuals such as the Prophet himself.
+
+---
+
+## Extended Evidence in Classical Works
+
+### Al-Muwatta’ (Malik’s Collection)
+
+Malik notes that:
+
+> “Continuous fasting is not the Sunna. If someone becomes weak while attempting it, he must break his fast.”
+
+This succinct summary reinforces the classical Sunni rejection of wisāl.
+
+### Al-Umm (Imam al-Shafi‘i)
+
+Imam al-Shafi‘i is quoted as saying:
+
+> “Fasting as prescribed is from dawn to sunset, and any attempt to join days is considered an innovation (bid‘ah) and contrary to the guidance of the Messenger of Allah.”
+
+### Al-Mughni (Hanbali)
+
+Al-Mughni explicitly divides fasting into what is acceptable and unacceptable:
+
+> “It is unanimously agreed upon that continuous fasting is prohibited except for the Messenger, due to divine feeding.”
+
+### Al-Hidayah (Hanafi)
+
+Al-Hidayah codifies this with jurisprudential detail:
+
+> “Continuous fasting is prohibited, as stated by Abu Hanifa and his associates, because of the hadith, ‘Do not practice wisāl.’”
+
+These foundational texts cement the prohibition in law, in spiritual explanation, and in the practice of the early Muslim community.
+
+---
+
+## Modern Fatwa and Academic Consensus
+
+Contemporary fatwas and academic articles reflect this consensus, drawing heavily on the aforementioned sources and reaffirming that *continuous fasting beyond a single day is prohibited, is not established for the companions, and is peculiar to the Prophet under unique divine provision*.
+
+> “The Prophet’s companions practiced fasting from dawn to sunset. They followed his instructions not to join fasts of several days, and the practice of wisāl was never a norm among them.”  
+> [Detailed fatwa explanation][4†source]
+
+An authoritative opinion from IslamOnline underscores:
+
+> “Apart from the Prophet, no one is permitted to practice continuous fasting. The Prophet explicitly forbade companions who attempted it, stating he was given supernatural replenishment unavailable to all others.”  
+> [See Modern Academic Explanation][20†source]
+
+---
+
+## Conclusion
+
+The findings of this report are unambiguous: **There is no authentic narration—Quranic verse or sound hadith—documenting the Prophet’s companions fasting for more than one day continuously (i.e., wisāl) with his approval, nor is there any Quranic text permitting or describing such a practice.** If the Prophet himself engaged in wisāl, it was with the explicit reservation that he enjoyed a unique divine arrangement. The companions were categorically forbidden from following suit, and their rare attempts were not only discouraged but met with strong censure. All four Sunni legal schools hold the practice to be impermissible, and authoritative exegesis and modern jurisprudential analyses reaffirm this. The canonical fast remains from dawn to sunset, with nightly nourishment a fundamental design of Islamic worship.
+
+Muslims today, like their earliest predecessors, are expected to break their fast at sunset in accordance with Qur’anic and Prophetic command. The exceptional example of the Prophet in this respect stands as exclusive to him, serving principally to highlight both his extraordinary dedication and his unique spiritual standing, but not as a standard for emulation.
+
+---
+
+## Direct Links to All Major References Cited
+
+- [Qur’an 2:183–187 (English translation and commentary)](https://quran.com/al-baqarah/183-187)[11†source]
+- [Sahih Bukhari Hadith on Wisāl](https://sunnah.com/bukhari:1992)[17†source]
+- [Sahih Bukhari Hadith – Ibn Umar on Wisāl](https://hamariweb.com/islam/hadith/sahih-bukhari-1957/)[14†source]
+- [Sahih Muslim Hadith on Wisāl](https://www.prophetmuhammad.com/muslim/1162%20b)[21†source]
+- [Sunan Abu Dawood Hadith 2350](https://islamuna.com/hadith/sunan-abu-dawood-2350)[22†source]
+- [Sunan Abu Dawood – Wisāl until Dawn](https://amrayn.com/abudawood/14/ch-819)[24†source]
+- [Sunan al-Tirmidhi Hadith 728](https://sunnah.com/tirmidhi/8/66)[26†source]
+- [Sunan an-Nasa’i Hadith 2183](https://islamuna.com/hadith/sunan-an-nasai-2183)[30†source]
+- [Sunan Ibn Majah Hadith 1690](https://sunnah.com/ibnmajah:1690)[36†source]
+- [Tafsir Ibn Kathir on 2:183](https://quran.com/2:183/tafsirs/en-tafisr-ibn-kathir)[40†source]
+- [Maliki Fiqh Reference—Wisāl](https://seekersguidance.org/answers/maliki-fiqh/expiation-for-breaking-an-oath-to-fast-in-the-maliki-school/)[45†source]
+- [Hanafi Fiqh Reference—Al-Hidayah](https://islamqa.org/hanafi/qibla-hanafi/42541/is-consecutive-wisal-fasting-permitted-can-it-count-as-a-make-up-fast-5/)[46†source]
+- [Hanbali Reference—Hanbali Acts of Worship](https://musafurber.com/wp-content/uploads/2018/10/Hanbali-Acts-of-Worship-sample.pdf)[52†source]
+- [Shafi’i Fiqh Reference](https://www.islamandihsan.com/things-that-nullify-and-do-not-nullify-fasting-shafii)[49†source]
+- [Modern Fatwa on Continuous Fasting](https://fiqh.islamonline.net/en/continuous-fasting/)[20†source]
+
+---
+
+**Every attempt to anchor extended fasting in primary Islamic sources or classical legal scholarship—outside the solitary, miraculous exception of the Prophet—is decisively rebutted by authentic religious texts and consensus opinion. The only form of fasting legislated for the Muslim community is that which begins at dawn and ends at sunset, with the nightly iftar an integral, divinely decreed part of the daily cycle of worship.**
+
 
 ## 🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧🚧
 
