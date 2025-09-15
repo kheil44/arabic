@@ -323,6 +323,86 @@ Would you like me to extract the Arabic originals with full diacritics and sourc
 
 ---
 
+## procrastination (التسويف)
+
+https://youtu.be/mDqtRYJx3aE?list=PLAEA99D24CA2F9A8F&t=1384
+
+breif and quick Ai;
+
+Here’s a structured reference on **procrastination (التسويف)** in Islam, drawn from authentic sources: the Qur’an, Hadith, and classical scholars. I’ve included the **original Arabic**, followed by **accurate translations**, and cited each source clearly.
+
+---
+
+## 📖 **Qur’anic Verses on Urgency vs Delay**
+
+### 1. **Surah Āl ʿImrān 3:133**
+> **وَسَارِعُوا إِلَىٰ مَغْفِرَةٍ مِّن رَّبِّكُمْ**  
+> *“And hasten to forgiveness from your Lord…”*
+
+- This verse commands **urgency in seeking forgiveness**, not delay.
+- Procrastination in repentance is implicitly condemned.
+
+---
+
+### 2. **Surah al-Muʾminūn 23:99–100**
+> **رَبِّ ٱرْجِعُونِ لَعَلِّيٓ أَعْمَلُ صَـٰلِحًۭا فِيمَا تَرَكْتُ ۚ كَلَّآ ۚ إِنَّهَا كَلِمَةٌ هُوَ قَآئِلُهَا**  
+> *“My Lord, send me back so I may do righteous deeds in what I left behind.” — No! It is but a word he is saying...*
+
+- A stark warning against delaying good deeds.
+- Once death arrives, regret cannot reverse procrastination.
+
+---
+
+## 🕋 **Prophetic Hadith on Procrastination**
+
+### 1. **Prophet ﷺ to Abū Dharr** — *Bihār al-Anwār 77/75*
+> **يَا أَبَا ذَرٍّ، إِيَّاكَ وَالتَّسْوِيفَ بِأَمَلِكَ، فَإِنَّكَ بِيَوْمِكَ وَلَسْتَ بِمَا بَعْدَهُ**  
+> *“O Abu Dharr, beware of procrastinating with your hopes. You have today, not tomorrow.”*
+
+- Emphasizes living in the present and acting without delay.
+- A direct rebuke of wishful thinking and postponement.
+
+---
+
+### 2. **Duʿāʾ of the Prophet ﷺ** — *Ṣaḥīḥ Muslim*
+> **اللَّهُمَّ إِنِّي أَعُوذُ بِكَ مِنَ الْعَجْزِ وَالْكَسَلِ**  
+> *“O Allah, I seek refuge in You from helplessness and laziness.”*
+
+- Laziness is spiritually dangerous and linked to procrastination.
+- The Prophet actively sought protection from it.
+
+---
+
+## 🧠 **Sayings of Classical Scholars**
+
+### 1. **Imām ʿAlī (عليه السلام)** — *Bihār al-Anwār 73/75*
+> **فَتَدَارَكْ مَا بَقِيَ مِنْ عُمُرِكَ، وَلَا تَقُلْ: غَدًا وَبَعْدَ غَدٍ**  
+> *“Seize what remains of your life, and do not say: tomorrow or the day after.”*
+
+- Warns against delay in reform and action.
+- Links procrastination to spiritual ruin.
+
+---
+
+### 2. **Imām al-Bāqir (عليه السلام)** — *Bihār al-Anwār 78/164*
+> **إِيَّاكَ وَالتَّسْوِيفَ، فَإِنَّهُ بَحْرٌ يَغْرَقُ فِيهِ الْهَالِكُونَ**  
+> *“Beware of procrastination—it is a sea in which the doomed drown.”*
+
+- A vivid metaphor: procrastination as a drowning trap.
+- Used to describe spiritual and moral failure.
+
+---
+
+### 3. **Imām al-Ṣādiq (عليه السلام)** — *Bihār al-Anwār 73/365*
+> **تَأْخِيرُ التَّوْبَةِ اغْتِرَارٌ، وَطُولُ التَّسْوِيفِ حَيْرَةٌ**  
+> *“Delaying repentance is self-deception; prolonged procrastination is confusion.”*
+
+- Links delay to delusion and spiritual disorientation.
+
+---
+
+Would you like a Markdown matrix comparing these sources by theme (repentance, action, time-awareness)? Or a visual timeline showing how early scholars treated procrastination across centuries? I can build either for instant reference.
+
 ---
 
 ## Spring  of Tabuq
