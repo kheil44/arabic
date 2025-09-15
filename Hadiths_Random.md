@@ -325,6 +325,14 @@ Would you like me to extract the Arabic originals with full diacritics and sourc
 
 ---
 
+## Spring  of Tabuq
+
+### _... make usre you dont touch the water , untill i get there...Sabahs were tired and thirsty....two men proceeded them and when asked if they touch the water ..they said Yes._
+
+### Our beloved Prophet ﷺ got angry at them...and he ﷺ said what Allah wanted him ﷺ to say said Maaz.... this is Maaz hadith.
+
+https://youtu.be/UL66Hz1zCHE?list=PLAEA99D24CA2F9A8F&t=860
+
 ---
 
 ## Momen's Iman; in itself to have inclamation does not mean lack of faith..... Our beloved Prophet ﷺ said ...when momen reminded he remmbers 
