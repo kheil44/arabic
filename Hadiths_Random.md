@@ -319,6 +319,89 @@ Would you like me to extract the Arabic originals with full diacritics and sourc
 
 https://youtu.be/kkG3MTcn24s?list=PLAEA99D24CA2F9A8F&t=986
 
+Absolutely, Slip. Here's a structured article-style presentation of both narrations involving Muʿādh ibn Jabal رضي الله عنه and the Prophet ﷺ—each rich with theological depth and pedagogical nuance.
+
+---
+
+## 🐪 Riding with the Messenger: Two Intimate Teachings to Muʿādh ibn Jabal
+
+Among the most treasured moments in the Sīrah are those quiet, personal exchanges between the Prophet ﷺ and his companions—especially when they occurred during travel. One such companion was **Muʿādh ibn Jabal**, a young Ansārī scholar known for his deep understanding of fiqh and Qur’an. Two narrations stand out where Muʿādh was riding behind the Prophet ﷺ, and each offers a distinct spiritual roadmap: one focused on **Allah’s mercy**, the other on **practical steps to Paradise**.
+
+---
+
+### 1️⃣ **The Right of Allah and the Right of the Servants**
+
+📍 **Setting**: Muʿādh is riding behind the Prophet ﷺ on a donkey  
+📘 **Source**: [Sahih al-Bukhari 2856](https://sunnah.com/bukhari:2856), [Sahih Muslim 30](https://sunnah.com/muslim:30)
+
+> The Prophet ﷺ said:  
+> “O Muʿādh! Do you know what is Allah’s right upon His servants, and what is the servants’ right upon Allah?”  
+> Muʿādh replied: “Allah and His Messenger know best.”  
+> He said: “Allah’s right upon His servants is that they worship Him and do not associate anything with Him. And the servants’ right upon Allah is that He will not punish those who do not associate anything with Him.”  
+> Muʿādh asked: “O Messenger of Allah, shall I not inform the people?”  
+> He replied: “Do not inform them, lest they rely on it.”
+
+🔍 **Key Themes**:
+- **Tawḥīd** is the foundation of salvation.
+- The Prophet ﷺ emphasizes **Allah’s mercy**, but also **strategic restraint**—not every truth is meant for mass consumption if it risks spiritual complacency.
+- The riding setting reflects a **private, mentoring moment**, not a public sermon.
+
+---
+
+### 2️⃣ **The Deed That Leads to Paradise**
+
+📍 **Setting**: Muʿādh initiates the question while riding with the Prophet ﷺ  
+📘 **Source**: [Jāmiʿ al-Tirmidhī 2616](https://sunnah.com/tirmidhi:2616), [Musnad Aḥmad](https://al-maktaba.org/book/21741/13477)
+
+> Muʿādh said: “O Messenger of Allah, tell me of a deed that will admit me to Paradise and keep me away from the Fire.”  
+> The Prophet ﷺ replied:  
+> “You have asked about something great, yet it is easy for whom Allah makes it easy:  
+> — Worship Allah without associating partners  
+> — Establish the prayer  
+> — Give zakāh  
+> — Fast in Ramadan  
+> — Perform Ḥajj to the House  
+>  
+> Shall I not guide you to the doors of goodness?  
+> — Fasting is a shield  
+> — Charity extinguishes sins like water extinguishes fire  
+> — Prayer in the depths of the night  
+>  
+> Then he recited: *“Their sides forsake their beds…”* (Sūrah al-Sajdah 32:16–17)  
+>  
+> Shall I not tell you of the head of the matter, its pillar, and its peak?  
+> — Head: Islam  
+> — Pillar: Prayer  
+> — Peak: Jihād  
+>  
+> Shall I not inform you of what governs all of that?  
+> — He took hold of his tongue and said: “Restrain this.”  
+>  
+> Muʿādh asked: “Will we be held accountable for what we say?”  
+> The Prophet ﷺ replied:  
+> “May your mother be bereaved of you, O Muʿādh! Is there anything that topples people into the Fire on their faces (or noses) except the harvests of their tongues?”
+
+🔍 **Key Themes**:
+- A **layered pedagogy**: from basic obligations to spiritual enhancements, then to structural metaphors (head, pillar, peak), and finally to the **governing principle**—speech.
+- The Prophet ﷺ uses **physical gestures** (grabbing his tongue) to reinforce the lesson.
+- The hadith blends **legal, ethical, and eschatological** dimensions in one seamless teaching moment.
+
+---
+
+### 🧭 Comparative Overview
+
+| Aspect | Hadith 1: Rights | Hadith 2: Paradise |
+|--------|------------------|--------------------|
+| Initiator | Prophet ﷺ | Muʿādh رضي الله عنه |
+| Core Theme | Tawḥīd and Divine Mercy | Holistic path to Jannah |
+| Teaching Style | Q&A with caution | Layered instruction with metaphors |
+| Emotional Tone | Intimate, protective | Empowering, urgent |
+| Final Warning | Don’t publicize | Guard your tongue |
+
+---
+
+If you'd like, I can build a Markdown matrix of the deeds mentioned, group them by function (ʿibādah, akhlāq, muʿāmalāt), and annotate them with Qur’anic parallels. Or we can trace how later scholars like al-Nawawī or Ibn Rajab al-Ḥanbalī unpacked these narrations in their works.
+
 ---
 
 ## Masjid: 3 optionion 1-kuba 2-Masjid Nabi(Rasul)  3-Generic(every masjid)
