@@ -320,6 +320,35 @@ Would you like me to extract the Arabic originals with full diacritics and sourc
 
 ---
 
+## Sajdat al-Shukr
+
+https://youtu.be/h8S98oEMDqY?list=PLAEA99D24CA2F9A8F&t=3862
+
+You were close—what you're referring to is **Sajdat al-Shukr** (سَجْدَةُ الشُّكْر), often transliterated as *Sajda Shukr* or *Sajdat al-Shukr*. It means **“the prostration of thankfulness”**.
+
+### 🧎‍♂️ What Is Sajdat al-Shukr?
+It’s a spontaneous act of prostration done **outside of formal prayer** to express gratitude to Allah for a blessing received or harm averted.
+
+### ✅ When Is It Done?
+- After receiving **good news** (e.g. birth of a child, recovery from illness)
+- When **avoiding a calamity** (e.g. surviving an accident)
+- Upon **witnessing someone afflicted**, as a way of thanking Allah for one’s own safety
+
+### 🛐 How Is It Performed?
+- No need for **wudū’ (ablution)** or **qiblah** direction according to some scholars, though others recommend it.
+- Simply go into **sujūd (prostration)** and say:
+  - **شُكْرًا لِلَّهِ** (*Shukran lillāh*) — “Thanks to Allah”
+  - Or repeat **الحمد لله** (*Al-ḥamdu lillāh*) — “All praise is due to Allah”
+- No specific duʿā is required, but heartfelt gratitude is key
+
+### 🧠 Jurisprudential Views
+| School      | Ruling on Sajdat al-Shukr                     |
+|-------------|-----------------------------------------------|
+| Shāfiʿī & Ḥanbalī | Sunnah (recommended) when a blessing occurs |
+| Mālikī      | Generally **makrūh** (discouraged)         |
+| Ḥanafī      | Considered **makrūh**, not rewarded        |
+
+If you want, I can break down the hadith evidence or show how different scholars justify or critique it. Or we can build a reference table for when and how to use it in daily life.
 
 ---
 
