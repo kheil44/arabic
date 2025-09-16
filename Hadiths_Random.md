@@ -315,6 +315,12 @@ Would you like me to extract the Arabic originals with full diacritics and sourc
 
 ---
 
+## Masjid: 3 optionion 1-kuba 2-Masjid Nabi(Rasul)  3-Generic(every masjid)
+
+### _, kuba poeple were asked ...Allah has praised you ....purify extra....istinja..we have a habit to ...use water...._
+
+https://youtu.be/uDV4c9eFsO8?list=PLAEA99D24CA2F9A8F&t=4046
+
 ---
 
 ## Our beloved Prophet ﷺ stopped Sahabas from standing up for him ﷺ.
