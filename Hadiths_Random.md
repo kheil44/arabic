@@ -319,6 +319,8 @@ Would you like me to extract the Arabic originals with full diacritics and sourc
 
 ## Our beloved Prophet ﷺ stopped Sahabas from standing up for him ﷺ.
 
+### _... He forbade them... Anas bin Malik said we will never stand up for him... you are imitaing Persina and Romans...._
+
 https://youtu.be/h8S98oEMDqY?list=PLAEA99D24CA2F9A8F&t=4254
 
 ---
