@@ -317,6 +317,9 @@ Would you like me to extract the Arabic originals with full diacritics and sourc
 
 ---
 
+## Our beloved Prophet ﷺ stopped Sahabas from standing up for him ﷺ.
+
+https://youtu.be/h8S98oEMDqY?list=PLAEA99D24CA2F9A8F&t=4254
 
 ---
 
