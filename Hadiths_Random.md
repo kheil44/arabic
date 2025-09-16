@@ -313,6 +313,12 @@ Would you like me to extract the Arabic originals with full diacritics and sourc
 
 ---
 
+## How to Enter Janat. by Maaz ibn Jabal
+
+### _.... Great, what a noble thing....praising ...its an easy answer ...For Whome Allah Wants to Make it Easy._
+
+https://youtu.be/kkG3MTcn24s?list=PLAEA99D24CA2F9A8F&t=986
+
 ---
 
 ## Masjid: 3 optionion 1-kuba 2-Masjid Nabi(Rasul)  3-Generic(every masjid)
