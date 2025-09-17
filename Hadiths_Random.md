@@ -300,6 +300,92 @@ Would you like me to extract the Arabic originals with full diacritics and sourc
 
 ---
 
+## Tamim Idari
+
+
+https://youtu.be/41lsMsBFJw0?list=PLAEA99D24CA2F9A8F&t=2616
+
+
+Certainly, Slip. Here's a full narrative-style article based on the authentic hadith of **Tamīm al-Dārī’s encounter with the Dajjāl**, as narrated by **Fāṭimah bint Qays** and recorded in **Ṣaḥīḥ Muslim**.
+
+---
+
+## 🏝️ The Island of the Dajjāl: Tamīm al-Dārī’s Mysterious Encounter
+
+One day, the Prophet Muhammad ﷺ called the people of Madinah to gather at the mosque. The caller announced, “Prayer in congregation!”—but this was no ordinary prayer. After leading the ṣalāh, the Prophet ﷺ ascended the minbar, smiling, and said:
+
+> “Do you know why I’ve gathered you?”
+
+The Companions replied, “Allah and His Messenger know best.”
+
+The Prophet ﷺ then shared a remarkable story—one that confirmed what he had long taught about the **Dajjāl**, the false messiah. A man named **Tamīm al-Dārī**, a former Christian who had recently embraced Islam, had come to him with a firsthand account of something extraordinary.
+
+Tamīm had set sail with thirty men from the tribes of **Lakhm** and **Judhām**. Their ship was caught in a storm and tossed about the sea for a month until they landed on a remote island in the west. As they disembarked and explored, they encountered a strange creature—**covered in hair**, so much so that they couldn’t tell its front from its back.
+
+They asked, “What are you?”
+
+It replied, “I am **al-Jassāsah**.”
+
+They asked, “What is al-Jassāsah?”
+
+It said, “Go to that man in the monastery—he is eager to hear your news.”
+
+Frightened by the creature’s cryptic words, they hurried to the monastery. Inside, they found a man—**the largest they had ever seen**, bound in chains. His hands were tied to his neck, and his legs shackled from knees to ankles. They asked, “Who are you?”
+
+He said, “You have come to know my story, so tell me yours. Who are you?”
+
+They explained they were Arabs who had been lost at sea and had landed on the island. The chained man then began to question them:
+
+- “Tell me about the **date palms of Bayṣān**—do they still bear fruit?”
+  - “Yes,” they replied.
+  - He said, “Soon they will not.”
+
+- “Tell me about the **Lake of Ṭabarīyyah (Tiberias)**—is there water in it?”
+  - “Yes, it’s full.”
+  - He said, “Soon it will dry up.”
+
+- “Tell me about the **spring of Zughar**—does it still flow and do people still bathe in it?”
+  - “Yes,” they said.
+  - He said, “Soon it will stop.”
+
+He then asked about the **Prophet of the unlettered people**—“Has he appeared yet? Has he migrated?”
+
+They said, “Yes, he has appeared in Arabia and settled in Yathrib.”
+
+The chained man asked, “Do the Arabs fight him?”
+
+They said, “Yes.”
+
+He asked, “How does he fare?”
+
+They replied, “He prevails over them.”
+
+The man said, “It is better for them to obey him. I am the **Dajjāl**, and soon I will be permitted to emerge. I will travel the earth, and there will be no town I do not enter—except **Makkah and Madinah**, which are protected by angels.”
+
+Tamīm and his companions fled the island and eventually reached the Prophet ﷺ to report what they had seen. The Prophet ﷺ confirmed:
+
+> “This aligns with what I have told you about the Dajjāl.”
+
+---
+
+## 🧾 Source and Authenticity
+
+- **Narrator**: Fāṭimah bint Qays
+- **Primary Source**: Ṣaḥīḥ Muslim, Book of Tribulations, Hadith 2942c  
+- [Direct link to the full hadith](https://sunnah.com/muslim:2942c)
+
+---
+
+## 🧠 Reflections
+
+This hadith is unique for several reasons:
+- It’s the **only narration** where the Prophet ﷺ confirms a **Companion’s eyewitness account** of the Dajjāl.
+- It introduces **al-Jassāsah**, a mysterious creature not mentioned elsewhere.
+- It provides **geographic clues** (Bayṣān, Ṭabarīyyah, Zughar) tied to eschatological signs.
+- It confirms that the Dajjāl is **already alive**, restrained, and awaiting permission to emerge.
+
+If you'd like, I can build a timeline of Dajjāl-related events from authentic sources, or map the geographic references mentioned in this hadith.
+
 ---
 
 ## Al Ashaj stayed behind, cleanse himself, fragrance, etc..
