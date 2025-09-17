@@ -310,6 +310,8 @@ Would you like me to extract the Arabic originals with full diacritics and sourc
 
 ### _Osman ibn Afan: why did you not put Bismillah for Toba .... and why did toba alongside Anfal when the revelation took place so far apart...._
 
+## _Also the order of verses and surrah discussed too in this video._
+
 https://youtu.be/1MQ-OiuxFIQ?list=PLAEA99D24CA2F9A8F&t=1325
 
 Absolutely, Slip. This narration is one of the most important discussions in the history of Qur’anic compilation. It comes from **Sahih al-Tirmidhī**, where **ʿUthmān ibn ʿAffān رضي الله عنه** explains why **Surah al-Tawbah** was placed immediately after **Surah al-Anfāl**, and why it does **not begin with the basmalah**.
