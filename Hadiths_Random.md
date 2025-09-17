@@ -304,6 +304,13 @@ Would you like me to extract the Arabic originals with full diacritics and sourc
 
 ---
 
+## Hypocrites:
+
+### _....Quran says...they get happy...Good happens , they are angry..._
+
+https://youtu.be/1MQ-OiuxFIQ?list=PLAEA99D24CA2F9A8F&t=2611
+
+
 ---
 
 📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗
