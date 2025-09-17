@@ -306,6 +306,48 @@ Would you like me to extract the Arabic originals with full diacritics and sourc
 
 ---
 
+## Quran: Surrah Tobah [No Bismillah] & placements
+
+### _Osman ibn Afan: why did you not put Bismillah for Toba .... and why did toba alongside Anfal when the revelation took place so far apart...._
+
+https://youtu.be/1MQ-OiuxFIQ?list=PLAEA99D24CA2F9A8F&t=1325
+
+Absolutely, Slip. This narration is one of the most important discussions in the history of Qur’anic compilation. It comes from **Sahih al-Tirmidhī**, where **ʿUthmān ibn ʿAffān رضي الله عنه** explains why **Surah al-Tawbah** was placed immediately after **Surah al-Anfāl**, and why it does **not begin with the basmalah**.
+
+---
+
+## 📜 Arabic Text (Original Hadith)
+
+> عن ابن عباس قال: قلت لعثمان بن عفان: ما حملكم على أن وصلتم الأنفال ببراءة ولم تكتبوا بينهما سطر "بسم الله الرحمن الرحيم"؟  
+> قال عثمان: كان رسول الله ﷺ مما يأتي عليه الزمان وهو ينزل عليه السور ذوات العدد، فكان إذا نزل عليه الشيء دعا بعض من يكتب فيقول: "ضعوا هذه الآيات في السورة التي يذكر فيها كذا وكذا"، وكانت الأنفال من أوائل ما نزل بالمدينة، وكانت براءة من آخر القرآن نزولًا، وكانت قصتها شبيهة بقصتها، فظننت أنها منها، فقبض رسول الله ﷺ ولم يبين لنا أنها منها، فمن أجل ذلك قرنت بينهما ولم أكتب بينهما "بسم الله الرحمن الرحيم"، ووضعتها في السبع الطوال.
+
+📘 **Source**: [Jāmiʿ al-Tirmidhī 3086](https://sunnah.com/tirmidhi:3086)
+
+---
+
+## 🌍 English Translation
+
+Narrated by Ibn ʿAbbās:
+
+> I said to ʿUthmān ibn ʿAffān: “What made you join Surah al-Anfāl with Surah al-Barāʾah (al-Tawbah), without writing between them the line ‘Bismillāh al-Raḥmān al-Raḥīm’?”  
+>  
+> ʿUthmān replied:  
+> “The Messenger of Allah ﷺ would sometimes receive revelation of multiple verses or surahs at once. When something was revealed, he would call one of the scribes and say: ‘Place these verses in the surah that mentions such-and-such.’  
+>  
+> Surah al-Anfāl was among the earliest revealed in Madinah, and Surah al-Barāʾah was among the last revealed in the Qur’an. Their subject matter was similar, so I assumed they were part of the same surah.  
+>  
+> The Prophet ﷺ passed away without clarifying whether they were separate. So I joined them together and did not write the basmalah between them. I placed them among the seven long surahs.”
+
+---
+
+### 🧠 Scholarly Notes
+
+- **No basmalah**: Surah al-Tawbah is the only surah in the Qur’an that does **not begin with “Bismillāh al-Raḥmān al-Raḥīm”**, and this hadith explains why.
+- **Compilation logic**: ʿUthmān’s decision was based on **thematic similarity**, **chronological placement**, and **lack of explicit instruction** from the Prophet ﷺ.
+- **Seven long surahs**: He placed it among the **al-sabʿ al-ṭiwāl**, the seven longest chapters of the Qur’an.
+
+If you'd like, I can build a table comparing the themes of al-Anfāl and al-Tawbah, or trace how this decision influenced later Qur’anic codices.
+
 ---
 
 ## Lots of and Predictions
