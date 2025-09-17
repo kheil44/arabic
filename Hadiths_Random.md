@@ -300,7 +300,9 @@ Would you like me to extract the Arabic originals with full diacritics and sourc
 
 ---
 
-## Tamim Idari
+## Tamīm al-Dārī’s encounter with the Dajjāl
+
+### _accordint to Yasir Qadi even though this is Sah Muslim, its a bit..._
 
 
 https://youtu.be/41lsMsBFJw0?list=PLAEA99D24CA2F9A8F&t=2616
