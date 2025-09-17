@@ -308,6 +308,13 @@ Would you like me to extract the Arabic originals with full diacritics and sourc
 
 ---
 
+## Lots of and Predictions
+
+the start of video;
+
+### _This video has lots and lots of hadiths references, crucial advice and stuff. [Watch the whole Video Again]_
+
+https://www.youtube.com/watch?v=zF1KpnLdpy4&list=PLAEA99D24CA2F9A8F&index=92
 
 ---
 
