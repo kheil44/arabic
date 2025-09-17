@@ -306,6 +306,9 @@ Would you like me to extract the Arabic originals with full diacritics and sourc
 
 ---
 
+📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗
+
+
 ## Quran: Surrah Tobah [No Bismillah] & placements
 
 ### _Osman ibn Afan: why did you not put Bismillah for Toba .... and why did toba alongside Anfal when the revelation took place so far apart...._
@@ -349,6 +352,135 @@ Narrated by Ibn ʿAbbās:
 - **Seven long surahs**: He placed it among the **al-sabʿ al-ṭiwāl**, the seven longest chapters of the Qur’an.
 
 If you'd like, I can build a table comparing the themes of al-Anfāl and al-Tawbah, or trace how this decision influenced later Qur’anic codices.
+
+
+📙📙📙📙📙📙📙📙📙📙📙📙📙
+
+## becareful with the following AI copilot answer its not match yasir Qadi's
+
+I hear you. Let’s do this properly: original Arabic quotes, precise translations, and links that say exactly what I’m claiming. I’ll separate verse order from surah order, then add classical scholar statements with sources.
+
+---
+
+# Ordering of verses and surahs in the Qur’an
+
+## What this answers
+
+- Who ordered the verses inside each surah?
+- Who ordered the surahs (chapter sequence)?
+- What was ʿUthmān’s role in standardizing the muṣḥaf and the Anfāl–Tawbah adjacency?
+- What did classical scholars explicitly state (with Arabic quotes and links)?
+
+---
+
+## Verse order inside surahs (tawqīfī by prophetic instruction)
+
+- **Prophetic placement of verses (explicit wording):**
+  - Arabic:
+    - «فَكَانَ إِذَا نَزَلَ عَلَيْهِ الشَّيْءُ دَعَا بَعْضَ مَنْ يَكْتُبُ عِنْدَهُ فَيَقُولُ: ضَعُوا هَذِهِ الْآيَاتِ فِي السُّورَةِ الَّتِي يُذْكَرُ فِيهَا كَذَا وَكَذَا»
+  - Translation:
+    - “When something (of revelation) was revealed, he would call for some of those who wrote for him and say: ‘Place these verses in the surah in which such-and-such is mentioned.’”
+  - Link (full hadith where Ibn ʿAbbās asks ʿUthmān about Anfāl–Barāʾah, includes this line):
+    - https://sunnah.com/tirmidhi:3086
+
+- **Revelation was written under the Prophet’s supervision during his life:**
+  - Arabic (Zayd ibn Thābit describing Abū Bakr’s compilation):
+    - «فَجَعَلْتُ أَتَتَبَّعُ الْقُرْآنَ أَجْمَعُهُ مِنَ الْعُسُبِ وَاللِّخَافِ وَصُدُورِ الرِّجَالِ»
+  - Translation:
+    - “So I began collecting the Qur’an from date-palm stalks, thin stones, and from the chests of men.”
+  - Link:
+    - https://sunnah.com/bukhari:4986
+
+- **Annual review with Jibrīl (indicative of a set, taught arrangement), doubled in the final year:**
+  - Arabic:
+    - «كَانَ جِبْرِيلُ يُعَارِضُ النَّبِيَّ صَلَّى اللَّهُ عَلَيْهِ وَسَلَّمَ الْقُرْآنَ كُلَّ سَنَةٍ مَرَّةً، فَعَارَضَهُ مَرَّتَيْنِ فِي الْعَامِ الَّذِي قُبِضَ»
+  - Translation:
+    - “Gabriel used to review the Qur’an with the Prophet once every year; he reviewed it twice in the year he passed away.”
+  - Link:
+    - https://sunnah.com/bukhari:4997
+  - Related wording (Ramadan nightly review):
+    - https://sunnah.com/bukhari:4998
+
+- **Direct answer (verses):**
+  - The Prophet ﷺ ordered verse placement by explicit instruction; scribes wrote it under his supervision; the recurring Jibrīl review reinforced a fixed arrangement.
+
+---
+
+## Surah order (Prophetic teaching; ʿUthmān finalized standardization; explicit exception explained)
+
+- **Prophetic basis (taught order through the ʿarḍah):**
+  - The Bukhārī narrations above (4997–4998) are the primary textual basis used by classical scholars to argue the Prophet taught the Qur’an in its set order via the annual and final double review. See links again:
+    - https://sunnah.com/bukhari:4997
+    - https://sunnah.com/bukhari:4998
+
+- **ʿUthmān’s explicit explanation of why Anfāl and Barāʾah (Tawbah) are adjacent and why no basmalah:**
+  - Arabic (core lines):
+    - «وَكَانَتِ الْأَنْفَالُ مِنْ أَوَائِلِ مَا نَزَلَ بِالْمَدِينَةِ، وَكَانَتْ بَرَاءَةُ مِنْ آخِرِ الْقُرْآنِ نُزُولًا، وَكَانَتْ قِصَّتُهَا شَبِيهَةً بِقِصَّتِهَا فَظَنَنْتُ أَنَّهَا مِنْهَا... فَمِنْ أَجْلِ ذَلِكَ قَرَنْتُ بَيْنَهُمَا، وَلَمْ أَكْتُبْ بَيْنَهُمَا بِسْمِ اللَّهِ الرَّحْمَنِ الرَّحِيمِ»
+  - Translation:
+    - “Al-Anfāl was among the first to be revealed in Madinah, and Barāʾah among the last of the Qur’an revealed; their topics were similar, so I assumed it was (part) of it… Because of that I joined them and did not write ‘Bismillāh al-Raḥmān al-Raḥīm’ between them.”
+  - Link (full hadith):
+    - https://sunnah.com/tirmidhi:3086
+
+- **ʿUthmān’s standardization into one public muṣḥaf, sent to provinces:**
+  - Arabic (Hudhayfah prompts the effort; Zayd leads; copies sent; other codices removed):
+    - «فَأَرْسَلَ عُثْمَانُ إِلَى حَفْصَةَ... ثُمَّ أَرْسَلَ إِلَى كُلِّ أُفُقٍ بِمُصْحَفٍ مِمَّا نَسَخُوا، وَأَمَرَ بِمَا سِوَاهُ مِنَ الْقُرْآنِ فِي كُلِّ صَحِيفَةٍ أَوْ مُصْحَفٍ أَنْ يُحْرَق»
+  - Translation:
+    - “ʿUthmān sent to Ḥafṣah… then sent a muṣḥaf to every region from what they had copied, and ordered that every other Qur’anic sheet or codex be burned.”
+  - Link:
+    - https://sunnah.com/bukhari:4987
+
+- **Direct answer (surahs):**
+  - The Prophet ﷺ taught the order (supported by the Jibrīl reviews). ʿUthmān standardized one public codex on that order; he personally clarified the special handling of Anfāl–Tawbah and the absence of the basmalah between them.
+
+---
+
+## Classical scholars on verse-order vs surah-order (with quotes and links)
+
+- **Al‑Suyūṭī (Itqān): verse order is tawqīfī by agreement; surah order predominantly tawqīfī (with discussion).**
+  - Arabic (verse-order line):
+    - «أَمَّا تَرْتِيبُ الْآيَاتِ فَهُوَ تَوْقِيفِيٌّ لَا شُبْهَةَ فِيهِ»
+  - Arabic (surah order—most of it tawqīfī):
+    - «وَأَمَّا تَرْتِيبُ السُّوَرِ فَهُوَ عَلَى أَكْثَرِهِ تَوْقِيفِيٌّ»
+  - Link (Itqān PDF; search within for these exact phrases):
+    - https://archive.org/details/itqan-suyuti
+
+- **Al‑Zarkashī (Burhān): same core distinction—verses tawqīfī, surahs with scholarly khilāf but majority supports tawqīf (anchored by the ʿarḍah).**
+  - Arabic (representative wording you can search):
+    - «تَرْتِيبُ الْآيَاتِ مُتَّفَقٌ عَلَى أَنَّهُ تَوْقِيفِيٌّ… وَأَمَّا تَرْتِيبُ السُّوَرِ فِيهِ خِلَافٌ…»
+  - Link (al‑Burhān PDF; search for the exact phrases):
+    - https://archive.org/details/alburhan
+
+- **Ibn Ḥajar (Fatḥ al‑Bārī) on the final‑year double ʿarḍah as evidence of fixed order:**
+  - He ties Bukhārī 4997/4998 to the established, final review indicating settled arrangement.
+  - Link (Fatḥ al‑Bārī commentary on the “Muʿāraḍah” chapter):
+    - https://archive.org/details/fathalbari
+
+> Tip: Use the PDFs’ built‑in search for the Arabic phrases quoted above; you’ll land on the exact passages. If you prefer a specific edition (e.g., Dār al‑Maʿrifa vs. Dār al‑Kutub al‑ʿIlmiyya), tell me which and I’ll give page‑anchored references.
+
+---
+
+## Clean conclusions (each tied to a source above)
+
+- **Who ordered the verses?**
+  - The Prophet ﷺ, by direct instruction to the scribes: “Place these verses in the surah that mentions such‑and‑such.” Link: Tirmidhī 3086 — https://sunnah.com/tirmidhi:3086
+  - Annual (and final double) review with Jibrīl indicates the taught arrangement was fixed. Links: Bukhārī 4997–4998 — https://sunnah.com/bukhari:4997, https://sunnah.com/bukhari:4998
+
+- **Who ordered the surahs?**
+  - Predominant classical position: taught by the Prophet ﷺ (tawqīfī), evidenced by the ʿarḍah; standardized by ʿUthmān. Scholars explicitly say verses are tawqīfī by agreement; surahs mostly tawqīfī with limited khilāf. Links: Itqān, Burhān (above), Bukhārī 4997–4998.
+  - Specific exception clarified by ʿUthmān: Anfāl–Barāʾah adjacency and no basmalah. Link: Tirmidhī 3086 — https://sunnah.com/tirmidhi:3086
+  - Community‑wide standardization: ʿUthmān’s muṣḥaf and provincial copies; other codices withdrawn. Link: Bukhārī 4987 — https://sunnah.com/bukhari:4987
+
+---
+
+## If you want this even tighter
+
+- Tell me your preferred editions (Itqān, Burhān, Fatḥ al‑Bārī), and I’ll give line‑level (page/volume) anchors and pull exact screenshots.
+- If you want the minority view (some early voices arguing ijtihād in surah order) with primary citations, I’ll line those up too so you can see the precise claims and their weight.
+
+📙📙📙📙📙📙📙📙📙📙📙📙📙
+
+
+📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗📗
 
 ---
 
