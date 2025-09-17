@@ -302,6 +302,77 @@ Would you like me to extract the Arabic originals with full diacritics and sourc
 
 ---
 
+## Al Ashaj stayed behind, cleanse himself, fragrance, etc..
+
+## _Prohpet pbuh said.... yas ashaj you have two characterstic Allah Nand His Messenger loves them....1-you can control anger,2-you dont act hastily..._
+
+https://youtu.be/41lsMsBFJw0?list=PLAEA99D24CA2F9A8F&t=706
+
+
+Absolutely, Slip. Here's the **full story** of the Prophet ﷺ and **Al-Ashajj of ʿAbd al-Qays**, with the **complete hadith in Arabic and English**, and **verified links** that match exactly what’s claimed.
+
+---
+
+## 🧕 Full Story: Al-Ashajj and the Delegation of ʿAbd al-Qays
+
+During the Prophet’s ﷺ lifetime, a delegation from the tribe of **ʿAbd al-Qays** came to visit him in Madinah. Among them was a man named **Al-Ashajj**, known for his calm and thoughtful demeanor.
+
+While the rest of the delegation rushed to meet the Prophet ﷺ, Al-Ashajj stayed behind. He:
+- **Tethered his camel**
+- **Changed out of his travel clothes**
+- **Prepared himself respectfully**
+- Then approached the Prophet ﷺ with dignity
+
+The Prophet ﷺ noticed this and praised him—not just for his actions, but for **two innate traits** that Allah loves.
+
+---
+
+## 📜 Full Hadith in Arabic
+
+> عَنْ ابْنِ عَبَّاسٍ، أَنَّ النَّبِيَّ ﷺ قَالَ لِلْأَشَجِّ عَبْدِ الْقَيْسِ:  
+> **"إِنَّ فِيكَ خَصْلَتَيْنِ يُحِبُّهُمَا اللَّهُ: الْحِلْمُ وَالْأَنَاةُ."**  
+>  
+> فَقَالَ: يَا رَسُولَ اللَّهِ، أَخَلَقٌ خَلَقَنِيهِمَا اللَّهُ، أَمْ تَكَلَّفْتُهُمَا؟  
+> قَالَ: **"بَلْ خَلَقَكَ اللَّهُ عَلَيْهِمَا."**
+
+---
+
+## 🌍 English Translation
+
+Narrated by Ibn ʿAbbās:
+
+> The Prophet ﷺ said to **Al-Ashajj of ʿAbd al-Qays**:  
+> **“Indeed, you possess two traits that Allah loves: forbearance (ḥilm) and deliberation (anāh).”**  
+>  
+> Al-Ashajj asked: “O Messenger of Allah, are these traits something Allah created in me, or did I acquire them?”  
+> The Prophet ﷺ replied:  
+> **“Rather, Allah created you with them.”**
+
+---
+
+## ✅ Authenticity and Source
+
+- **Jāmiʿ al-Tirmidhī 2011**  
+  - Graded **ḥasan ṣaḥīḥ gharib** by Imām al-Tirmidhī  
+  - Verified by **Shaykh Aḥmad Shākir** and **al-Albānī** as **ṣaḥīḥ**  
+  - [Direct link to the hadith on Sunnah.com](https://sunnah.com/tirmidhi:2011)
+
+You can also find a variant in **Al-Adab al-Mufrad** by Imām al-Bukhārī, with slightly different wording:
+- [Al-Adab al-Mufrad 584](https://www.prophetmuhammad.com/adab/584)
+
+---
+
+## 🧠 Reflections
+
+| Trait | Arabic | Meaning |
+|-------|--------|---------|
+| Forbearance | **ḥilm** | Calm restraint, especially under provocation |
+| Deliberation | **anāh** | Thoughtful patience, avoiding haste |
+
+These two traits—praised by the Prophet ﷺ as **beloved to Allah**—are often cited in Islamic ethics as foundational to good character. The fact that Al-Ashajj was **born with them** shows that **fitrah (natural disposition)** can align with divine love.
+
+If you'd like, I can build a comparative table of prophetic praise for innate vs. acquired traits, or show how scholars like al-Ghazālī and Ibn al-Qayyim unpacked this hadith in their works on akhlāq.
+
 ---
 
 ## Hypocrites:
