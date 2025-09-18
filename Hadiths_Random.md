@@ -368,6 +368,11 @@ Would you like me to extract the Arabic originals with full diacritics and sourc
 
 ### 🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻
 
+## Aura: what must be covered.
+
+### _..cover from everyone but spouse...if alone... Allah has more right...._
+
+https://youtu.be/Z4C6lT97m1g?list=PLAEA99D24CA2F9A8F&t=2111
 
 ### 🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻🌻
 
