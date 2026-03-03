@@ -318,7 +318,7 @@ Slip, would you like a **timeline diagram** showing when each lived, or a **comp
 
 ---
 
-### Imām-al-Tahāwī
+#### Imām-al-Tahāwī
 ### 🏛️ **1. Imām al-Tahāwī (d. 321 AH)** — *Al-ʿAqīdah al-Ṭahāwiyyah*
 
 > **“He knows everything before it happens, and He knows how it will happen, and He knows what will not happen, and how it would have happened if it did.”**
