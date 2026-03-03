@@ -205,9 +205,7 @@ Our beloved Prophet ﷺ
 
 ---
 
-Here’s a structured breakdown of how classical Islamic scholars and creedal texts articulate the **totality of Allah’s knowledge**, including the famous formulation you referenced: *“He knows what was, what is, what will be, and what could have been if it were to happen.”* Each entry includes the scholar’s version, their source, and a direct link to the reference.
-
----
+#### Ibn-Isḥāq-Ibn-Hishām-al‑Ṭabarī-and-Ibn-Kathīr
 
 ##  Ibn Isḥāq, Ibn Hishām, al‑Ṭabarī, and Ibn Kathīr
 
