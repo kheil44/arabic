@@ -8,7 +8,7 @@
 ---
 Index
 - [Imām al-Tahāwī](#Imām-al-Tahāwī)
-- [Ibn Isḥāq, Ibn Hishām, al‑Ṭabarī, and Ibn Kathīr](#Ibn-Isḥāq-Ibn-Hishām-al‑Ṭabarī-and-Ibn-Kathīr) ━━━━━━ - [Going to Bed](#Going-to-Bed)
+- [Ibn Isḥāq, Ibn Hishām, al‑Ṭabarī, and Ibn Kathīr](#Ibn-Isḥāq-Ibn-Hishām-etc) ━━━━━━ - [Going to Bed](#Going-to-Bed)
 
 
 
@@ -205,7 +205,7 @@ Our beloved Prophet ﷺ
 
 ---
 
-#### Ibn-Isḥāq-Ibn-Hishām-al‑Ṭabarī-and-Ibn-Kathīr
+#### Ibn-Isḥāq-Ibn-Hishām-etc
 
 ##  Ibn Isḥāq, Ibn Hishām, al‑Ṭabarī, and Ibn Kathīr
 
