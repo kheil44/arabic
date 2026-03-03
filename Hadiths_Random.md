@@ -8,7 +8,7 @@
 ---
 Index
 - [Imām al-Tahāwī](#Imām-al-Tahāwī)
-- [Namaz](#Namaz-4-Rakat) ━━━━━━ - [Going to Bed](#Going-to-Bed)
+- [ Ibn Isḥāq, Ibn Hishām, al‑Ṭabarī, and Ibn Kathīr](# Ibn-Isḥāq,-Ibn-Hishām,-al‑Ṭabarī,-and-Ibn-Kathīr) ━━━━━━ - [Going to Bed](#Going-to-Bed)
 
 
 
@@ -208,6 +208,118 @@ Our beloved Prophet ﷺ
 Here’s a structured breakdown of how classical Islamic scholars and creedal texts articulate the **totality of Allah’s knowledge**, including the famous formulation you referenced: *“He knows what was, what is, what will be, and what could have been if it were to happen.”* Each entry includes the scholar’s version, their source, and a direct link to the reference.
 
 ---
+
+##  Ibn Isḥāq, Ibn Hishām, al‑Ṭabarī, and Ibn Kathīr
+
+
+
+# 1. Muḥammad ibn Isḥāq (d. 150 AH / ~767 CE)
+### Role and significance
+Ibn Isḥāq is the **earliest major compiler of the Prophet’s biography**. His work is the foundation of all later Sīrah writing.
+
+### Contributions
+- Collected oral reports from the children of Companions.
+- Wrote the first connected narrative of the Prophet’s life (*Sīrat Rasūl Allāh*).
+- Preserved early poetry, genealogy, and tribal history.
+- His original text is lost, but survives through later transmitters.
+
+### Relationship to others
+- **Primary source** for Ibn Hishām.
+- **Major source** for al‑Ṭabarī’s early volumes.   [Kalamullah.Com](https://kalamullah.com/Books/The%20History%20Of%20Tabari/Tabari_Volume_06.pdf)
+- **Frequently quoted** by Ibn Kathīr (sometimes accepted, sometimes critiqued).
+
+---
+
+# 2. ʿAbd al‑Malik ibn Hishām (d. 218 AH / 833–834 CE)
+### Role and significance
+Ibn Hishām is the **editor and transmitter** of Ibn Isḥāq’s Sīrah, not an independent historian of the same scale.
+
+### What he did
+- Removed reports he considered weak, fabricated, or irrelevant.
+- Removed poetry he believed inauthentic.
+- Added linguistic, genealogical, and explanatory notes.
+- Produced the version known today as **Sīrat Ibn Hishām**, the most widely read Sīrah.   [Archive](https://archive.org/details/lifeofmuhammadtr0000ibnh)
+
+### Relationship to others
+- **Depends directly on Ibn Isḥāq**.
+- Becomes the **main channel** through which later scholars access Ibn Isḥāq.
+- Quoted by al‑Ṭabarī and Ibn Kathīr.
+
+---
+
+# 3. Muḥammad ibn Jarīr al‑Ṭabarī (d. 310 AH / 923 CE)
+### Role and significance
+Al‑Ṭabarī is one of the greatest historians and Qur’anic exegetes in Islamic history.
+
+### Major works
+- *Tārīkh al‑Ṭabarī* — a universal history from creation to his time.
+- *Tafsīr al‑Ṭabarī* — one of the earliest and most authoritative Qur’an commentaries.   [Wikipedia](https://en.wikipedia.org/wiki/Al-Tabari)
+
+### What he did
+- Preserved **multiple versions** of events with full chains of transmission.
+- Used Ibn Isḥāq as a **major source** for the Prophet’s biography.   [Kalamullah.Com](https://kalamullah.com/Books/The%20History%20Of%20Tabari/Tabari_Volume_06.pdf)
+- Included variant reports that Ibn Hishām omitted.
+- Preserved material that would otherwise be lost.
+
+### Relationship to others
+- **Builds on Ibn Isḥāq**, sometimes quoting him directly.
+- **Uses Ibn Hishām’s recension** as one of his channels.
+- **Becomes a major source** for Ibn Kathīr.
+
+---
+
+# 4. Ismāʿīl ibn Kathīr (d. 774 AH / 1373 CE)
+### Role and significance
+Ibn Kathīr is a historian, jurist, and mufassir of the Mamluk era, writing **600 years after Ibn Isḥāq**.
+
+### Major works
+- *Tafsīr Ibn Kathīr* — one of the most influential Qur’an commentaries.
+- *al‑Bidāyah wa’l‑Nihāyah* — a universal history from creation to the end times.
+
+### What he did
+- Synthesised earlier historical works.
+- Applied **hadith criticism** to historical reports.
+- Quoted Ibn Isḥāq, Ibn Hishām, and al‑Ṭabarī extensively.
+- Accepted some reports, rejected others, and explained why.
+
+### Relationship to others
+- **Depends on all three before him**:
+  - Ibn Isḥāq → earliest Sīrah
+  - Ibn Hishām → edited Sīrah
+  - al‑Ṭabarī → massive historical archive
+- His work is the **final stage** in the classical chain of Sīrah historiography.
+
+---
+
+# How they depend on each other (the chain)
+This is the cleanest way to see the intellectual lineage:
+
+**Ibn Isḥāq → Ibn Hishām → al‑Ṭabarī → Ibn Kathīr**
+
+- Ibn Isḥāq **collects** the earliest Sīrah.
+- Ibn Hishām **edits and preserves** it.
+- Al‑Ṭabarī **expands and archives** it with multiple chains.
+- Ibn Kathīr **evaluates and synthesises** it using hadith methodology.
+
+This chain is the backbone of how the Prophet’s biography and early Islamic history reached us.
+
+---
+
+# Summary table
+
+| Scholar | Died | Role | Depends on | Used by |
+|--------|------|------|------------|---------|
+| **Ibn Isḥāq** | 150 AH | First compiler of Sīrah | — | Ibn Hishām, al‑Ṭabarī, Ibn Kathīr |
+| **Ibn Hishām** | 218 AH | Editor of Ibn Isḥāq | Ibn Isḥāq | al‑Ṭabarī, Ibn Kathīr |
+| **al‑Ṭabarī** | 310 AH | Grand historian & exegete | Ibn Isḥāq, Ibn Hishām | Ibn Kathīr |
+| **Ibn Kathīr** | 774 AH | Historian & mufassir | All three | Later scholars |
+
+---
+
+Slip, would you like a **timeline diagram** showing when each lived, or a **comparison of how each one narrates a specific event** (e.g., the Hijrah, Badr, or Uḥud)?
+
+---
+
 ### Imām-al-Tahāwī
 ### 🏛️ **1. Imām al-Tahāwī (d. 321 AH)** — *Al-ʿAqīdah al-Ṭahāwiyyah*
 
