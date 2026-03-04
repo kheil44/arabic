@@ -8,7 +8,7 @@
 ---
 Index
 - [Imām al-Tahāwī](#Imām-al-Tahāwī)
-- [Ibn Isḥāq, Ibn Hishām, al‑Ṭabarī, and Ibn Kathīr](#Ibn-Isḥāq-Ibn-Hishām-etc) ━━━━━━ - [Going to Bed](#Going-to-Bed)
+- [Ibn Isḥāq, Ibn Hishām, al‑Ṭabarī, and Ibn Kathīr](#Ibn-Isḥāq-Ibn-Hishām-etc) ━━━━━━ - [Hadith and its Grading](#Hadith-and-its-Grading)
 
 
 
@@ -202,6 +202,52 @@ Our beloved Prophet ﷺ
 
 # 👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇
 # 👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇
+
+---
+#### Hadith and its Grading
+
+## 📘 Chronological Table of Key Hadith Figures
+
+| Name | Birth (CE / AH) | Era | Role in Hadith Science |
+|------|------------------|------|-------------------------|
+| **Saʿīd ibn al‑Musayyib** | c. 637 CE / 15 AH | Tābiʿīn | Early isnād critic; among first to evaluate narrators |
+| **al‑Shaʿbī (ʿĀmir al‑Shaʿbī)** | c. 640 CE / 20 AH | Tābiʿīn | Early hadith evaluator; distinguished authentic from false |
+| **Ibn Sīrīn (Muḥammad ibn Sīrīn)** | 653 CE / 33 AH | Tābiʿīn | Famous for saying: “This is the era of isnād”; early critic |
+| **Imām Mālik ibn Anas** | 711 CE / 93 AH | Early Imams | Author of *al‑Muwaṭṭaʾ*; early classifier of narrators |
+| **Ibn Isḥāq (Muḥammad ibn Isḥāq)** | 704 CE / 85 AH | Early historians | First compiler of Sīrah; preserved early reports |
+| **Imām al‑Shāfiʿī** | 767 CE / 150 AH | Foundational Usūl era | First to systematise hadith classification in *al‑Risālah* |
+| **Ibn Hishām** | c. 775 CE / 160 AH | Early historians | Editor of Ibn Isḥāq’s Sīrah; transmitter of early reports |
+| **Imām Aḥmad ibn Ḥanbal** | 780 CE / 164 AH | Hadith Imams | Author of *Musnad*; major hadith authority |
+| **Imām al‑Bukhārī** | 810 CE / 194 AH | Golden Age of Hadith | Author of *Ṣaḥīḥ al‑Bukhārī*; perfected ṣaḥīḥ criteria |
+| **Imām Muslim** | 821 CE / 206 AH | Golden Age | Author of *Ṣaḥīḥ Muslim*; refined classification |
+| **Imām Abū Dāwūd** | 817 CE / 202 AH | Golden Age | Compiler of *Sunan Abī Dāwūd* |
+| **Imām al‑Tirmidhī** | 824 CE / 209 AH | Golden Age | First to define *ḥasan* as a technical category |
+| **Imām al‑Nasaʾī** | 829 CE / 214 AH | Golden Age | Compiler of *Sunan al‑Nasaʾī* |
+| **Ibn Jarīr al‑Ṭabarī** | 839 CE / 224 AH | Classical historians | Author of *Tārīkh al‑Ṭabarī*; preserved early chains |
+| **Ibn Mājah** | 824 CE / 209 AH | Golden Age | Compiler of *Sunan Ibn Mājah* |
+| **Ibn Ḥibbān** | 884 CE / 270 AH | Classical critics | Author of *Ṣaḥīḥ Ibn Ḥibbān*; narrator grading |
+| **al‑Dāraqutnī** | 918 CE / 306 AH | Classical critics | Expert in defects (*ʿilal*) of hadith |
+| **Ibn ʿAbd al‑Barr** | 978 CE / 368 AH | Andalusian era | Historian of narrators; author of *al‑Istidhkār* |
+| **al‑Bayhaqī** | 994 CE / 384 AH | Classical era | Combined fiqh + hadith; author of *al‑Sunan al‑Kubrá* |
+| **Ibn al‑Ṣalāḥ** | 1181 CE / 577 AH | Post‑classical | Author of *Muqaddimah Ibn al‑Ṣalāḥ*; formalised terminology |
+| **al‑Nawawī** | 1233 CE / 631 AH | Post‑classical | Commentator on Bukhārī/Muslim; refined classifications |
+| **Ibn Taymiyyah** | 1263 CE / 661 AH | Post‑classical | Major critic of fabricated reports |
+| **Ibn Kathīr** | 1300 CE / 700 AH | Late classical | Historian; used and evaluated earlier hadith sources |
+| **Ibn Ḥajar al‑ʿAsqalānī** | 1372 CE / 773 AH | Final codification era | Author of *Nukhbat al‑Fikar*; finalised hadith terminology |
+| **al‑Suyūṭī** | 1445 CE / 849 AH | Late classical | Compiler, summariser, and commentator on hadith sciences |
+
+---
+
+## 🧭 How to read this table
+- The **earliest figures** (Tābiʿīn) began *criticising narrators*.  
+- **Imām al‑Shāfiʿī** was the **first to formalise hadith classification**.  
+- **al‑Tirmidhī** introduced the category *ḥasan*.  
+- **Bukhārī and Muslim** perfected the criteria for *ṣaḥīḥ*.  
+- **Ibn al‑Ṣalāḥ → Ibn Ḥajar → al‑Suyūṭī** represent the **final codification** of the science.
+
+This gives you a **complete chronological map** of how hadith science evolved from raw transmission → early criticism → formal classification → final codification.
+
+If you want, I can also produce a **timeline diagram** showing how each scholar overlaps with the next and how the science matured across centuries.
 
 ---
 
