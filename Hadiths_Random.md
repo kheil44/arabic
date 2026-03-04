@@ -9,7 +9,7 @@
 Index
 - [Imām al-Tahāwī](#Imām-al-Tahāwī)
 - [Ibn Isḥāq, Ibn Hishām, al‑Ṭabarī, and Ibn Kathīr](#Ibn-Isḥāq-Ibn-Hishām-etc) ━━━━━━ - [Hadith and its Grading](#Hadith-and-its-Grading)
-- [Top Hadith Narrators](#Top-Hadith-Narrators) ━━━━━━ - [Imām al-Tahāwī](#Imām-al-Tahāwī)
+- [Top Hadith Narrators](#Top-Hadith-Narrators) ━━━━━━ - [six Abdullahs](#six-Abdullahs)
 - [Imām al-Tahāwī](#Imām-al-Tahāwī) ━━━━━━ - [Imām al-Tahāwī](#Imām-al-Tahāwī)
 
 
@@ -204,6 +204,124 @@ Our beloved Prophet ﷺ
 
 # 👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇
 # 👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇
+
+---
+
+#### six Abdullahs
+
+
+## 1. ʿAbdullāh ibn ʿUmar (ra) — The Embodiment of the Sunnah
+Born **c. 610 CE**, died **693 CE**.   [Wikipedia](https://en.wikipedia.org/wiki/Abd_Allah_ibn_Umar_ibn_al-Khattab)  
+Son of **ʿUmar ibn al‑Khaṭṭāb**, and one of the most meticulous followers of the Prophet ﷺ.
+
+### Role in Islam
+- Known for **precise imitation** of the Prophet’s actions.  
+- A major narrator of hadith (~2,630).  
+- Avoided political conflict; focused on worship and transmission.  
+- His narrations shaped **Madinan practice**, influencing Mālikī and Shāfiʿī fiqh.
+
+### Teaching Legacy
+- Students: Nāfiʿ (his freed slave), Sālim ibn ʿAbdullāh, and many Medinan jurists.  
+- His chain **(Ibn ʿUmar → Nāfiʿ → Mālik)** is one of the strongest isnāds in hadith.
+
+---
+
+## 2. ʿAbdullāh ibn ʿAbbās (ra) — The Scholar of Tafsīr
+Born **619 CE**, died **687–688 CE**.  
+The Prophet’s **cousin**, known as *Tarjumān al‑Qur’ān*.
+
+### Role in Islam
+- Foremost authority on **Qur’anic interpretation**.  
+- Narrated ~1,660 hadith.  
+- The Prophet ﷺ made duʿā’ for him: *“O Allah, teach him interpretation.”*
+
+### Teaching Legacy
+- Students: Mujāhid, ʿIkrimah, Ṭāwūs, Saʿīd ibn Jubayr.  
+- His tafsīr forms the backbone of classical works like **al‑Ṭabarī**.
+
+---
+
+## 3. ʿAbd Allāh ibn Masʿūd (ra) — The Qur’an Master and Iraqi Jurist
+Born **c. 594 CE**, died **c. 653 CE**.  
+One of the earliest Muslims and closest Companions.
+
+### Role in Islam
+- Among the **top authorities** in Qur’an recitation and tafsīr.  
+- Narrated ~800 hadith.  
+- Participated in **Badr** and all major battles.  
+- His legal reasoning shaped the **Iraqi school**, later the Hanafi madhhab.
+
+### Teaching Legacy
+- Students: ʿAlqamah, al‑Aswad, Ibrāhīm al‑Nakhaʿī.  
+- His chain **(Ibn Masʿūd → ʿAlqamah → Ibrāhīm → Ḥammād → Abū Ḥanīfah)** is the backbone of early Iraqi fiqh.
+
+---
+
+## 4. ʿAbdullāh ibn ʿAmr ibn al‑ʿĀṣ (ra) — The Hadith Scribe
+One of the **four famous Abādilah**.   [Abu Khadeejah](https://abukhadeejah.com/the-four-famous-abdullahs-abadilah-among-the-sahabah/)  
+Born **c. 614 CE**, died **684 CE**.
+
+### Role in Islam
+- One of the **earliest hadith writers**.  
+- Had permission from the Prophet ﷺ to **write everything he heard**.  
+- Narrated ~700 hadith.  
+- Known for deep worship and asceticism.
+
+### Teaching Legacy
+- His written collection *al‑Ṣaḥīfah al‑Ṣādiqah* is one of the earliest hadith manuscripts.  
+- Influenced later hadith scholars through preserved narrations.
+
+---
+
+## 5. ʿAbdullāh ibn al‑Zubayr (ra) — The Warrior‑Scholar
+Also one of the **four Abādilah**.   [Abu Khadeejah](https://abukhadeejah.com/the-four-famous-abdullahs-abadilah-among-the-sahabah/)  
+Born **622 CE** (the year of Hijrah), died **692 CE**.
+
+### Role in Islam
+- Son of **al‑Zubayr ibn al‑ʿAwwām** and **Asmāʾ bint Abī Bakr**.  
+- First child born to the Muslims in Medina.  
+- A courageous warrior and a respected scholar.  
+- Narrated ~150 hadith.
+
+### Teaching Legacy
+- His narrations influenced Medinan fiqh.  
+- His political leadership (as caliph in Mecca) shaped early Islamic history.
+
+---
+
+## 6. ʿAbdullāh ibn ʿAmr (ra) — The Fourth of the Abādilah
+Already covered above, but included here because he is part of the canonical four.  
+He is grouped with Ibn ʿUmar, Ibn ʿAbbās, and Ibn al‑Zubayr as the **“Four Abdullahs”** — the young Companions who became major scholars.   [Abu Khadeejah](https://abukhadeejah.com/the-four-famous-abdullahs-abadilah-among-the-sahabah/)
+
+---
+
+## How these six ʿAbdullāhs relate to each other
+
+### Family relationships
+- **Ibn ʿAbbās** is the **Prophet’s cousin**.  
+- **Ibn al‑Zubayr** is the **grandson of Abū Bakr**.  
+- **Ibn ʿUmar** is the **son of ʿUmar ibn al‑Khaṭṭāb**.  
+- **Ibn Masʿūd** and **Ibn ʿAmr** are not related to the Prophet’s family.
+
+### Did they meet?
+Yes — all six lived during the Prophet’s life and interacted with each other as Companions.
+
+### Their specializations
+- **Ibn Masʿūd** → Qur’an, fiqh, Iraqi school  
+- **Ibn ʿAbbās** → Tafsīr, language  
+- **Ibn ʿUmar** → Sunnah practice, worship  
+- **Ibn ʿAmr** → Hadith writing  
+- **Ibn al‑Zubayr** → Leadership, courage, Medinan scholarship  
+
+### Their influence on later Islamic sciences
+- **Hanafi fiqh** traces heavily to Ibn Masʿūd.  
+- **Mālikī fiqh** draws from Ibn ʿUmar and Ibn al‑Zubayr.  
+- **Tafsīr** is dominated by Ibn ʿAbbās.  
+- **Hadith preservation** owes much to Ibn ʿAmr’s early writing.
+
+---
+
+If you want, I can build a **single comparative table** showing all six side‑by‑side by birth, death, specialization, and influence.
 
 ---
 
