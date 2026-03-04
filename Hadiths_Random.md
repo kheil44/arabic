@@ -9,6 +9,8 @@
 Index
 - [Imām al-Tahāwī](#Imām-al-Tahāwī)
 - [Ibn Isḥāq, Ibn Hishām, al‑Ṭabarī, and Ibn Kathīr](#Ibn-Isḥāq-Ibn-Hishām-etc) ━━━━━━ - [Hadith and its Grading](#Hadith-and-its-Grading)
+- [Top Hadith Narrators](#Top-Hadith-Narrators) ━━━━━━ - [Imām al-Tahāwī](#Imām-al-Tahāwī)
+- [Imām al-Tahāwī](#Imām-al-Tahāwī) ━━━━━━ - [Imām al-Tahāwī](#Imām-al-Tahāwī)
 
 
 
@@ -202,6 +204,86 @@ Our beloved Prophet ﷺ
 
 # 👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇
 # 👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇👇
+
+---
+
+#### Top Hadith Narrators
+
+## The Seven Most Prolific Hadith Narrators Among the Ṣaḥābah
+
+### 1. **Abū Hurayrah (ʿAbd al‑Raḥmān ibn Ṣakhr al‑Dawsī)**
+- **Narrations:** ~5,374  
+- **Died:** 59 AH  
+- Known for dedicating himself fully to the Prophet ﷺ in the later Medinan years, which explains his unusually high count.
+
+### 2. **ʿAbdullāh ibn ʿUmar ibn al‑Khaṭṭāb**
+- **Narrations:** ~2,630  
+- **Died:** 73 AH  
+- Famous for strict adherence to the Sunnah and meticulous transmission.
+
+### 3. **Anas ibn Mālik**
+- **Narrations:** ~2,286  
+- **Died:** 93 AH  
+- Served the Prophet ﷺ for ten years, giving him unique access to daily life.
+
+### 4. **ʿĀ’ishah bint Abī Bakr (Umm al‑Mu’minīn)**
+- **Narrations:** ~2,210  
+- **Died:** 58 AH  
+- One of the most important jurists among the Companions; transmitted intimate and domestic aspects of the Prophet’s life.
+
+### 5. **ʿAbdullāh ibn ʿAbbās**
+- **Narrations:** ~1,660  
+- **Died:** 68 AH  
+- The foremost authority in tafsīr; his narrations often include explanations and context.
+
+### 6. **Jābir ibn ʿAbdillāh al‑Anṣārī**
+- **Narrations:** ~1,540  
+- **Died:** 78 AH  
+- Known for narrations on pilgrimage, transactions, and social matters.
+
+### 7. **Abū Saʿīd al‑Khudrī (Saʿd ibn Mālik ibn Sinān)**
+- **Narrations:** ~1,170  
+- **Died:** 74 AH  
+- Narrated extensively on legal rulings and communal practices.
+
+---
+
+## Summary Table (Ranked by Number of Hadith)
+
+| Rank | Companion | Approx. Number of Hadith | Death (AH) |
+|------|-----------|---------------------------|-------------|
+| 1 | **Abū Hurayrah** | 5,374 | 59 AH |
+| 2 | **Ibn ʿUmar** | 2,630 | 73 AH |
+| 3 | **Anas ibn Mālik** | 2,286 | 93 AH |
+| 4 | **ʿĀ’ishah** | 2,210 | 58 AH |
+| 5 | **Ibn ʿAbbās** | 1,660 | 68 AH |
+| 6 | **Jābir ibn ʿAbdillāh** | 1,540 | 78 AH |
+| 7 | **Abū Saʿīd al‑Khudrī** | 1,170 | 74 AH |
+
+  [muwatta.com](https://www.muwatta.com/the-sahabah-who-related-the-most-hadith/)  [Abu Khadeejah](https://abukhadeejah.com/the-seven-most-prolific-narrators-of-hadeeth-from-the-sahabah-in-order/)
+
+---
+
+## Additional Context That Shapes These Numbers
+
+- **Access to the Prophet ﷺ:**  
+  Companions like Anas and ʿĀ’ishah lived in the Prophet’s household or served him directly.
+
+- **Longevity:**  
+  Anas lived to 103 years, giving him decades to teach students.
+
+- **Focus on transmission:**  
+  Abū Hurayrah devoted himself almost entirely to learning and transmitting hadith.
+
+- **Specialisation:**  
+  Ibn ʿAbbās specialised in tafsīr; ʿĀ’ishah in fiqh and domestic matters; Ibn ʿUmar in Sunnah practice.
+
+- **Students:**  
+  Abū Hurayrah had over 800 students, which increased the spread and preservation of his narrations.
+
+---
+
+If you want, I can also list **the next tier of narrators** (those with 500–1,000 narrations), or map out **which topics each Companion specialised in**, giving you a clearer sense of how the hadith corpus was shaped.
 
 ---
 #### Hadith and its Grading
