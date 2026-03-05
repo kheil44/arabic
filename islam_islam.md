@@ -2435,143 +2435,38 @@ If you need references from major Arabic biographical works (e.g., Siyar Aʿlām
 ## Wudu
 
 1- Start by saying 'bismillah' first
-2- after
 
-Absolutely! Here's a **precise and thorough explanation** of the three supplications you've requested. Each duʿāʾ includes:
+2- Many Hadith and videos how to perform wudu.....watch....
 
-- **Arabic text** with correct tashkīl (harakāt),  
-- **Transliteration**,  
-- **Clear English translation**,  
-- **Vocabulary breakdown** (word-by-word),  
-- And **full authentic sources** (hadith references).  
+3- after
 
-# ✨ 1. **اللَّهُمَّ اجْعَلْنِي مِنَ التَّوَّابِينَ وَاجْعَلْنِي مِنَ الْمُتَطَهِّرِينَ**
+Here is the **exact extended dhikr after wuḍū’** — the *shahādah* plus *tawwābīn* and *muṭaṭahhirīn* — written with **full ḥarakāt**, **precise transliteration**, and **clear meaning**.
 
-### 🟨 Arabic (Harakāt):
+---
 
-**اللَّهُمَّ اجْعَلْنِي مِنَ التَّوَّابِينَ، وَاجْعَلْنِي مِنَ الْمُتَطَهِّرِينَ**
+## 🌿 **Full Extended Supplication After Wuḍū’ (Authentic)**
 
-### 🔤 Transliteration:
+### **Arabic (with full ḥarakāt)**
+**أَشْهَدُ أَنْ لَا إِلٰهَ إِلَّا اللهُ وَحْدَهُ لَا شَرِيكَ لَهُ، وَأَشْهَدُ أَنَّ مُحَمَّدًا عَبْدُهُ وَرَسُولُهُ.  
+اللَّهُمَّ اجْعَلْنِي مِنَ التَّوَّابِينَ، وَاجْعَلْنِي مِنَ الْمُتَطَهِّرِينَ.**
 
-**Allāhumma ajʿalnī mina at-tawwābīn, wajʿalnī mina al-muṭahhirīn**
+---
 
-### 🌍 Translation:
+### **Transliteration**
+**Ashhadu an lā ilāha illā Allāhu waḥdahu lā sharīka lah,  
+wa ashhadu anna Muḥammadan ʿabduhu wa rasūluh.  
+Allāhumma’jʿalnī mina’t‑tawwābīn,  
+wajʿalnī mina’l‑muṭaṭahhirīn.**
 
-**“O Allah, make me among those who often repent, and make me among those who purify themselves.”**
+---
 
-## 🧠 Vocabulary Breakdown:
+### **Meaning**
+“I bear witness that there is no god except Allah alone with no partner, and I bear witness that Muhammad is His servant and Messenger.  
+O Allah, make me among those who constantly repent, and make me among those who purify themselves.”
 
-| Arabic Term | Meaning |
-|-------------|---------|
-| **اللَّهُمَّ** | "O Allah" (vocative form: calling on Allah directly) |
-| **اجْعَلْنِي** | "Make me" |
-| **مِنَ** | "From" or "among" |
-| **التَّوَّابِينَ** | "Those who repent constantly" |
-| **وَاجْعَلْنِي** | "And make me" |
-| **الْمُتَطَهِّرِينَ** | "Those who purify themselves" — physically and spiritually |
+---
 
-📘 **Hadith Source:**
-
-Narrated by ‘Umar ibn al-Khaṭṭāb (رضي الله عنه):  
-> “Whoever performs wudu and says:  
-> **‘Ashhadu an lā ilāha illā Allāh...** and adds:  
-> **اللَّهُمَّ اجْعَلْنِي مِنَ التَّوَّابِينَ وَاجْعَلْنِي مِنَ الْمُتَطَهِّرِينَ,’**  
-> it will be written for him in a parchment and sealed with a seal, and it will not be broken until the Day of Resurrection.”
-
-📚 **Sunan al-Tirmidhi 55**  
-✅ Graded **ḥasan** (good) by al-Tirmidhi and authenticated by Al-Albānī in *Ṣaḥīḥ al-Tirmidhī*.  
-🔗 [Sunnah.com link](https://sunnah.com/tirmidhi:55)
-
-# ✨ 2. **سُبْحَانَكَ اللَّهُمَّ وَبِحَمْدِكَ، أَشْهَدُ أَلَا إِلٰهَ إِلَّا أَنْتَ، أَسْتَغْفِرُكَ وَأَتُوبُ إِلَيْكَ**
-
-### 🟨 Arabic (Harakāt):
-
-**سُبْحَانَكَ اللَّهُمَّ وَبِحَمْدِكَ، أَشْهَدُ أَلَا إِلٰهَ إِلَّا أَنْتَ، أَسْتَغْفِرُكَ وَأَتُوبُ إِلَيْكَ**
-
-### 🔤 Transliteration:
-
-**Subḥānaka Allāhumma wa bi-ḥamdik, ash-hadu allā ilāha illā anta, astaghfiruka wa atūbu ilayk**
-
-### 🌍 Translation:
-
-**“Glory is to You, O Allah, and praise. I bear witness that there is none worthy of worship except You. I seek Your forgiveness and turn in repentance to You.”**
-
-## 🧠 Vocabulary Breakdown:
-
-| Arabic Word | Meaning |
-|-------------|---------|
-| **سُبْحَانَكَ** | "Glory be to You" (declaring Allah free from imperfection) |
-| **اللَّهُمَّ** | "O Allah" (calling upon Allah) |
-| **وَبِحَمْدِكَ** | "And with Your praise" |
-| **أَشْهَدُ** | "I bear witness" |
-| **أَلَا إِلٰهَ إِلَّا أَنْتَ** | "There is no god but You" |
-| **أَسْتَغْفِرُكَ** | "I seek Your forgiveness" |
-| **وَأَتُوبُ إِلَيْكَ** | "And I repent to You" |
-
-📘 **Hadith Source:**
-
-From Abu Sa‘īd al-Khudrī (رضي الله عنه), the Prophet ﷺ said:  
-> “Whoever performs wudu, then says:  
-> **‘Subḥānaka Allāhumma wa bi-ḥamdik…’**,  
-> all eight doors of Paradise will be opened for him.”
-
-📚 **Sunan an-Nasā’ī 148**  
-✅ Graded **sahih** by Al-Albani in *Ṣaḥīḥ al-Jāmiʿ*, Hadith 6410  
-🔗 [Sunan an-Nasa’i 148](https://sunnah.com/nasai:148)
-
-# ✨ 3. **أَشْهَدُ أَنْ لا إِلَـهَ إِلاّ اللَّهُ وَحْدَهُ لا شَريكَ لَـهُ، وَأَشْهَدُ أَنَّ مُحَمَّداً عَبْدُهُ وَرَسُولُهُ**
-
-### 🟨 Arabic (Harakāt):
-
-**أَشْهَدُ أَنْ لَا إِلَهَ إِلَّا اللَّهُ، وَحْدَهُ لَا شَرِيكَ لَهُ، وَأَشْهَدُ أَنَّ مُحَمَّدًا عَبْدُهُ وَرَسُولُهُ**
-
-### 🔤 Transliteration:
-
-**Ash-hadu an lā ilāha illā-llāh, waḥdahu lā sharīka lah, wa ash-hadu anna Muḥammadan ʿabduhū wa rasūluh**
-
-### 🌍 Translation:
-
-**“I bear witness that there is no deity but Allah, alone with no partner; and I bear witness that Muhammad is His servant and Messenger.”**
-
-## 🧠 Vocabulary Breakdown:
-
-| Arabic Word | Meaning |
-|-------------|---------|
-| **أَشْهَدُ** | "I testify, I witness" |
-| **أَنْ** | "That" |
-| **لَا إِلَهَ** | "There is no god/deity" |
-| **إِلَّا اللَّهُ** | "Except Allah" |
-| **وَحْدَهُ** | "Alone" |
-| **لَا شَرِيكَ لَهُ** | "No partner for Him" |
-| **وَأَشْهَدُ** | "And I testify" |
-| **أَنَّ مُحَمَّدًا** | "That Muhammad" |
-| **عَبْدُهُ** | "Is His servant" |
-| **وَرَسُولُهُ** | "And His messenger" |
-
-📘 **Hadith Source:**
-
-From ‘Uqbah ibn ‘Āmir (رضي الله عنه), the Prophet ﷺ said:
-
-> “Whoever performs wudu properly, then says:  
-> **‘Ash-hadu an lā ilāha illā Allāh, waḥdahu lā sharīka lah…’**,  
-> the eight gates of Paradise will be opened for him.”  
-— **Ṣaḥīḥ Muslim 234**  
-🔗 [Sahih Muslim 234](https://sunnah.com/muslim:234)
-
-# ✅ Summary Comparison Table
-
-| Duʿāʾ | Arabic (Harakāt) | Translation | Source |
-|-------|------------------|-------------|--------|
-| **1** | اللَّهُمَّ اجْعَلْنِي مِنَ التَّوَّابِينَ... | O Allah, make me among those who repent... | Tirmidhi 55 |
-| **2** | سُبْحَانَكَ اللَّهُمَّ وَبِحَمْدِكَ... | Glory is to You, O Allah... I seek forgiveness | Sunan an-Nasā’i 148 |
-| **3** | أَشْهَدُ أَنْ لَا إِلٰهَ إِلَّا اللَّهُ، وَحْدَهُ ... | I bear witness there is no god but Allah... | Sahih Muslim 234 |
-
-Would you like a:
-- Printable version?
-- PDF poster with Arabic + transliteration + translation?
-- Audio recitation for memorization?
-
-Let me know and I’ll be happy to provide it!
+If you want this formatted as a **small card**, **for memorisation**, or **with tajwīd-style colouring**, just tell me how you’d like it.
 
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
