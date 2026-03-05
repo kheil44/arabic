@@ -2432,13 +2432,14 @@ If you need references from major Arabic biographical works (e.g., Siyar Aʿlām
 ---
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
+💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧
 ## Wudu
 
 1- Start by saying 'bismillah' first
 
 2- Many Hadith and videos how to perform wudu.....watch....
 
-3- after
+3- after finishing wudu, say the following extened Supplication.
 
 Here is the **exact extended dhikr after wuḍū’** — the *shahādah* plus *tawwābīn* and *muṭaṭahhirīn* — written with **full ḥarakāt**, **precise transliteration**, and **clear meaning**.
 
@@ -2467,7 +2468,7 @@ O Allah, make me among those who constantly repent, and make me among those who 
 ---
 
 If you want this formatted as a **small card**, **for memorisation**, or **with tajwīd-style colouring**, just tell me how you’d like it.
-
+💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧💧
 
 🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰🟰  
 
