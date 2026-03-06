@@ -1,4 +1,12 @@
 
+- https://sunnah.com/bukhari:5673  ..... also in Sahi Muslim
+- https://sunnah.com/muslim:2818a
+
+I heard Allah's Messenger (ﷺ) saying, "The good deeds of any person will not make him enter Paradise." (i.e., None can enter Paradise through his good deeds.) They (the Prophet's companions) said, 'Not even you, O Allah's Messenger (ﷺ)?' He said, "Not even myself, unless Allah bestows His favor and mercy on me." So be moderate in your religious deeds and do the deeds that are within your ability: and none of you should wish for death, for if he is a good doer, he may increase his good deeds, and if he is an evil doer, he may repent to Allah."
+
+Reference	 : Sahih al-Bukhari 5673
+In-book reference	 : Book 75, Hadith 33
+
 ---
 
 =
