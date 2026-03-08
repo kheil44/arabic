@@ -25,6 +25,25 @@ Index
 ---
 
 
+---
+### from surah Al Anam 160;
+
+Ahmad also recorded that Abu Dharr said that the Messenger of Allah ﷺ said,
+
+«يَقُولُ اللهُ عَزَّ وَجَلَّ:مَنْ عَمِلَ حَسَنَةً فَلَهُ عَشْرُ أَمْثَالِهَا وَأَزِيدُ وَمَنْ عَمِلَ سَيِّئَةً فَجَزَاؤُهَا مِثْلُهَا أَوْ أَغْفِرُ وَمَنْ عَمِلَ قُرَابَ الْأَرْضِ خَطِيئَةً ثُمَّ لَقِيَنِي لَا يُشْرِكُ بِي شَيْئًا جَعَلْتُ لَهُ مِثْلَهَا مَغْفِرَةً، وَمَنِ اقْتَرَبَ إِليَّ شِبْرًا اقْتَرَبْتُ إِلَيْهِ ذِرَاعًا وَمَنِ اقْتَرَبَ إِلَيَّ ذِرَاعًا اقْتَرَبْتُ إِلَيْهِ بَاعًا وَمَنْ أَتَانِي يَمْشِي أَتَيْتُهُ هَرْوَلَة»
+
+(Allah says, `Whoever performs a good deed, will have tenfold for it and more. Whoever commits a sin, then his recompense will be the same, unless I forgive. Whoever commits the earth's fill of sins and then meets Me while associating none with Me, I will give him its fill of forgiveness. Whoever draws closer to Me by a hand's span, I will draw closer to him by a forearm's length. Whoever draws closer to Me by a forearm's length, I will draw closer to him by an arm's length. And whoever comes to Me walking, I will come to him running.') Muslim also collected this Hadith. Know that there are three types of people who refrain from committing a sin that they intended. There are those who refrain from committing the sin because they fear Allah, and thus will have written for them a good deed as a reward. This type contains both a good intention and a good deed. In some narrations of the Sahih, Allah says about this type, "He has left the sin for My sake." Another type does not commit the sin because of forgetfulness or being busy attending to other affairs. This type of person will neither earn a sin, nor a reward. The reason being that, this person did not intend to do good, nor commit evil. Some people abandon the sin because they were unable to commit it or due to laziness, after trying to commit it and seeking the means that help commit it. This person is just like the person who commits the sin. There is an authentic Hadith that states,
+
+«إِذَا الْتَقَى الْمُسْلِمَانِ بِسَيْفَيْهِمَا فَالْقَاتِلُ وَالْمَقْتُولُ فِي النَّار»
+
+(When two Muslims meet with their swords, then the killer and the killed will be in the Fire.) They said, "O Allah's Messenger! We know about the killer, so what about the killed" He said,
+
+«إِنَّهُ كَانَ حَرِيصًا عَلَى قَتْلِ صَاحِبِه»
+
+(He was eager to kill his companion.
+
+---
+
 ### _______________________
 #### some verses of Surah will come (Reveal) after some times e.g in case of Surah An-Nisa ,after two weeks and such.
 
