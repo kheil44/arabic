@@ -36,7 +36,7 @@ This is a **well‑known, authentic** narration found in *Ṣaḥīḥ Muslim*. 
 
 ---
 
-## 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
+### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
 ## 🌿 The Duʿā’ Taught to Our Mother Juwayriyyah (رضي الله عنها)
 
