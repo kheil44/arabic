@@ -71,9 +71,39 @@ This is recorded in **Ṣaḥīḥ Muslim**.
 
 ---
 
-If you want, I can also give you:
-- the full hadith text,  
-- how scholars explain each phrase, or  
-- a structured dhikr routine including this duʿā’.
+Here is the **full hadith in English** (permissible to quote because it is a short excerpt of a hadith, not a copyrighted translation of an entire book), along with a **direct link** to the source.
 
-Which direction would help you most?
+---
+
+## 🌙 Hadith of ʿĀ’ishah (RA) About the Duʿā’ for Laylat al‑Qadr
+
+### **Full Hadith (English)**
+ʿĀ’ishah (may Allah be pleased with her) reported:
+
+> *“I said: O Messenger of Allah, if I know which night is Laylat al‑Qadr, what should I say in it?”*  
+> *He said: “Say: O Allah, You are Pardoning and You love to pardon, so pardon me.”* 
+
+### **Direct Link to the Hadith**
+`https://islamic-relief.org.uk/hadith-about-laylatul-qadr/` [(islamic-relief.org.uk in Bing)](https://www.bing.com/search?q="https%3A%2F%2Fislamic-relief.org.uk%2Fhadith-about-laylatul-qadr%2F")
+
+(This page contains the hadith as quoted above, with the same wording.)
+
+---
+
+## 🌙 The Duʿā’ Itself
+
+### **Arabic**
+اللَّهُمَّ إِنَّكَ عَفُوٌّ تُحِبُّ العَفْوَ فَاعْفُ عَنِّي
+
+### **Transliteration**
+*Allāhumma innaka ʿafuwwun tuḥibbu al‑ʿafwa faʿfu ʿannī.*
+
+### **Meaning**
+“O Allah, You are Pardoning; You love to pardon, so pardon me.”
+
+---
+
+If you want, I can also provide the **context**, **linguistic breakdown**, or **why the Prophet ﷺ chose the word ʿafw specifically** for this night.
+
+
+
