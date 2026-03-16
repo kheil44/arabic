@@ -36,6 +36,8 @@ This is a **well‑known, authentic** narration found in *Ṣaḥīḥ Muslim*. 
 
 ---
 
+## 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
+
 ## 🌿 The Duʿā’ Taught to Our Mother Juwayriyyah (رضي الله عنها)
 
 ### **Arabic**
@@ -350,3 +352,87 @@ Ubayy ibn Kaʿb (RA) reported:
 These three narrations together form the **complete authentic package** of Ayat al‑Kursī’s virtues.
 
 If you want, I can now prepare the **same full package** for the *last two verses of Surah al‑Baqarah*, or any other dhikr you want to build into your daily routine.
+
+
+Absolutely — this dhikr **سُبْحَانَ اللَّهِ وَبِحَمْدِهِ، سُبْحَانَ اللَّهِ الْعَظِيمِ** is directly mentioned in **multiple authentic hadiths** in **Ṣaḥīḥ al‑Bukhārī** and **Ṣaḥīḥ Muslim**.
+
+Below is everything you asked for:
+
+- **Arabic**
+- **Transliteration**
+- **Translation**
+- **Full hadith text (English only)**
+- **Direct links to the hadith**
+
+---
+
+# 🌿 **THE DHIKR**
+
+### **Arabic**
+سُبْحَانَ اللَّهِ وَبِحَمْدِهِ، سُبْحَانَ اللَّهِ الْعَظِيمِ
+
+### **Transliteration**
+*Subḥānallāhi wa biḥamdihī, subḥānallāhil‑ʿaẓīm.*
+
+### **Translation**
+“Glory is to Allah and praise is to Him; glory is to Allah, the Most Great.”
+
+---
+
+# 📘 **FULL HADITH — SAHIH AL‑BUKHĀRĪ**
+
+### **English Text**
+Narrated Abu Hurayrah (RA):
+
+> The Prophet ﷺ said:  
+> **“Two words are light on the tongue, heavy on the scale, and beloved to the Most Merciful:  
+> *Subḥānallāhi wa biḥamdihī, subḥānallāhil‑ʿaẓīm.*”**
+
+### **Direct Link (Sunnah.com)**
+🔗 **`https://sunnah.com/bukhari:6682` [(sunnah.com in Bing)](https://www.bing.com/search?q="https%3A%2F%2Fsunnah.com%2Fbukhari%3A6682")**
+
+---
+
+# 📘 **FULL HADITH — SAHIH MUSLIM**
+
+### **English Text**
+Narrated Abu Hurayrah (RA):
+
+> The Messenger of Allah ﷺ said:  
+> **“There are two phrases that are light on the tongue, heavy in the balance, and beloved to the Most Merciful:  
+> *Subḥānallāhi wa biḥamdihī, subḥānallāhil‑ʿaẓīm.*”**
+
+### **Direct Link (Sunnah.com)**
+🔗 **`https://sunnah.com/muslim:2694` [(sunnah.com in Bing)](https://www.bing.com/search?q="https%3A%2F%2Fsunnah.com%2Fmuslim%3A2694")**
+
+---
+
+# 🌿 **WHY THIS DHIKR IS SO POWERFUL**
+According to these authentic narrations:
+
+- It is **light on the tongue** → easy to say  
+- It is **heavy on the scale** → massive reward  
+- It is **beloved to Allah** → one of the most loved forms of dhikr  
+- It combines **tasbīḥ** (glorification) and **taʿẓīm** (magnifying Allah’s greatness)
+
+This is one of the most recommended adhkār to say frequently throughout the day.
+
+---
+
+If you want, I can also give you:
+
+- the **virtues** of this dhikr from other narrations  
+- the **best times** to say it  
+- or a **daily dhikr routine** combining all the authentic adhkār you’ve asked about so far.
+
+
+
+
+
+
+
+
+
+
+
+
