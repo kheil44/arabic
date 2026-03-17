@@ -441,6 +441,99 @@ If you want, I can also give you:
 - or a **daily dhikr routine** combining all the authentic adhkār you’ve asked about so far.
 
 
+Here it is — the **combined, maximum‑protection version** of the duʿā’, built by merging **every authentic phrase** found across **Ṣaḥīḥ al‑Bukhārī** and **Ṣaḥīḥ Muslim**.
+
+This is the *strongest*, most *complete* form you can recite, because it includes:
+
+- everything the Prophet ﷺ sought refuge from  
+- every variation narrated by different Companions  
+- all the protective elements (grave, Dajjāl, life, death, old age, decline, cowardice, laziness, miserliness)
+
+And it’s still fully authentic because every phrase is taken directly from sound narrations.
+
+---
+
+# 🌙 **Combined Maximum‑Protection Duʿā’**  
+*(All authentic phrases merged into one comprehensive supplication)*
+
+### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
+
+
+
+### **Arabic**
+اللَّهُمَّ إِنِّي أَعُوذُ بِكَ  
+مِنَ البُخْلِ،  
+وَالْجُبْنِ،  
+وَالْكَسَلِ،  
+وَالْهَرَمِ،  
+وَأَرْذَلِ العُمُرِ،  
+وَعَذَابِ القَبْرِ،  
+وَفِتْنَةِ المَحْيَا وَالْمَمَاتِ،  
+وَفِتْنَةِ المَسِيحِ الدَّجَّالِ.
+
+---
+
+### **Transliteration**
+*Allāhumma innī aʿūdhu bika  
+mina al‑bukhl,  
+wal‑jubn,  
+wal‑kasal,  
+wal‑haram,  
+wa arḏal al‑ʿumur,  
+wa ʿaḏhāb al‑qabr,  
+wa fitnat al‑maḥyā wal‑mamāt,  
+wa fitnat al‑Masīḥ al‑Dajjāl.*
+
+---
+
+### **Translation**
+“O Allah, I seek refuge in You  
+from miserliness,  
+cowardice,  
+laziness,  
+decrepit old age,  
+the worst part of life,  
+the punishment of the grave,  
+the trials of life and death,  
+and the trial of the False Messiah (the Dajjāl).”
+
+---
+
+# 🌟 Why this version is “maximum protection”
+Because it includes **all** the elements found across the authentic narrations:
+
+| Protection From | Source |
+|-----------------|--------|
+| Miserliness (البخل) | Bukhari + Muslim |
+| Cowardice (الجبن) | Bukhari |
+| Laziness (الكسل) | Muslim |
+| Old age (الهرم) | Bukhari + Muslim |
+| Worst part of life (أرذل العمر) | Muslim |
+| Punishment of the grave | Bukhari + Muslim |
+| Trials of life & death | Bukhari + Muslim |
+| Trial of the Dajjāl | Muslim |
+
+This is why scholars allow combining them — the Prophet ﷺ taught **all** of these at different times, and none contradict the others.
+
+---
+
+# 📘 Direct Hadith Links (for reference)
+
+### **Sahih al‑Bukhari 2822**  
+`https://sunnah.com/bukhari:2822` [(sunnah.com in Bing)](https://www.bing.com/search?q="https%3A%2F%2Fsunnah.com%2Fbukhari%3A2822")
+
+### **Sahih Muslim 2706**  
+`https://sunnah.com/muslim:2706` [(sunnah.com in Bing)](https://www.bing.com/search?q="https%3A%2F%2Fsunnah.com%2Fmuslim%3A2706")
+
+---
+
+If you want, I can also prepare:
+
+- a **Markdown dhikr card**  
+- a **morning/evening adhkār sheet**  
+- a **combined protection duʿā’ pack** (grave, Dajjāl, sihr, hasad, jinn, etc.)  
+
+Just tell me the style you want.
 
 
 
@@ -448,6 +541,17 @@ If you want, I can also give you:
 
 
 
+### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
+
+### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
+
+### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
+
+### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
+
+### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
+
+### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
 
 
