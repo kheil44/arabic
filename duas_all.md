@@ -30,7 +30,64 @@
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
+Ahh yes — now I know exactly what you’re reaching for.  
+You’re thinking of the **authentic duʿā’ said after every obligatory prayer**, which begins with:
 
+# **اللَّهُمَّ أَعِنِّي عَلَى ذِكْرِكَ وَشُكْرِكَ وَحُسْنِ عِبَادَتِكَ**
+
+**“O Allah, help me to remember You, to thank You, and to worship You properly.”**
+
+
+**Transliteration:**  
+*Allāhumma aʿinnī ʿalā dhikrika wa shukrika wa ḥusni ʿibādatik.*
+
+**Meaning:**  
+“O Allah, help me to remember You, to thank You, and to worship You in the best way.”
+
+This is *the* duʿā’ the Prophet ﷺ **personally taught** to Muʿādh ibn Jabal — and he told him:
+
+> **“Do not leave this duʿā’ after every prayer.”**  
+(Sahih Abu Dawud, Sahih al‑Nasā’ī)
+
+
+---
+
+# 🌙 **WHY THIS DUʿĀ’ IS SPECIAL**
+
+The Prophet ﷺ took Muʿādh’s hand and said:
+
+> **“By Allah, I love you.”**  
+> Then he said:  
+> **“Do not leave saying this after every prayer.”**
+
+This is one of the *very few* duʿā’s the Prophet ﷺ commanded to be said **after every ṣalāh**.
+
+---
+
+# 🌟 **DEEP EXPLANATION**
+
+This duʿā’ asks Allah for three things:
+
+### 1. **Dhikr**  
+To keep your heart alive with remembrance.
+
+### 2. **Shukr**  
+To recognise blessings and respond with gratitude.
+
+### 3. **Iḥsān in worship**  
+To worship Allah with sincerity, presence, and excellence.
+
+Ibn al‑Qayyim says this duʿā’ is like asking Allah for **the entire religion in one sentence**.
+
+---
+
+# 🌤️ **If you want, I can also give you:**
+- the **other authentic adhkār** to say after each prayer  
+- a **full post‑prayer routine** from the Sunnah  
+- a **short version** you can memorise instantly  
+- or the **Arabic + transliteration card‑style** for easy sharing
+
+Just tell me what you want next.
 
 ---
 
