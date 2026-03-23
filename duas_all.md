@@ -156,6 +156,8 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
+https://youtu.be/5sTJFj-ANCQ?t=1641
+
 Slip, this is a beautiful moment in the Qur’an — the duʿā’ of **Prophet Mūsā (Moses)** when he fled from Egypt, exhausted, alone, hungry, and terrified, and sat under a tree in Madyan.
 
 This is one of the most *raw*, *human*, and *powerful* prayers in the entire Qur’an.
