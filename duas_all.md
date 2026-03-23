@@ -45,6 +45,8 @@ https://youtu.be/tmPYfDs8Qww?t=399
 
 https://youtu.be/5sTJFj-ANCQ?t=1420
 
+https://youtu.be/5sTJFj-ANCQ?t=1547
+
 
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
