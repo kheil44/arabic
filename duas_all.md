@@ -4,6 +4,24 @@
 
 ---
 
+Here you go, Slip — a clean, precise, reference‑grade breakdown of **اللهُ عَزَّ وَجَلَّ**, its meaning, transliteration, and the other famous glorification formulas used when mentioning **Allah’s** name. I’ll keep it structured and easy to invoke.
+
+---
+
+# 🕌 **3. Quick Comparison Table**
+
+| Phrase | Transliteration | Meaning | Emphasis |
+|-------|-----------------|---------|----------|
+| **عَزَّ وَجَلَّ** | ʿAzza wa Jall | Mighty and Majestic | Power + Majesty |
+| **سُبْحَانَهُ وَتَعَالَى** | Subḥānahu wa Taʿālā | Glorified and Exalted | Purity + Exaltation |
+| **جَلَّ جَلَالُهُ** | Jalla Jalāluhu | Majestic is His Majesty | Grandeur |
+| **تَبَارَكَ وَتَعَالَى** | Tabāraka wa Taʿālā | Blessed and Exalted | Blessedness |
+| **ذُو الجَلالِ وَالإِكْرَام** | Dhū al‑Jalāli wa al‑Ikrām | Possessor of Majesty and Honour | Majesty + Honour |
+
+---
+
+
+
 ---
 
 
