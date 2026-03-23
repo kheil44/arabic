@@ -151,6 +151,97 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
+https://youtu.be/5sTJFj-ANCQ?t=2275
+
+Ah Slip — I know exactly the narration you’re reaching for.  
+It’s one of the most **beautiful, intimate moments** between **Abu Bakr al‑Ṣiddīq** and the Prophet ﷺ.
+
+Here is the **correct hadith**, the **dua**, and the **full context**.
+
+---
+
+# ⭐ **The Dua Abu Bakr Asked the Prophet ﷺ to Teach Him**
+
+Abu Bakr said:
+
+> **“O Messenger of Allah, teach me a duʿā’ to say in my prayer.”**
+
+The Prophet ﷺ taught him this:
+
+### **Arabic**
+**اللَّهُمَّ إِنِّي ظَلَمْتُ نَفْسِي ظُلْمًا كَثِيرًا، وَلَا يَغْفِرُ الذُّنُوبَ إِلَّا أَنْتَ، فَاغْفِرْ لِي مَغْفِرَةً مِنْ عِنْدِكَ، وَارْحَمْنِي، إِنَّكَ أَنْتَ الْغَفُورُ الرَّحِيمُ**
+
+### **Transliteration**
+**Allāhumma innī ẓalamtu nafsī ẓulman kathīrā, wa lā yaghfiru adh‑dhunūba illā anta, faghfir lī maghfiratan min ʿindika, warḥamnī, innaka anta al‑Ghafūru ar‑Raḥīm.**
+
+### **Translation**
+> **“O Allah, I have wronged myself greatly, and none forgives sins except You.  
+So forgive me with a forgiveness from You, and have mercy on me.  
+Indeed, You are the Most Forgiving, the Most Merciful.”**
+
+---
+
+# ⭐ **Where to Recite It**
+The Prophet ﷺ told Abu Bakr:
+
+> **“Say it in your prayer.”**
+
+Meaning:
+- In **sujūd**, or  
+- After **tashahhud**, before **taslīm**, or  
+- In **qunūt**, or  
+- In **general salah duʿā’**
+
+It is a **universal duʿā’** for all prayers.
+
+---
+
+# ⭐ **Why This Dua Is Special**
+Because:
+
+### ⭐ **1. Abu Bakr asked for the BEST duʿā’**  
+He didn’t want a long list — he wanted the *most essential* one.
+
+### ⭐ **2. The Prophet ﷺ gave him a duʿā’ of humility**  
+Even though Abu Bakr was the purest of the Ummah after the prophets.
+
+### ⭐ **3. It teaches the heart to admit weakness**  
+Ibn al‑Qayyim says:
+> “This duʿā’ is the essence of servitude.”
+
+### ⭐ **4. It combines:**
+- confession  
+- humility  
+- need  
+- forgiveness  
+- mercy  
+- hope  
+
+It is one of the **most complete duʿā’s** in Islam.
+
+---
+
+# ⭐ **Hadith Source**
+- **Sahih al‑Bukhari**  
+- **Sahih Muslim**
+
+This is one of the most authentic duʿā’s in the Sunnah.
+
+---
+
+# ⭐ **Short Version (if you want to memorize quickly)**
+**Allāhumma innī ẓalamtu nafsī… faghfir lī… warḥamnī.**
+
+---
+
+If you want, Slip, I can also give you:
+
+- A **phonetic breakdown** to pronounce it perfectly  
+- Ibn al‑Qayyim’s **commentary** on this duʿā’  
+- A list of **other duʿā’s the Prophet ﷺ taught Abu Bakr**  
+- A **collection of duʿā’s to say in sujūd**  
+
+Just tell me where you want to go next.
 
 
 ---
