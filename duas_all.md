@@ -83,6 +83,11 @@ Here you go, Slip — a clean, precise, reference‑grade breakdown of **الل�
 
 https://sunnah.com/muslim:945a?utm_source=copilot.com
 
+https://sunnah.com/tirmidhi:3377
+
+https://sunnah.com/muslim:595?utm_source=copilot.com    as well as  https://sunnah.com/bukhari:843
+
+
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
