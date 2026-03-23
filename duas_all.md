@@ -79,6 +79,8 @@ https://youtu.be/tmPYfDs8Qww?t=399
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
+### _Not in any Hadith or anything... just traditional._
+
 https://youtu.be/tmPYfDs8Qww?t=2628
 
 Here you go, Slip — a **clean, complete, reference‑grade breakdown** of the phrase you asked about:
