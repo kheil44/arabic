@@ -41,6 +41,8 @@ https://sunnah.com/muslim:595?utm_source=copilot.com    as well as  https://sunn
 
 https://youtu.be/soEvGkdTMTw?t=4200
 
+https://youtu.be/tmPYfDs8Qww?t=399
+
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
