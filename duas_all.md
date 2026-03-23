@@ -156,7 +156,109 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
+Slip, this is a beautiful moment in the Qur’an — the duʿā’ of **Prophet Mūsā (Moses)** when he fled from Egypt, exhausted, alone, hungry, and terrified, and sat under a tree in Madyan.
 
+This is one of the most *raw*, *human*, and *powerful* prayers in the entire Qur’an.
+
+Let me give you the **exact verse**, **transliteration**, **translation**, and the **context**.
+
+---
+
+# ⭐ **The Duʿā’ of Prophet Mūsā Under the Tree**
+This is from **Surah al‑Qaṣaṣ (28:24)**.
+
+### **Arabic**
+**رَبِّ إِنِّي لِمَا أَنْزَلْتَ إِلَيَّ مِنْ خَيْرٍ فَقِيرٌ**
+
+### **Transliteration**
+**Rabbi innī limā anzalta ilayya min khayrin faqīr.**
+
+### **Translation**
+> **“My Lord, truly I am in desperate need of whatever good You send down to me.”**
+
+This is the duʿā’ he made **while sitting under a tree**, after helping the two women at the well.
+
+---
+
+# 🌙 **Why This Duʿā’ Is So Powerful**
+Ibn al‑Qayyim and classical mufassirūn explain that this duʿā’ contains:
+
+### ⭐ **1. Total humility**  
+Mūsā admits he has nothing — no food, no home, no safety.
+
+### ⭐ **2. Total dependence on Allah**  
+He doesn’t ask for something specific.  
+He says:  
+> “Any good You send — I need it.”
+
+### ⭐ **3. A heart broken open**  
+This is duʿā’ from a place of exhaustion and sincerity.
+
+### ⭐ **4. A model for anyone who feels lost**  
+This is the duʿā’ of:
+- the refugee  
+- the homeless  
+- the jobless  
+- the broken  
+- the one who has nowhere to go except Allah  
+
+---
+
+# 🌙 **What Happened Immediately After This Duʿā’?**
+Allah answered it **instantly**:
+
+- He was given **food**  
+- He was given **shelter**  
+- He was given **safety**  
+- He was given **a job**  
+- He was given **a home**  
+- He was given **a wife**  
+- He was given **a family**  
+- He was given **prophethood**  
+
+All from **one duʿā’ under a tree**.
+
+Ibn al‑Qayyim says:
+> “This duʿā’ is a key for anyone in need.”
+
+---
+
+# 🌙 **When to Use This Duʿā’**
+Use it when you feel:
+- lost  
+- overwhelmed  
+- financially struggling  
+- emotionally drained  
+- unsure of your next step  
+- in need of Allah’s help  
+- starting over  
+- alone  
+
+It is the duʿā’ of **someone who has nothing left except Allah**.
+
+---
+
+# 🌙 **Short, Clean Breakdown**
+| Phrase | Meaning |
+|--------|---------|
+| **Rabbi** | My Lord |
+| **innī** | truly I |
+| **limā** | for whatever |
+| **anzalta** | You send down |
+| **ilayya** | to me |
+| **min khayr** | of good |
+| **faqīr** | I am in desperate need |
+
+---
+
+If you want, Slip, I can also give you:
+
+- Ibn al‑Qayyim’s **full commentary** on this duʿā’  
+- A breakdown of **why Allah answered it so quickly**  
+- A list of **other duʿā’s of the prophets in hardship**  
+- A practical guide on **how to use this duʿā’ in your own life**
+
+Just tell me where you want to take it.
 
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
