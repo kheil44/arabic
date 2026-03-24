@@ -911,18 +911,53 @@ Source: Sahih al‑Bukhari 247
 https://youtu.be/ln9wNXgR23U?t=25
 
 
-### **Arabic**
-اللَّهُمَّ إِنِّي أَسْلَمْتُ نَفْسِي إِلَيْكَ، وَوَجَّهْتُ وَجْهِي إِلَيْكَ، وَفَوَّضْتُ أَمْرِي إِلَيْكَ، وَأَلْجَأْتُ ظَهْرِي إِلَيْكَ، رَغْبَةً وَرَهْبَةً إِلَيْكَ، لَا مَلْجَأَ وَلَا مَنْجَا مِنْكَ إِلَّا إِلَيْكَ، آمَنْتُ بِكِتَابِكَ الَّذِي أَنْزَلْتَ، وَبِنَبِيِّكَ الَّذِي أَرْسَلْتَ
+Here it is, Slip — **the Long Submission Dua** exactly as you asked:  
+**Arabic + Transliteration + Translation.**  
+This is the dua the Prophet ﷺ told you to make as your *last words before sleeping*.
 
-### **Transliteration**
-*Allāhumma innī aslamtu nafsī ilayk, wa wajjahtu wajhī ilayk, wa fawwaḍtu amrī ilayk, wa alja’tu ẓahrī ilayk, raghbatan wa rahbatan ilayk, lā malja’a wa lā manjā minka illā ilayk, āmantu bikitābika alladhī anzalta wa binabiyyika alladhī arsalta.*
+---
 
-### **Translation**
-“O Allah, I submit myself to You, I turn my face to You, I entrust my affairs to You, and I rely completely upon You, in hope and fear of You. There is no refuge and no escape from You except to You. I believe in Your Book which You revealed and Your Prophet whom You sent.”
+# 🌙 **The Long Submission Dua (Sahih al‑Bukhari & Muslim)**
+
+## **📜 Arabic**
+اللَّهُمَّ أَسْلَمْتُ نَفْسِي إِلَيْكَ،  
+وَفَوَّضْتُ أَمْرِي إِلَيْكَ،  
+وَوَجَّهْتُ وَجْهِي إِلَيْكَ،  
+وَأَلْجَأْتُ ظَهْرِي إِلَيْكَ،  
+رَغْبَةً وَرَهْبَةً إِلَيْكَ،  
+لَا مَلْجَأَ وَلَا مَنْجَا مِنْكَ إِلَّا إِلَيْكَ،  
+آمَنْتُ بِكِتَابِكَ الَّذِي أَنْزَلْتَ،  
+وَبِنَبِيِّكَ الَّذِي أَرْسَلْتَ
+
+---
+
+## **🔊 Transliteration**
+*Allahumma aslamtu nafsi ilayka,  
+wa fawwaḍtu amrī ilayka,  
+wa wajjahtu wajhī ilayka,  
+wa alja’tu ẓahrī ilayka,  
+raghbatan wa rahbatan ilayka,  
+lā malja’a wa lā manjā minka illā ilayka,  
+āmantu bikitābika alladhī anzalta,  
+wa binabiyyika alladhī arsalta.*
+
+---
+
+## **🌟 English Translation**
+“O Allah, I submit myself to You.  
+I entrust my affairs to You.  
+I turn my face to You.  
+I rely completely upon You,  
+in hope and fear of You.  
+There is no refuge and no escape from You except to You.  
+I believe in Your Book which You revealed,  
+and in Your Prophet whom You sent.”
+
+---
 
 **Hadith (English only):**  
 Source: Sahih al‑Bukhari 247  
-🔗 `https://sunnah.com/bukhari:247` [(sunnah.com in Bing)](https://www.bing.com/search?q="https%3A%2F%2Fsunnah.com%2Fbukhari%3A247")
+🔗  https://sunnah.com/bukhari:247
 
 ---
 
