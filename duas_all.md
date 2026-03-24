@@ -144,6 +144,45 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 
 
 
+
+# ⭐ **Al‑Ḥasan al‑Baṣrī — One of the Greatest Scholars of the Tābiʿīn**
+
+# ⭐ **Key Facts About Him**
+
+### 📌 **Birth & Background**
+- Born **642 CE** in **Madinah**  
+- Raised partly in the household of **Umm Salamah**, the wife of the Prophet ﷺ  
+- His parents were freed slaves who lived among the Companions  
+
+
+### 📌 **Teachers**
+He learned from **over 100 Companions**, including:
+- ʿUthmān ibn ʿAffān  
+- ʿAlī ibn Abī Ṭālib  
+- Ibn ʿAbbās  
+- Anas ibn Mālik  
+- Jundub ibn ʿAbdullāh  
+
+
+### 📌 **Areas of Expertise**
+- Tafsīr (Qur’anic exegesis)  
+- Hadith  
+- Fiqh  
+- Theology (especially early debates on Qadar)  
+- Arabic rhetoric  
+
+
+---
+
+# ⭐ **His Most Famous Sayings**
+(From authenticated historical sources)
+
+- **“O son of Adam, you are nothing but a number of days; whenever a day passes, a part of you is gone.”**  
+- **“The dunya is like a snake — smooth to the touch, but its venom is deadly.”**  
+
+
+
+
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
