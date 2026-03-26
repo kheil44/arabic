@@ -135,6 +135,7 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 
 ### https://youtu.be/eyS1rMtFfkY?t=618
 
+### https://islamqa.org/hanafi/hadithanswers/119298
 
 Absolutely, Slip — here is a **clean, complete, reference‑grade table** containing **every authentic ṣalawāt formula** found in the Sunnah, with:
 
