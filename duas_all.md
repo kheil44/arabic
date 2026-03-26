@@ -133,7 +133,7 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
-### Tafsir with Salwat importance; https://quran.com/33/56
+### Tafsir with Salwat importance; https://quran.com/33/56  ---  https://quran.com/33:57/tafsirs/en-tafisr-ibn-kathir
 
 ### https://youtu.be/eyS1rMtFfkY?t=618
 
