@@ -116,6 +116,25 @@ Index
 
 https://quran.com/35/45
 
+https://quran.com/36/62
+
+https://quran.com/36/77
+
+https://quran.com/36/82
+
+Ya Sin (36:82) 
+
+إِنَّمَآ أَمْرُهُۥٓ إِذَآ أَرَادَ شَيْـًٔا أَن يَقُولَ لَهُۥ كُن فَيَكُونُ ٨٢
+
+All it takes, when He wills something ˹to be˺, is simply to say to it: “Be!” And it is!
+— Dr. Mustafa Khattab, The Clear Quran
+
+
+https://quran.com/37/7
+  iblis comapnions listening. check end para.
+
+
+
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
 https://quran.com/34:22/tafsirs/en-tafisr-ibn-kathir
