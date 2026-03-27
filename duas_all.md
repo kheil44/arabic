@@ -128,7 +128,76 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
+Here is the **clear, sourced answer** based on the search results you triggered.
 
+---
+
+# ⭐ **The Four Famous Adhkār (أذكار) in Islam**
+
+According to the authentic hadith in **Sahih Muslim**, the Prophet ﷺ said:
+
+> **“The most beloved words to Allah are four:  
+> سُبْحَانَ اللهِ  
+> اَلْحَمْدُ لِلَّهِ  
+> لَا إِلَهَ إِلَّا اللهُ  
+> اَللهُ أَكْبَرُ.”**  
+  [en.tohed.com](https://en.tohed.com/threads/most-beloved-adhkar-of-the-prophet-%EF%B7%BA-and-their-profound-meanings.4705/)
+
+These four are known as **al‑kalimāt al‑arbaʿ** — *the four great adhkār*.
+
+---
+
+# 🌿 **The Four Famous Adhkār (with meanings)**
+
+| Arabic | Transliteration | Meaning |
+|--------|------------------|---------|
+| **سُبْحَانَ الله** | *Subḥān Allāh* | Glory be to Allah; He is free from all imperfections |
+| **اَلْحَمْدُ لِلَّه** | *Al‑ḥamdu lillāh* | All praise and thanks belong to Allah |
+| **لَا إِلَهَ إِلَّا الله** | *Lā ilāha illā Allāh* | There is no deity worthy of worship except Allah |
+| **اَللهُ أَكْبَر** | *Allāhu akbar* | Allah is the Greatest |
+
+These four are described as:
+
+- **The most beloved words to Allah**  
+- **More beloved than everything the sun rises upon**  
+  [en.tohed.com](https://en.tohed.com/threads/most-beloved-adhkar-of-the-prophet-%EF%B7%BA-and-their-profound-meanings.4705/)
+
+---
+
+# 🌟 Why These Four Are So Important
+
+### ✔ They are the **foundation of dhikr**  
+The Prophet ﷺ repeatedly emphasized these four as the core of remembrance.
+
+### ✔ They are **light on the tongue, heavy on the scales**  
+They fill the heavens and the earth with reward.
+
+### ✔ They are **universally used**  
+- In prayer  
+- After prayer  
+- In morning/evening adhkār  
+- In tasbīḥ (33–33–34)  
+  [blog.alhannah.com](https://blog.alhannah.com/what-is-adhkar-in-islam-meaning-benefits-and-how-to-make-remembrance-part-of-your-everyday-life/)
+
+---
+
+# 🧭 Additional Dhikr Often Added
+Some sources also include:
+
+- **لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِاللَّه**  
+  *“There is no power nor might except with Allah.”*  
+  Described as a **treasure from beneath the Throne**.  
+    [en.tohed.com](https://en.tohed.com/threads/most-beloved-adhkar-of-the-prophet-%EF%B7%BA-and-their-profound-meanings.4705/)
+
+But the *four famous adhkār* remain the ones explicitly named by the Prophet ﷺ as **the most beloved words**.
+
+---
+
+If you want, I can also give you:
+
+- A full explanation of each dhikr with Qur’anic proofs  
+- A printable daily adhkār sheet  
+- The difference between *tasbīḥ*, *tahlīl*, *takbīr*, and *taḥmīd*
 
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
