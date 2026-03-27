@@ -122,7 +122,174 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
+Slip, I’ve got you — and I’m going to format this **exactly** the way you like:  
+- **Arabic (full, correct)**  
+- **English translation**  
+- **Response to each line**  
+- **Clear visual separation between Adhān vs. Response**  
+- **Final duʿā’ after Adhān**  
+- **All authentic according to Ṣaḥīḥ Muslim & Ṣaḥīḥ al‑Bukhārī**  
+- **No copyrighted issues (Adhān is not copyrighted)**  
 
+Let’s build this like a **reference sheet**.
+
+---
+
+# 🕌 **THE ADHĀN — LINE BY LINE**  
+### With:  
+- **Arabic**  
+- **Translation**  
+- **How to reply**  
+- **Reply translation**
+
+---
+
+# ⭐ **1. اللَّهُ أَكْبَرُ، اللَّهُ أَكْبَرُ**  
+### **Allah is the Greatest, Allah is the Greatest**
+
+### **REPLY:**  
+**اللَّهُ أَكْبَرُ، اللَّهُ أَكْبَرُ**  
+**Allah is the Greatest, Allah is the Greatest**
+
+---
+
+# ⭐ **2. اللَّهُ أَكْبَرُ، اللَّهُ أَكْبَرُ**  
+### (Repeated)
+
+### **REPLY:**  
+**اللَّهُ أَكْبَرُ، اللَّهُ أَكْبَرُ**
+
+---
+
+# ⭐ **3. أَشْهَدُ أَنْ لَا إِلٰهَ إِلَّا اللَّهُ**  
+### I bear witness that there is no deity except Allah
+
+### **REPLY:**  
+**أَشْهَدُ أَنْ لَا إِلٰهَ إِلَّا اللَّهُ**  
+I bear witness that there is no deity except Allah
+
+---
+
+# ⭐ **4. أَشْهَدُ أَنْ لَا إِلٰهَ إِلَّا اللَّهُ**  
+### (Repeated)
+
+### **REPLY:**  
+**أَشْهَدُ أَنْ لَا إِلٰهَ إِلَّا اللَّهُ**
+
+---
+
+# ⭐ **5. أَشْهَدُ أَنَّ مُحَمَّدًا رَسُولُ اللَّهِ**  
+### I bear witness that Muhammad is the Messenger of Allah
+
+### **REPLY:**  
+**أَشْهَدُ أَنَّ مُحَمَّدًا رَسُولُ اللَّهِ**
+
+---
+
+# ⭐ **6. أَشْهَدُ أَنَّ مُحَمَّدًا رَسُولُ اللَّهِ**  
+### (Repeated)
+
+### **REPLY:**  
+**أَشْهَدُ أَنَّ مُحَمَّدًا رَسُولُ اللَّهِ**
+
+---
+
+# ⭐ **7. حَيَّ عَلَى الصَّلَاةِ**  
+### Come to prayer
+
+### **REPLY (NOT the same words):**  
+**لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِاللَّهِ**  
+There is no power nor might except with Allah
+
+---
+
+# ⭐ **8. حَيَّ عَلَى الصَّلَاةِ**  
+### (Repeated)
+
+### **REPLY:**  
+**لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِاللَّهِ**
+
+---
+
+# ⭐ **9. حَيَّ عَلَى الْفَلَاحِ**  
+### Come to success
+
+### **REPLY:**  
+**لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِاللَّهِ**
+
+---
+
+# ⭐ **10. حَيَّ عَلَى الْفَلَاحِ**  
+### (Repeated)
+
+### **REPLY:**  
+**لَا حَوْلَ وَلَا قُوَّةَ إِلَّا بِاللَّهِ**
+
+---
+
+# ⭐ **11. اللَّهُ أَكْبَرُ، اللَّهُ أَكْبَرُ**  
+### Allah is the Greatest, Allah is the Greatest
+
+### **REPLY:**  
+**اللَّهُ أَكْبَرُ، اللَّهُ أَكْبَرُ**
+
+---
+
+# ⭐ **12. لَا إِلٰهَ إِلَّا اللَّهُ**  
+### There is no deity except Allah
+
+### **REPLY:**  
+**لَا إِلٰهَ إِلَّا اللَّهُ**
+
+---
+
+# 🌅 **FAJR ONLY (ADDITIONAL LINE)**
+
+# ⭐ **الصَّلَاةُ خَيْرٌ مِنَ النَّوْمِ**  
+### Prayer is better than sleep
+
+### **REPLY:**  
+**الصَّلَاةُ خَيْرٌ مِنَ النَّوْمِ**
+
+---
+
+# 🕌 **FINAL DUʿĀ’ AFTER THE ADHĀN**  
+(From Ṣaḥīḥ al‑Bukhārī)
+
+### **ARABIC:**  
+اللَّهُمَّ رَبَّ هَذِهِ الدَّعْوَةِ التَّامَّةِ، وَالصَّلَاةِ الْقَائِمَةِ، آتِ مُحَمَّدًا الْوَسِيلَةَ وَالْفَضِيلَةَ، وَابْعَثْهُ مَقَامًا مَحْمُودًا الَّذِي وَعَدْتَهُ
+
+### **TRANSLATION:**  
+O Allah, Lord of this perfect call and the established prayer,  
+grant Muhammad the Wasilah and virtue,  
+and raise him to the praised station You have promised him.
+
+---
+
+# ⭐ **OPTIONAL SUNNAH BEFORE THE DUʿĀ’**
+Send ṣalāh upon the Prophet ﷺ:
+
+### **اللَّهُمَّ صَلِّ عَلَى مُحَمَّدٍ وَعَلَى آلِ مُحَمَّدٍ**  
+(O Allah, send blessings upon Muhammad and the family of Muhammad)
+
+---
+
+Slip, this is now:
+
+- **Fully structured**  
+- **Arabic + translation + response**  
+- **Clear separation**  
+- **Authentic**  
+- **Ready to use as a reference sheet**  
+
+If you want, I can also produce:
+
+- A **print‑ready version**  
+- A **side‑by‑side table layout**  
+- A **colour‑coded version** (Adhān vs. Response vs. Duʿā’)  
+- A **PDF‑style layout** (without generating a file)  
+
+Just tell me the style you want.
 
 
 ---
