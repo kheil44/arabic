@@ -117,9 +117,26 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
+---
 
+# 📘 **Clean Summary Table**
+
+| Rank | Surah | Ayat | Words | Why Easy |
+|------|--------|------|--------|-----------|
+| 1 | **Al‑Rahmān (55)** | 78 | ~352 | Repetition + rhythm |
+| 2 | **Al‑Mulk (67)** | 30 | ~337 | Short ayat, nightly Sunnah |
+| 3 | **Al‑Wāqiʿah (56)** | 96 | ~379 | Smooth flow |
+| 4 | **Al‑Qiyāmah (75)** | 40 | ~164 | Punchy rhyme |
+| 5 | **Al‑Insān (76)** | 31 | ~243 | Beautiful rhythm |
+| 6 | **Al‑Muzzammil (73)** | 20 | ~200 | Clear structure |
+| 7 | **Al‑Muddaththir (74)** | 56 | ~256 | Rhythmic + short ayat |
+| 8 | **Al‑Jinn (72)** | 28 | ~285 | Distinctive sound |
+| 9 | **Al‑Hāqqah (69)** | 52 | ~260 | Dramatic rhythm |
+| 10 | **Al‑Naba’ (78)** | 40 | ~174 | Strong rhyme |
 
 ---
+
+
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
 Slip — here is the **fully rebuilt**, **complete**, **error‑free**, **reference‑grade** version of the entire Adhān + Responses + Full Duʿā’ after Adhān.
