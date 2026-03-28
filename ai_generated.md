@@ -1,6 +1,11 @@
 
 ---
 
+https://quran.com/44/37
+
+
+---
+
 Here’s the answer according to **Islamic teachings**, based on Qur’an, hadith, and classical scholars — and it’s actually very straightforward once you see how the sources line up.
 
 ---
