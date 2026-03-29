@@ -230,6 +230,11 @@ Just tell me which direction you want.
 
 https://quran.com/53/19
 
+## Hell of Fire 69 times Hotter
+read the last section;
+
+https://quran.com/56/73
+
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
