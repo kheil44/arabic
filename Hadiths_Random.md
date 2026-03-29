@@ -224,18 +224,29 @@ Just tell me which direction you want.
 
 
 
-### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
-## Refuting Idolatry, Al-Lat and Al-`Uzza and Lots of Other mentioned here too.
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+### 🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙
+### Refuting Idolatry, Al-Lat and Al-`Uzza and Lots of Other mentioned here too.
 
 https://quran.com/53/19
 
-## Hell of Fire 69 times Hotter
+### Hell of Fire 69 times Hotter
 read the last section;
 
 https://quran.com/56/73
 
 
+### Three Categories of People on the Day of Resurrection
+
+https://quran.com/56/1
+
+### both version; `As-Sam `Alayka  --Response was then  (the same death be upon you) ALSO
+
+https://quran.com/58/8  
+
+
+### 🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
 ## Tahjud
