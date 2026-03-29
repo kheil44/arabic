@@ -241,7 +241,8 @@ https://quran.com/56/73
 
 https://quran.com/56/1
 
-### both version; `As-Sam `Alayka  --Response was then  (the same death be upon you) ALSO
+### both version; `As-Sam `Alayka  --Response was then  (the same death be upon you) 
+### ALSO Sam `Alaykum.) meaning, `may you disgrace your religion
 
 https://quran.com/58/8  
 
