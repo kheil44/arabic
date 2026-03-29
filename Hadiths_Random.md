@@ -258,6 +258,8 @@ https://quran.com/58/12
 
 ###  💙💙  This Surah has many stores .... read the whole tafir   https://quran.com/59/1 ⭐🌙
 
+https://quran.com/59/1
+
 ### 🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
