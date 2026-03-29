@@ -244,6 +244,8 @@ https://quran.com/56/1
 ### both version; `As-Sam `Alayka  --Response was then  (the same death be upon you) 
 ### ALSO Sam `Alaykum.) meaning, `may you disgrace your religion
 
+then they would...say to themselves...if He ﷺ was prophet of Allah Almighty...., "Why does Allah not punish us for what we say"
+
 https://quran.com/58/8  
 
 
