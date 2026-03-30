@@ -163,70 +163,6 @@ Just tell me which direction you want.
 ### 🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
-
-
-
-### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
-
-
-
-### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
-
-
-
-### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
-
-
-### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
-
-
-
-### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
-
-
-
-### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
-
-
-
-### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
-
-
-
-### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
-
-
-
-### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
-
-
-
-### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
-
-
-
-### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
-
-
-
-### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
-
-
-
-### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
-
-
-
-### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
-
-
-
-### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
-
-
-
-
-### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 ### 🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙
 ### Refuting Idolatry, Al-Lat and Al-`Uzza and Lots of Other mentioned here too.
 
@@ -262,6 +198,152 @@ https://quran.com/59/1
 
 ### 🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙🌙
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+https://sunnah.com/tirmidhi:496
+
+https://sunnah.com/abudawud:345
+
+
+
+
+Of course — here is the **full hadith**, its **sources**, and **direct links** to the major hadith databases exactly as you requested.
+
+I’ll give you:
+
+- the **full Arabic text**  
+- the **full English translation**  
+- the **source details**  
+- **direct www.-style links** to the hadith in the major collections  
+
+This hadith is *not* copyrighted, so I can quote it fully.
+
+---
+
+# 📜 **Full Hadith (Arabic)**
+
+**عَنْ أَوْسِ بْنِ أَوْسٍ الثَّقَفِيِّ قَالَ: سَمِعْتُ رَسُولَ اللَّهِ ﷺ يَقُولُ:**
+
+**«مَنْ غَسَّلَ وَاغْتَسَلَ يَوْمَ الْجُمُعَةِ، وَبَكَّرَ وَابْتَكَرَ، وَمَشَى وَلَمْ يَرْكَبْ، وَدَنَا مِنَ الْإِمَامِ، فَاسْتَمَعَ وَلَمْ يَلْغُ، كَانَ لَهُ بِكُلِّ خُطْوَةٍ أَجْرُ سَنَةٍ صِيَامُهَا وَقِيَامُهَا»**
+
+---
+
+# 🌍 **Full English Translation**
+
+**The Messenger of Allah ﷺ said:**
+
+**“Whoever bathes someone (i.e., has marital relations) and then bathes himself on the day of Jumu‘ah, goes early and arrives very early, walks and does not ride, sits close to the imam, listens attentively and does not engage in idle talk — for every step he takes, he will receive the reward of a year’s fasting and a year’s night prayer.”**
+
+---
+
+# 📚 **Source Information**
+
+- **Sunan al‑Tirmidhī**  
+  Book of Jumu‘ah  
+  Hadith **496** (according to some numbering)  
+  Graded **ḥasan** by al‑Tirmidhī  
+  Graded **ṣaḥīḥ** by al‑Albānī  
+
+- Also reported by:  
+  - **Sunan Abī Dāwūd** (Hadith 345)  
+  - **Sunan al‑Nasā’ī** (Hadith 1382)  
+  - **Musnad Aḥmad** (Hadith 15562)
+
+---
+
+# 🔗 **Direct Links to the Hadith**
+
+Here are the clean, direct, non‑tracking links to the major hadith databases:
+
+### **Sunan al‑Tirmidhī (English + Arabic)**
+`www.sunnah.com/tirmidhi:496` [(sunnah.com in Bing)](https://www.bing.com/search?q="http%3A%2F%2Fwww.sunnah.com%2Ftirmidhi%3A496")
+
+### **Sunan Abī Dāwūd**
+`www.sunnah.com/abudawud:345` [(sunnah.com in Bing)](https://www.bing.com/search?q="http%3A%2F%2Fwww.sunnah.com%2Fabudawud%3A345")
+
+### **Musnad Aḥmad**
+`www.sunnah.com/ahmad/4/8` [(sunnah.com in Bing)](https://www.bing.com/search?q="http%3A%2F%2Fwww.sunnah.com%2Fahmad%2F4%2F8")
+
+### **Sunan al‑Nasā’ī**
+[www.sunnah.com/nasai:1382](http://www.sunnah.com/nasai:1382)
+
+All of these contain the same narration from Aws ibn Aws al‑Thaqafī.
+
+---
+
+# ⭐ If you want, I can also give you:
+
+- the **full chain of narration (isnād)**  
+- the **grading analysis** from Ibn Ḥajar, al‑Albānī, al‑Tirmidhī, and others  
+- a **side‑by‑side comparison** of all versions of the hadith  
+- the **fiqh rulings** derived from it (walking vs riding, early arrival, etc.)  
+
+Just tell me which direction you want to go.
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+
+
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
