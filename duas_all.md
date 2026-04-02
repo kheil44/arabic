@@ -108,6 +108,26 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
+https://quran.com/1/1
+
+
+(All praise is due to You, O Allah, and also the thanks. Blessed be Your Name, Exalted be Your sovereignty, and there is no deity worthy of worship except You.)
+
+He would then say thrice,
+
+«لَا إِلَهَ إِلَّا اللهُ»
+
+(There is no deity worthy of worship except Allah,).
+
+He would then say,
+
+«أَعُوذُ بِاللهِ السَّمِيعِ الْعَلِيمِ مِنَ الشَّيْطَانِ الرَّجِيمِ مِنْ هَمْزَهِ وَنَفْخِهِ وَنَفْثِهِ»
+
+(I seek refuge with Allah, the Hearing, the Knowing, from the cursed Satan, from his coercion, lures to arrogance and poems.)."
+
+The four collectors of the Sunan recorded this Hadith, which At-Tirmidhi considered the most famous Hadith on this subject.
+
+
 
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
