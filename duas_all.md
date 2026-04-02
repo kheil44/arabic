@@ -112,6 +112,16 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
+## Traveling duas
+
+https://www.youtube.com/shorts/Gb2oiGg21M8
+
+extract it from;
+
+https://sunnah.com/abudawud:2599
+https://sunnah.com/tirmidhi:3446
+https://sunnah.com/muslim:1342
+
 
 
 ---
