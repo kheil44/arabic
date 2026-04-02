@@ -103,6 +103,21 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
+### The Virtue of Al-Fatihah
+
+Imam Ahmad recorded in his Musnad, that a person who was riding behind the Prophet ﷺ said, "The Prophet's animal tripped, so I said, `Cursed Shaytan.' The Prophet said,
+
+«لَا تَقُلْ: تَعِسَ الشَّيْطَانُ، فَإِنَّكَ إِذَا قُلْتَ: تَعِسَ الشَّيْطَانُ، تَعَاظَمَ وَقَالَ: بِقُوَّتِي صَرَعْتُهُ، وَإِذَا قُلْتَ: بِاسْمِ اللهِ تَصَاغَرَ حَتى يَصِيرَ مِثْلَ الذُبَابِ»
+
+(Do not say, 'Cursed Shaytan,' for if you say these words, Satan becomes arrogant and says, 'With my strength I made him fall.' When you say, 'Bismillah,' Satan will become as small as a fly.)
+
+Further, An-Nasa'i recorded in his book Al-Yawm wal-Laylah, and also Ibn Marduwyah in his Tafsir that Usamah bin `Umayr said, "I was riding behind the Prophet ﷺ..." and he mentioned the rest of the above Hadith. The Prophet ﷺ said in this narration,
+
+«لَا تَقُلْ هكَذَا فَإِنَّهُ يَتَعَاظَمُ حَتَّى يَكُونَ كَالْبَيْتِ، وَلكِنْ قُلْ: بِسْمِ اللهِ، فَإنَّهُ يَصْغَرُ حَتَّى يَكُونَ كَالذُبَابَةِ»
+
+(Do not say these words, because then Satan becomes larger; as large as a house. Rather, say, 'Bismillah,' because Satan then becomes as small as a fly.)
+
+This is the blessing of reciting Bismillah.
 
 
 ---
