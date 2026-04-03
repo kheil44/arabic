@@ -98,6 +98,13 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
+https://youtu.be/3sY8XcTkmDs?t=742
+
+#### اللَّهُمَّ إِنِّي أَعُوذُ بِكَ أَنْ أُشْرِكَ بِكَ وَأَنَا أَعْلَمُ، وَأَسْتَغْفِرُكَ لِمَا لَا أَعْلَمُ
+
+https://sunnah.com/adab:716
+
+Maqil bin Yasar (ra) said that he came to the Prophet (ﷺ) with Abu Bakr (ra). He said, "O Abu Bakr, polytheism enters your people more quietly (secretly) than the movement of ants." Abu Bakr asked, "Is there a kind of polytheism besides associating anything with Allah?" The Prophet (ﷺ) said," By him who has my life in his power, polytheism is more concealed than the movement of ants. Shall I not teach you something which if you say will eliminate minor or major (polytheism)?" He then said, "Say `O Allah! I seek refuge in you lest I associate anything with you while I know it, and I seek your forgiveness for what I do not know.’"
 
 
 ---
