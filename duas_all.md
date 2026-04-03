@@ -195,6 +195,9 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 
 https://youtu.be/3sY8XcTkmDs?t=742
 
+https://youtu.be/m9xcwWBwXkc?t=924
+
+
 #### اللَّهُمَّ إِنِّي أَعُوذُ بِكَ أَنْ أُشْرِكَ بِكَ وَأَنَا أَعْلَمُ، وَأَسْتَغْفِرُكَ لِمَا لَا أَعْلَمُ
 
 https://sunnah.com/adab:716
