@@ -4,7 +4,7 @@
 Index
 
 - [Random](#Random-Temp) ━━━━━━━━━ - [Hadiths](#hadiths)
-- [people of Israel](#people of Israel) ━━━━━━━━━ - [Hadiths](#hadiths)
+- [people of Israel](#people-of-Israel) ━━━━━━━━━ - [Hadiths](#hadiths)
 
 ---
 ---
