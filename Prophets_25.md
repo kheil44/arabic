@@ -3,11 +3,17 @@
 ---
 Index
 
-- [Random](#Random-Temp) ━━━━━━━━━ - [Hadiths](#hadiths)
+- [all 25 prophets named in the Quran](#all-25-prophets-named-in-the-Qura) ━━━━━━━━━ - [Hadiths](#hadiths)
 - [people of Israel](#people-of-Israel) ━━━━━━━━━ - [Hadiths](#hadiths)
 
 ---
+
+
 ---
+
+###  💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞
+
+## all 25 prophets named in the Quran
 
 A full comparison table of **all 25 prophets named in the Qur’an** is large, so the best way to present it is as a **single, structured master table** that captures the most important comparative dimensions across all prophets.
 
@@ -1599,8 +1605,7 @@ If you want, I can now produce:
 
 Just tell me which direction you want to go next.
 
-
-
+###  💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞💞
 
 ---
 
