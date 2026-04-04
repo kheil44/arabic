@@ -26,6 +26,74 @@ Index
 
 ---
 
+---
+### 📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚
+
+
+### **Legend**  
+- **Hadith Imam?** = Did he compile a major hadith book or is he considered a foundational hadith authority?  
+- **Yes** = Compiler or major authority  
+- **Partial** = Not a compiler but a major transmitter/critic  
+- **No** = Not primarily a hadith scholar  
+
+---
+
+# 🟫 **MASTER TABLE — HADITH SCHOLARS (EXPANDED)**
+
+| Name | Arab? | Hadith Imam? | City of Birth | Birth–Death (CE) | Notes |
+|------|-------|---------------|----------------|-------------------|--------|
+| **Imam Mālik ibn Anas** | Arab | Yes | Madinah | 711–795 | Author of *al‑Muwaṭṭa’* |
+| **Imam Aḥmad ibn Ḥanbal** | Arab | Yes | Baghdad | 780–855 | Author of *Musnad Aḥmad* |
+| **Imam al‑Bukhārī** | Non‑Arab (Persian) | Yes | Bukhara | 810–870 | Author of *Ṣaḥīḥ al‑Bukhārī* |
+| **Imam Muslim** | Non‑Arab (Persian) | Yes | Nishapur | 815–875 | Author of *Ṣaḥīḥ Muslim* |
+| **Imam al‑Tirmidhī** | Non‑Arab (Persian) | Yes | Tirmidh | 824–892 | Author of *Jāmiʿ al‑Tirmidhī* |
+| **Imam al‑Nasā’ī** | Non‑Arab (Persian) | Yes | Nasa (Khorasan) | 829–915 | Author of *Sunan al‑Nasā’ī* |
+| **Imam Ibn Mājah** | Non‑Arab (Persian) | Yes | Qazwin | 824–887 | Author of *Sunan Ibn Mājah* |
+| **Imam Abū Dāwūd** | Arab | Yes | Sijistān | 817–889 | Author of *Sunan Abī Dāwūd* |
+| **Imam al‑Dārimī** | Non‑Arab (Central Asian) | Yes | Samarqand | 797–869 | Author of *Sunan al‑Dārimī* |
+| **Imam al‑Bayhaqī** | Non‑Arab (Persian) | Yes | Bayhaq | 994–1066 | Author of *Sunan al‑Kubrá* |
+| **Imam Ibn Ḥibbān** | Non‑Arab (Persian) | Yes | Bust | 884–965 | Author of *Ṣaḥīḥ Ibn Ḥibbān* |
+| **Imam al‑Ḥākim al‑Nishapūrī** | Non‑Arab (Persian) | Yes | Nishapur | 933–1014 | Author of *al‑Mustadrak* |
+| **Imam al‑Ṭabarānī** | Arab | Yes | Palestine | 873–971 | Author of *al‑Muʿjams* |
+| **Imam Ibn Khuzaymah** | Non‑Arab (Persian) | Yes | Nishapur | 837–923 | Author of *Ṣaḥīḥ Ibn Khuzaymah* |
+| **Imam al‑Baghawī** | Non‑Arab (Persian) | Yes | Bagh (Khorasan) | 1041–1122 | Author of *Sharḥ al‑Sunnah* |
+| **Imam al‑Khaṭīb al‑Baghdādī** | Arab | Partial | Baghdad | 1002–1071 | Historian of hadith narrators |
+| **Imam Ibn ʿAbd al‑Barr** | Arab | Partial | Cordoba | 978–1071 | Hadith + fiqh scholar |
+| **Imam al‑Dhahabī** | Arab | Partial | Damascus | 1274–1348 | Greatest hadith biographer |
+| **Ibn Ḥajar al‑ʿAsqalānī** | Arab | Partial | Cairo | 1372–1449 | Author of *Fatḥ al‑Bārī* |
+| **Imam al‑Suyūṭī** | Arab | Partial | Cairo | 1445–1505 | Compiler of *al‑Jāmiʿ al‑Ṣaghīr* |
+| **Imam al‑Shāfiʿī** | Arab | No (Fiqh) | Gaza | 767–820 | Not a hadith compiler but a major transmitter |
+| **Imam Abū Ḥanīfah** | Non‑Arab (Persian) | No (Fiqh) | Kufa | 699–767 | Not a hadith compiler |
+| **Imam al‑Awzāʿī** | Arab | Partial | Baalbek | 707–774 | Early hadith authority |
+| **Imam Sufyān al‑Thawrī** | Arab | Partial | Kufa | 716–778 | Major hadith transmitter |
+| **Imam Sufyān ibn ʿUyaynah** | Arab | Partial | Kufa | 725–814 | Teacher of al‑Shāfiʿī |
+| **Imam Ibn al‑Mubārak** | Non‑Arab (Turkic/Persian) | Partial | Merv | 736–797 | Major hadith transmitter |
+| **Imam al‑Layth ibn Saʿd** | Arab | Partial | Qalqashandah (Egypt) | 713–791 | Egyptian hadith authority |
+| **Imam al‑Shuʿbah** | Arab | Partial | Wasit | 702–776 | “Amīr al‑Mu’minīn fī al‑Ḥadīth” |
+| **Imam al‑Zuhrī** | Arab | Partial | Madinah | 672–741 | Early hadith compiler |
+| **Imam Ibn Shihāb al‑Zuhri** | Arab | Partial | Madinah | 671–742 | First systematic hadith collector |
+| **Imam Ibn Saʿd** | Arab | Partial | Basra | 784–845 | Author of *Ṭabaqāt* |
+| **Imam Ibn Taymiyyah** | Arab | No | Harran | 1263–1328 | Not a compiler but used hadith heavily |
+| **Imam Ibn al‑Qayyim** | Arab | No | Damascus | 1292–1350 | Not a compiler |
+
+---
+
+# 🟫 **NOTES & OBSERVATIONS**
+
+### ⭐ **1. Arabs vs Non‑Arabs**
+- Many **compilers** were **non‑Arab** (Persian, Central Asian).  
+- Many **transmitters, critics, and teachers** were **Arab**.
+
+### ⭐ **2. Arabic remained the scholarly language**
+Even non‑Arab scholars wrote in **pure Arabic**.
+
+### ⭐ **3. The hadith tradition is multi‑ethnic**
+This is one of the strengths of Islamic scholarship.
+
+### 📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚📚
+
+---
+
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
 ### 🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋
