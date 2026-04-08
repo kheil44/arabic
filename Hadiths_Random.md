@@ -1,4 +1,16 @@
 
+
+---
+
+---
+
+### _Difference between .....islamqa.org..... and .....islamqa.info....._
+
+https://www.reddit.com/r/islam/comments/1h3flkp/difference_between_islamqaorg_and_islamqainfo/
+
+---
+
+
 - https://sunnah.com/bukhari:5673  ..... also in Sahi Muslim
 - https://sunnah.com/muslim:2818a
 
