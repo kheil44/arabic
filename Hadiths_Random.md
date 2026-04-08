@@ -386,6 +386,37 @@ https://quran.com/59/1
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
 
+So every wife of the Prophet ﷺ is:
+
+### **Umm al‑Mu’minīn**  
+= *Mother of the Believers*
+
+This includes:
+
+- **ʿĀ’ishah**  
+- **Khadījah**  
+- **Ḥafṣah**  
+- **Umm Salamah**  
+- **Zaynab bint Jaḥsh**  
+- **Maymūnah**  
+- **Sawda**  
+- **Juwayriyyah**  
+- **Ṣafiyyah**  
+- **Zaynab bint Khuzaymah**  
+- **Rayḥānah** (according to some scholars)
+
+So using **Umm** for ʿĀ’ishah is not only accurate — it is **Qur’anic**.
+
+---
+
+If you want, I can also explain:
+
+- why Allah gave this title  
+- the legal implications of “Mother of the Believers”  
+- why the wives of the Prophet ﷺ cannot be married after him  
+- the special status of ʿĀ’ishah in hadith and fiqh  
+
+Just tell me which direction you want.
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
