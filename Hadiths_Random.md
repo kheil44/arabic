@@ -317,6 +317,12 @@ https://quran.com/59/1
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
+#### _Many Great Hadith for example witness over dead muslims, Qibla Test, Muslims witnessing other prophets on Day of.... ._
+
+_The Virtues of Muhammad's Nation ._
+_The Wisdom behind changing the Qiblah._
+
+https://quran.com/2/142
 
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
