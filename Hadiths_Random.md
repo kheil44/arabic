@@ -309,6 +309,23 @@ https://quran.com/59/1
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
+https://quran.com/2/146
+
+The Jews know that the Prophet is True, but they hide the Truth
+
+Allah states that the scholars of the People of the Scripture know the truth of what Allah's Messenger ﷺ was sent with, just as one of them knows his own child, which is a parable that the Arabs use to describe what is very apparent. Similarly, in a Hadith, Allah's Messenger ﷺ said to a man who had a youngster with him:
+
+«ابْنُكَ هَذَا»
+
+؟ قَالَ: نَعَمْ يَا رَسُولَ اللهِ أَشْهَدُ بِهِ
+
+(Is this your son) He said, "Yes, O Messenger of Allah ﷺ! I testify to this fact." Allah's Messenger ﷺ said:
+
+«أَمَا إِنَّهُ لَا يَجْنِي عَلَيْكَ وَلَا تَجْنِي عَلَيْه»
+
+(Well, you would not transgress against him nor would he transgress against you.)
+
+According to Al-Qurtubi, it was narrated that `Umar said to `Abdullah bin Salam (an Israelite scholar who became a Muslim), "Do you recognize Muhammad ﷺ as you recognize your own son" He replied, "Yes, and even more. The Honest One descended from heaven on the Honest One on the earth with his (i.e., Muhammad's) description and I recognized him, although I do not know anything about his mother's story."
 
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
