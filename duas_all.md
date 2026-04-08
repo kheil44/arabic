@@ -1,8 +1,12 @@
 
 
-
+---
 
 ---
+### _Difference between .....islamqa.org..... and .....islamqa.info....._
+
+https://www.reddit.com/r/islam/comments/1h3flkp/difference_between_islamqaorg_and_islamqainfo/
+
 
 Here you go, Slip — a clean, precise, reference‑grade breakdown of **اللهُ عَزَّ وَجَلَّ**, its meaning, transliteration, and the other famous glorification formulas used when mentioning **Allah’s** name. I’ll keep it structured and easy to invoke.
 
