@@ -315,11 +315,176 @@ https://quran.com/59/1
 
 
 
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
+### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
+
+
+
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
 https://sunnah.com/muslim:1887
 
 the martyrs live in the bodies of green birds
+
+Yes — **martyrs (shuhadā’) are *not* only those who die in battle.**  
+The Prophet ﷺ explicitly taught that there are **many types of martyrs**, and only **one** of them is the martyr of the battlefield.
+
+This is a *safely discussable religious topic*, and I’ll keep it respectful and non‑graphic.
+
+Below is the **authentic, hadith‑based list**.
+
+---
+
+# ⭐ **1. The Martyr of Battle (Shahīd al‑Ma‘rakah)**  
+This is the *highest* category — the one who dies fighting in a legitimate battle.
+
+But the Prophet ﷺ said there are **many more**.
+
+---
+
+# ⭐ **2. The Prophet ﷺ listed other types of martyrs**
+These come from **Ṣaḥīḥ Muslim**, **Ṣaḥīḥ al‑Bukhārī**, and other authentic collections.
+
+### ✔ **Death due to plague**  
+### ✔ **Death due to stomach illness**  
+### ✔ **Death by drowning**  
+### ✔ **Death under a collapsed building**  
+### ✔ **Death due to fire**  
+### ✔ **Death due to childbirth**  
+### ✔ **Death while defending one’s property**  
+### ✔ **Death while defending one’s family**  
+### ✔ **Death while defending one’s life**  
+### ✔ **Death while defending one’s religion**  
+### ✔ **Death while seeking knowledge** (reported by some scholars)
+
+These are all explicitly mentioned in authentic narrations.
+
+---
+
+# ⭐ **3. Direct hadith sources (clickable)**
+
+### **Ṣaḥīḥ Muslim — Hadith 1914**  
+Lists plague, stomach illness, drowning, and building collapse.  
+`https://sunnah.com/muslim:1914` [(sunnah.com in Bing)](https://www.bing.com/search?q="https%3A%2F%2Fsunnah.com%2Fmuslim%3A1914")
+
+### **Sunan Abī Dāwūd — Hadith 3111**  
+Adds fire and childbirth.  
+`https://sunnah.com/abudawud:3111` [(sunnah.com in Bing)](https://www.bing.com/search?q="https%3A%2F%2Fsunnah.com%2Fabudawud%3A3111")
+
+### **Sunan al‑Nasā’ī — Hadith 4095**  
+Defending property, family, and life.  
+[https://sunnah.com/nasai:4095](https://sunnah.com/nasai:4095)
+
+### **Ṣaḥīḥ al‑Bukhārī — Hadith 2480**  
+Defending property.  
+`https://sunnah.com/bukhari:2480` [(sunnah.com in Bing)](https://www.bing.com/search?q="https%3A%2F%2Fsunnah.com%2Fbukhari%3A2480")
+
+These are the **primary sources**.
+
+---
+
+# ⭐ **4. Important distinction**
+There are **two categories**:
+
+### **(A) Martyrs in reward (shahīd ḥukman)**  
+– They receive the *reward* of martyrs in the Hereafter  
+– But are washed, shrouded, and prayed over normally
+
+This includes plague, drowning, childbirth, etc.
+
+### **(B) Martyrs in both reward and rulings (shahīd ḥaqīqatan)**  
+– Those who die in battle  
+– Not washed, not shrouded in the usual way
+
+This is the *battlefield martyr*.
+
+---
+
+# ⭐ **5. Summary**
+The Prophet ﷺ taught that:
+
+> **Martyrdom is not limited to dying in battle.**  
+> **Many types of death are considered martyrdom in reward.**
+
+This is a mercy and honor from Allah.
+
+---
+
+If you want, I can also give you:
+
+- a **full table** of all martyr types with hadith references  
+- the **Arabic text** of each narration  
+- the **scholars’ explanations** (Ibn Ḥajar, Nawawī, Ibn Taymiyyah)  
+- a **classification chart** (battle vs. non‑battle martyrs)
+
+Just tell me what you want next.
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
