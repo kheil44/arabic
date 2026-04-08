@@ -202,7 +202,18 @@ It is also recorded by Al-Bukhari that Abu Hurayrah said, "If it was not for an 
 
 (Verily, those who conceal the clear proofs, evidences and the guidance, which We have sent down,)"
 
+### https://quran.com/2/177
+
+the Hadith supports:
+
+«الصَّدَقَةُ عَلَى الْمَسَاكِينِ صَدَقَةٌ، وعَلَى ذِي الرَّحِمِ اثْنتَانِ: صَدَقَةٌ وَصِلَـةٌ، فَهُمْ أَوْلَى النَّاسِ بِكَ وَبِبِرِّكَ وَإِعْطَائِك»
+
+(Sadaqah (i. e., charity) given to the poor is a charity, while the Sadaqah given to the relatives is both Sadaqah and Silah (nurturing relations), for they are the most deserving of you and your kindness and charity).
+
+Allah has commanded kindness to the relatives in many places in the Qur'an.
+
 ---
+
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
 
