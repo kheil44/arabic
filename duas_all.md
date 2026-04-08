@@ -186,7 +186,21 @@ https://quran.com/2/155
 
 #### The Virtue of asserting that We all belong to Allah, during Afflictions
 
+https://quran.com/2/159
 
+#### The Eternal Curse for Those Who hide Religious Commandments
+
+A Hadith in the Musnad, narrated through several chains of narrators, that strengthens the overall judgment of the Hadith, states that Abu Hurayrah narrated that Allah's Messenger ﷺ said:
+
+«مَنْ سُئِلَ عَنْ عِلْمٍ فَكَتَمَهُ، أُلْجِمَ يَوْمَ الْقِيَامَةِ بِلِجَامٍ مِنْ نَار»
+
+(Whoever was asked about knowledge that one has, but he hid it, then a bridle made of fire will be tied around his mouth on the Day of Resurrection.)
+
+It is also recorded by Al-Bukhari that Abu Hurayrah said, "If it was not for an Ayah in Allah's Book, I would not have narrated a Hadith for anyone:
+
+إِنَّ الَّذِينَ يَكْتُمُونَ مَآ أَنزَلْنَا مِنَ الْبَيِّنَـتِ وَالْهُدَى
+
+(Verily, those who conceal the clear proofs, evidences and the guidance, which We have sent down,)"
 
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
