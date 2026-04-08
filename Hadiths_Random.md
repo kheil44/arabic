@@ -313,6 +313,11 @@ https://quran.com/59/1
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
+### The First Abrogation in the Qur'an was about the Qiblah
+
+_The Jews had Knowledge that the (Muslim) Qiblah would later be changed_
+
+https://quran.com/2/144
 
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
