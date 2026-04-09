@@ -1149,7 +1149,32 @@ Just tell me which direction you want to go.
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
+https://quran.com/2/200
 
+
+Sa`id bin Jubayr said that Ibn `Abbas said, "Some bedouins used to come to the standing area (`Arafat) and supplicate saying, `O Allah! Make it a rainy year, a fertile year and a year of good child bearing.' They would not mention any of the affairs of the Hereafter. Thus, Allah revealed about them:
+
+فَمِنَ النَّاسِ مَن يَقُولُ رَبَّنَآ ءَاتِنَا فِى الدُّنْيَا وَمَا لَهُ فِى الاٌّخِرَةِ مِنْ خَلَـقٍ
+
+(But of mankind there are some who say: "Our Lord! Give us (Your bounties) in this world!" and for such there will be no portion in the Hereafter.)
+
+The believers who came after them used to say:
+
+رَبَّنَآ ءَاتِنَا فِى الدُّنْيَا حَسَنَةً وَفِي الاٌّخِرَةِ حَسَنَةً وَقِنَا عَذَابَ النَّارِ
+
+(Our Lord! Give us in this world that which is good and in the Hereafter that which is good, and save us from the torment of the Fire!")
+
+Next, Allah revealed:
+
+أُولَـئِكَ لَهُمْ نَصِيبٌ مِّمَّا كَسَبُواْ وَاللَّهُ سَرِيعُ الْحِسَابِ
+
+(For them there will be alloted a share for what they have earned. And Allah is swift at reckoning.)
+
+Hence, Allah praised those who ask for the affairs of both this life and the Hereafter. He said:
+
+وِمِنْهُم مَّن يَقُولُ رَبَّنَآ ءَاتِنَا فِى الدُّنْيَا حَسَنَةً وَفِي الاٌّخِرَةِ حَسَنَةً وَقِنَا عَذَابَ النَّارِ
+
+(And of them there are some who say: "Our Lord! Give us in this world that which is good and in the Hereafter that which is good, and save us from the torment of the Fire!")
 
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
