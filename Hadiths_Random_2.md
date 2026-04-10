@@ -8,6 +8,10 @@ https://www.reddit.com/r/islam/comments/1h3flkp/difference_between_islamqaorg_an
 
 ---
 
+### 🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨
+### 🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨
+### 🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨
+### 🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨
 
 ### 🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋
 
@@ -115,6 +119,31 @@ https://quran.com/2/261
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
+### 🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨
+
+https://quran.com/2/275
+
+The Two Sahihs recorded that An-Nu`man bin Bashir said that he heard the Messenger of Allah ﷺ say,
+
+«إِنَّ الْحَلَالَ بَيِّنٌ وَإِنَّ الْحَرَامَ بَيِّنٌ، وَبَيْنَ ذَلِكَ أُمُورٌ مُشْتَبِهَاتٌ، فَمَنِ اتَّقَى الشُّبُهَاتِ اسْتَبْرَأَ لِدِينِهِ وَعِرْضِهِ، وَمَنْ وَقَعَ فِي الشُّبُهَاتِ وَقَعَ فِي الْحَرَامِ، كَالرَّاعِي يَرْعَى حَولَ الْحِمَى يُوشِكُ أَنْ يَرْتَعَ فِيه»
+
+(Both lawful and unlawful things are evident, but in between them there are matters that are not clear. So whoever saves himself from these unclear matters, he saves his religion and his honor. And whoever indulges in these unclear matters, he will have fallen into the prohibitions, just like a shepherd who grazes (his animals) near a private pasture, at any moment he is liable to enter it.)
+
+The Sunan records that Al-Hasan bin `Ali said that he heard the Messenger of Allah ﷺ say,
+
+«دَعْ مَا يَرِيبُكَ إِلَى مَا لَا يَرِيبُك»
+
+(Leave that which makes you doubt for that which does not make you doubt.)
+
+Ahmad recorded that Sa`id bin Al-Musayyib said that `Umar said, "The Ayah about Riba was one of the last Ayat to be revealed, and the Messenger of Allah ﷺ died before he explained it to us. **So leave that which makes you doubt for that which does not make you doubt."**
+
+Ibn Majah recorded that Abu Hurayrah said that the Messenger of Allah ﷺ said,
+
+«الرِّبَا سَبْعُونَ حُوبًا، أَيْسَرُهَا أَنْ يَنْكِحَ الرَّجُلُ أُمَّه»
+
+**(Riba is seventy types, the least of which is equal to one having sexual intercourse with his mother.)**
+
+### 🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨🚨
 
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
