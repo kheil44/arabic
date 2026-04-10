@@ -114,6 +114,17 @@ Muslim reported that Allah's Messenger ﷺ used to ask Allah for His forgiveness
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
+https://quran.com/2/260
+
+Al-Bukhari recorded that Abu Hurayrah said that the Messenger of Allah ﷺ said,
+
+«نَحْنُ أَحَقُّ بِالشَّكِّ مِنْ إِبْرَاهِيمَ إِذْ قَالَ
+
+رَبِّ أَرِنِى كَيْفَ تُحْىِ الْمَوْتَى قَالَ أَوَلَمْ تُؤْمِن قَالَ بَلَى وَلَـكِن لِّيَطْمَئِنَّ قَلْبِى
+
+(We are more liable to be in doubt than Ibrahim when he said, "My Lord! Show me how You give life to the dead." Allah said, "Don't you believe" Ibrahim said, "Yes (I believe), but (I ask) in order to be stronger in faith.")
+
+The Prophet's statement in the Hadith means, "We are more liable to seek certainty."
 
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
