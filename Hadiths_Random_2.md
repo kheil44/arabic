@@ -126,6 +126,26 @@ Al-Bukhari recorded that Abu Hurayrah said that the Messenger of Allah ﷺ said,
 
 The Prophet's statement in the Hadith means, "We are more liable to seek certainty."
 
+---
+
+`Abdur-Razzaq recorded that Ma`mar said that Ayyub said that Ibn `Abbas commented on what Ibrahim said,
+
+وَلَـكِن لِّيَطْمَئِنَّ قَلْبِى
+
+(but to be stronger in Faith), "To me, there is no Ayah in the Qur'an that brings more hope than this Ayah." Ibn Abi Hatim recorded that Muhammad bin Al-Munkadir said that `Abdullah bin `Abbas met `Abdullah bin `Amr bin Al-`As and said to him, "Which Ayah in the Qur'an carries more hope for you" Ibn `Amr said,
+
+قُلْ يعِبَادِىَ الَّذِينَ أَسْرَفُواْ عَلَى أَنفُسِهِمْ لاَ تَقْنَطُواْ
+
+(Say: "O `Ibadi (My servants) who have transgressed against themselves (by committing evil deeds and sins)! Despair not.) 39:53.
+
+Ibn `Abbas said, "But I say that it is Allah's statement,
+
+وَإِذْ قَالَ إِبْرَهِيمُ رَبِّ أَرِنِى كَيْفَ تُحْىِ الْمَوْتَى قَالَ أَوَلَمْ تُؤْمِن قَالَ بَلَى
+
+(And (remember) when Ibrahim said, "My Lord! Show me how You give life to the dead." He (Allah) said: "Do you not believe" He (Ibrahim) said: "Yes (I believe)...)
+
+Allah accepted Ibrahim's affirmation when he merely said, `Yes.' This Ayah refers to the doubts that attack the heart and the thoughts that Shaytan inspires." Al-Hakim also recorded this in Al-Mustadrak and said; "Its chain is Sahih but they did not record it."
+
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
