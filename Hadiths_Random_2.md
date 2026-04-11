@@ -294,7 +294,7 @@ Everything is structured for **memorisation**, **practical recitation**, and **d
 # 🟦 MASTER TABLE OF ALL QUR’ĀN STOP SIGNS (WAQF)  
 ### **Slip‑grade | Reference‑grade | Fully Expanded**
 
-```
+
 | Symbol | Arabic Term | Literal Meaning | Ruling (Fiqh of Waqf) | Best Action | Allowed Action | Why Scholars Put It Here | Effect on Meaning | Notes |
 |--------|--------------|------------------|------------------------|--------------|----------------|---------------------------|--------------------|--------|
 | م | Waqf Lāzim | Mandatory stop | MUST stop; continuing may distort meaning | Stop | — | Sentence/meaning would be corrupted if continued | Prevents merging two unrelated meanings | Strongest stop sign |
@@ -308,7 +308,7 @@ Everything is structured for **memorisation**, **practical recitation**, and **d
 | س | Saktah | Brief pause without breath | Micro‑pause only | Pause briefly | Continue | Rhetorical effect; prevents merging words | Keeps recitation smooth | Used in 4 places in Ḥafṣ |
 | وقفت | Waqfah | Slight stop with breath | Short stop allowed | Short stop | Continue | Needed for clarity but not a full stop | Light separation | Rare |
 | ∴ (3 dots) | Muʿānaqah | Paired stop | Stop at ONE of the two, not both | Choose one | Continue at the other | Two possible stops but not both | Prevents breaking the verse twice | Always appears in pairs |
-```
+
 
 ---
 
