@@ -17,6 +17,18 @@ https://www.reddit.com/r/islam/comments/1h3flkp/difference_between_islamqaorg_an
 
 Muslim reported that Allah's Messenger ﷺ used to ask Allah for His forgiveness thrice after the prayer is finished. It is reported in the Two Sahihs that the Prophet encouraged Tasbih (saying Subhan Allah, i.e., Glorified is Allah), Tahmid (saying Al-Hamdu Lillah, i.e., praise be to Allah) and Takbir (saying Allahu Akbar, i.e., Allah is the Most Great) thirty-three times each (after prayer).
 
+---
+
+https://sunnah.com/muslim:758
+https://sunnah.com/bukhari:1145
+
+https://quran.com/3/16
+..........check the bottom of this page!!!
+
+Our Lord, the Blessed and the Exalted, descends every night to the lowest heaven when one-third of the latter part of the night is left, and says: Who supplicates Me so that I may answer him? Who asks Me so that I may give to him? Who asks Me forgiveness so that I may forgive him?
+
+
+
 ### 🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋🕋
 
 https://quran.com/2/261
