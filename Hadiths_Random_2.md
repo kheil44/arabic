@@ -122,7 +122,15 @@ https://quran.com/2/261
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
-## ***
+## Nahi
+
+(Let there arise out of you a group of people)
+
+that calls to righteousness, enjoins all that is good and forbids evil in the manner Allah commanded,
+
+وَأُوْلَـئِكَ هُمُ الْمُفْلِحُونَ
+
+(And it is they who are the successful.)
 
 https://quran.com/3/104
 
