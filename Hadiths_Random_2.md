@@ -127,6 +127,12 @@ https://quran.com/2/261
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
+### _Hadith Qudsi_
+
+https://sunnah.com/qudsi40:15?utm_source=copilot.com
+
+On the authority of Abu Hurayrah (may Allah be pleased with him), who said that the Prophet (ﷺ) said:
+Allah the Almighty said: I am as My servant thinks I am (1). I am with him when he makes mention of Me. If he makes mention of Me to himself, I make mention of him to Myself; ... , ..., ...
 
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
