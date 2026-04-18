@@ -118,6 +118,24 @@ https://quran.com/2/261
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
+https://quran.com/3/185
+
+
+The Believer is Tested and Hears Grieving Statements from the Enemy
+
+Allah said,
+
+لَتُبْلَوُنَّ فِى أَمْوَلِكُمْ وَأَنفُسِكُمْ
+
+(You shall certainly be tried and tested in your wealth and properties and in yourselves), just as He said in another Ayah,
+
+وَلَنَبْلُوَنَّكُم بِشَيْءٍ مِّنَ الْخَوفْ وَالْجُوعِ وَنَقْصٍ مِّنَ الاٌّمَوَالِ وَالاٌّنفُسِ وَالثَّمَرَتِ
+
+(And certainly, We shall test you with something of fear, hunger, loss of wealth, lives and fruits) 2:155.
+
+Therefore, the believer shall be tested, in his wealth, himself, his offspring and family. The believer shall be tested according to the degree of his faith, and when his faith is stronger, the test is larger.
+
+
 
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
