@@ -106,6 +106,9 @@ https://quran.com/2/261
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
+https://quran.com/3/199
+
+from paragraph "These qualities exist in some of the Jews, but only a few of them. For instance, less than ten Jewish rabbis embraced the Islamic faith, such as `Abdullah bin Salam. Many among the Christians, on the other hand, embraced the Islamic faith. Allah said," ... and then after this para ..
 
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
