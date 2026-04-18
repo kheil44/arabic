@@ -110,6 +110,11 @@ https://quran.com/2/261
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
+#### Surrah Al Imran;
+
+https://sunnah.com/bukhari:183
+
+....... woke up, rubbing the traces of sleep off his face with his hands. He then, recited the **last ten verses of Sura Al-`Imran** ....
 
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
