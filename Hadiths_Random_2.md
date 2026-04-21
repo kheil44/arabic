@@ -101,9 +101,109 @@ https://quran.com/2/261
 
 
 
+**Sībawayh (سيبويه) was the Persian-born scholar who *founded the science of Arabic grammar*, authored the monumental *al‑Kitāb*, and became the benchmark for all grammarians after him.** Below is a complete, structured, source‑grounded profile with his most famous stories.  
+
+---
+
+## ⭐ Who Sībawayh Was  
+Sībawayh — **Abū Bishr ʿAmr ibn ʿUthmān ibn Qanbar al‑Baṣrī** — was born around **760 CE** in **Shiraz, Persia** and died around **793–796 CE** either in Basra or Shiraz   [Wikipedia](https://en.wikipedia.org/wiki/Sibawayh). He was Persian by origin but became the **leading grammarian of Basra**, recognized by later scholars as *“the greatest of all Arabic linguists”*   [Wikipedia](https://en.wikipedia.org/wiki/Sibawayh).
+
+His nickname **Sībawayh** comes from Persian *sīb* (apple) and means **“scent of apples”**, reportedly referring to his pleasant breath or rosy cheeks   [Wikipedia](https://en.wikipedia.org/wiki/Sibawayh).
+
+---
+
+## 📘 His Masterpiece: *al‑Kitāb*  
+His only known work, **al‑Kitāb**, is a five‑volume foundational treatise on Arabic grammar and linguistics. It is the **earliest systematic grammar of Arabic** and shaped the entire discipline for centuries   [Wikipedia](https://en.wikipedia.org/wiki/Sibawayh)  [Wikipedia](https://en.wikipedia.org/wiki/Sibawayh).
+
+After his death, his student **al‑Akhfash al‑Awsat** published it and gave it the simple title *al‑Kitāb* (“The Book”)   [Truth Seeker](https://www.truth-seeker.info/the-story-of-sibawayh-the-imam-of-grammarians/).
+
+---
+
+## 🧠 His Teachers  
+He studied under the greatest scholars of Basra, including:
+
+- **al‑Khalīl ibn Aḥmad al‑Farāhīdī** — his most influential teacher  
+- **Yūnus ibn Ḥabīb**  
+- **Hammād ibn Salamah** (the hadith scholar who triggered his shift to grammar)  
+
+  [Wikipedia](https://en.wikipedia.org/wiki/Sibawayh)  [dusunnah.com](https://dusunnah.com/article/2028/)
+
+---
+
+## 📜 Famous Stories About Sībawayh
+
+### 1️⃣ **The Mistake That Changed His Life**  
+While reading a hadith in the circle of **Hammād ibn Salamah**, Sībawayh misread *“laysa Abā al‑Dardā’”* as *“laysa Abū al‑Dardā’”*.  
+Hammād corrected him and said: **“You have erred, O Sībawayh — this is an exception (istithnā’).”**  
+
+Humiliated, Sībawayh declared:  
+> **“I will seek knowledge that no one will ever dispute with me in.”**  
+
+This moment pushed him entirely into the study of grammar.  
+  [Truth Seeker](https://www.truth-seeker.info/the-story-of-sibawayh-the-imam-of-grammarians/)  [dusunnah.com](https://dusunnah.com/article/2028/)
+
+---
+
+### 2️⃣ **The Great Debate of Baghdad (al‑Mas’alah al‑Zunbūriyya)**  
+This is the most famous event in Arabic linguistic history.
+
+Sībawayh debated the Kufan grammarian **al‑Kisā’ī** before the court of **Hārūn al‑Rashīd**.  
+The dispute concerned a subtle grammatical construction involving conditional verbs.  
+
+The Kufans supported al‑Kisā’ī; the Basrans supported Sībawayh.  
+The court ruled **against Sībawayh**, likely for political reasons.  
+
+Humiliated, he left Baghdad and returned to Persia, where he died shortly after — some say **from grief**.  
+  [Britannica](https://www.britannica.com/biography/Sibawayh)
+
+---
+
+### 3️⃣ **His Obsession With Authentic Arabic**  
+Sībawayh travelled through tribes and villages collecting:
+
+- Bedouin poetry  
+- idioms  
+- oral linguistic evidence  
+
+He used these as **shawāhid** (proof texts) for *al‑Kitāb*.  
+  [Truth Seeker](https://www.truth-seeker.info/the-story-of-sibawayh-the-imam-of-grammarians/)
+
+---
+
+### 4️⃣ **His Death While Still Young**  
+He died between **age 32 and 40**, before completing his work.  
+His tomb is in **Shiraz**, Iran.  
+  [Arabic for Nerds](https://arabic-for-nerds.com/history/sibawayhi-al-kitab/)
+
+---
+
+## 🏛️ His Legacy  
+- Founder of **Basran grammatical theory**  
+- Author of the **first scientific grammar of Arabic**  
+- Regarded as **the greatest Arabic linguist of all time** by medieval scholars  
+- His terminology, logic, and structure still define Arabic grammar today  
+
+  [Wikipedia](https://en.wikipedia.org/wiki/Sibawayh)
+
+---
+
+## 📌 If you want next  
+I can give you:
+
+- A **timeline** of his life  
+- A breakdown of **Basran vs. Kufan grammar**  
+- A simplified explanation of **his grammatical principles**  
+- A list of **famous quotes and anecdotes** from *al‑Kitāb*  
+
+Just tell me which direction you want.
+
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
 ## Ribat
+
+https://quran.com/3/199
+
+
 
 Slip — I can absolutely give you **every major authentic ḥadīth that mentions *ribāṭ***, with **direct links** to the sources, **without** giving any copyrighted text.
 
