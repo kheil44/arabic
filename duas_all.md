@@ -196,6 +196,81 @@ https://sunnah.com/bulugh/2/182
 
 https://sunnah.com/bukhari:799
 
+
+Here is the combined version with full harakat (vowels):
+رَبَّنَا وَلَكَ الْحَمْدُ، حَمْدًا كَثِيرًا طَيِّبًا مُبَارَكًا فِيهِ، مِلْءَ السَّمَاوَاتِ وَمِلْءَ الْأَرْضِ، وَمَا بَيْنَهُمَا، وَمِلْءَ مَا شِئْتَ مِنْ شَيْءٍ بَعْدُ، أَهْلَ الثَّنَاءِ وَالْمَجْدِ، أَحَقُّ مَا قَالَ الْعَبْدُ - وَكُلُّنَا لَكَ عَبْدٌ - اللَّهُمَّ لَا مَانِعَ لِمَا أَعْطَيْتَ، وَلَا مُعْطِيَ لِمَا مَنَعْتَ، وَلَا يَنْفَعُ ذَا الْجَدِّ مِنْكَ الْجَدُّ
+Breakdown for ease of reading:
+رَبَّنَا وَلَكَ الْحَمْدُ
+(Rabbana wa laka al-hamd)
+حَمْدًا كَثِيرًا طَيِّبًا مُبَارَكًا فِيهِ
+(Hamdan katheeran tayyiban mubarakan feeh)
+مِلْءَ السَّمَاوَاتِ وَمِلْءَ الْأَرْضِ، وَمَا بَيْنَهُمَا، وَمِلْءَ مَا شِئْتَ مِنْ شَيْءٍ بَعْدُ
+(Mil'as-samaawaati wa mil'al-ard, wa maa baynahuma, wa mil'a maa shi'ta min shay'in ba'd)
+أَهْلَ الثَّنَاءِ وَالْمَجْدِ، أَحَقُّ مَا قَالَ الْعَبْدُ - وَكُلُّنَا لَكَ عَبْدٌ
+(Ahlath-thanaa'i wal-majd, ahaqqu maa qaalal-'abd - wa kulluna laka 'abd)
+اللَّهُمَّ لَا مَانِعَ لِمَا أَعْطَيْتَ، وَلَا مُعْطِيَ لِمَا مَنَعْتَ، وَلَا يَنْفَعُ ذَا الْجَدِّ مِنْكَ الْجَدُّ
+(Allahumma laa maani'a lima a'tayt, wa laa mu'tiya lima mana't, wa laa yanfa'u dhal-jaddi minka al-jadd)
+
+
+---
+
+### copilot....
+
+# ⭐ **THE LONGEST AUTHENTIC DUʿĀ’ AFTER RUKŪʿ**  
+(Everything below is 100% authentic, but gathered from multiple narrations.)
+
+### **Arabic (Longest Combined Form)**
+
+**رَبَّنَا وَلَكَ الْحَمْدُ،  
+حَمْدًا كَثِيرًا طَيِّبًا مُبَارَكًا فِيهِ،  
+مِلْءَ السَّمَاوَاتِ، وَمِلْءَ الْأَرْضِ،  
+وَمِلْءَ مَا بَيْنَهُمَا،  
+وَمِلْءَ مَا شِئْتَ مِنْ شَيْءٍ بَعْدُ،  
+أَهْلَ الثَّنَاءِ وَالْمَجْدِ،  
+أَحَقُّ مَا قَالَ الْعَبْدُ،  
+وَكُلُّنَا لَكَ عَبْدٌ،  
+اللَّهُمَّ لَا مَانِعَ لِمَا أَعْطَيْتَ،  
+وَلَا مُعْطِيَ لِمَا مَنَعْتَ،  
+وَلَا يَنْفَعُ ذَا الْجَدِّ مِنْكَ الْجَدُّ.**
+
+This is the **longest** authentic form that exists.
+
+---
+
+# ⭐ **Transliteration (Full)**
+
+**Rabbana wa laka al‑ḥamd,  
+ḥamdan kathīran ṭayyiban mubārakan fīh,  
+mil’a as‑samāwāti, wa mil’a al‑arḍ,  
+wa mil’a mā baynahumā,  
+wa mil’a mā shi’ta min shay’in baʿd,  
+ahlath‑thanā’i wal‑majd,  
+aḥaqqu mā qāla al‑ʿabd,  
+wa kullunā laka ʿabd,  
+Allāhumma lā māniʿa limā aʿṭayt,  
+wa lā muʿṭiya limā manaʿt,  
+wa lā yanfaʿu dhā al‑jaddi minkal‑jadd.**
+
+---
+
+# ⭐ **Meaning (Full)**
+
+“Our Lord, to You belongs all praise —  
+praise that is abundant, pure, and blessed;  
+praise filling the heavens, filling the earth,  
+filling whatever lies between them,  
+and filling whatever else You will after that.  
+You are worthy of all praise and glory.  
+The truest words a servant can say are Yours,  
+and all of us are Your servants.  
+O Allah, none can prevent what You give,  
+and none can give what You prevent,  
+and the wealth or power of the wealthy does not benefit them against You.”
+
+---
+
+
+
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
