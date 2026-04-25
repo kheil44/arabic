@@ -171,7 +171,17 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
+### read this secion and the one below;
 
+https://lifewithallah.com/articles/taste-the-sweetness-of-salah/standing-up-from-ruku-a-pillar-of-praise-2/
+
+
+A man behind him ﷺ said [the above]. When he ﷺ finished, he asked, ‘Who uttered those words?’ The man replied, ‘Me.’ The Prophet ﷺ said, ‘I saw some thirty-something angels racing to write it first’” (Bukhārī).
+
+3. لِرَبِّيَ الْحَمْدُ ، لِرَبِّيَ الْحَمْدُ
+For my Lord alone is all praise. For my Lord alone is all praise. (Abū Dāwūd)
+
+4. رَبَّنَا لَكَ الْحَمْدُ مِلْءَ السَّمٰـوٰتِ وَالأَرْضِ وَمِلْءَ مَا شِئْتَ مِنْ شَىْءٍ بَعْدُ ، أَهْلَ الثَّنَاءِ وَالْمَجْدِ ، أَحَقُّ مَا قَالَ الْعَبْدُ – وَكُلُّنَا لَكَ عَبْدٌ – اَللّٰهُمَّ لَا مَانِعَ لِمَا أَعْطَيْتَ ، وَلَا مُعْطِيَ لِمَا مَنَعْتَ ، وَلَا يَنْفَعُ ذَا الْجَدِّ مِنْكَ الْجَدُّ
 
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
