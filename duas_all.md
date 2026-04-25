@@ -177,6 +177,24 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
 
+## Ruku dua 
+
+Yasir Qadi said it long and mentioned Bukhari but couldnt find longer version;
+
+https://youtu.be/ajBsqYyRYg0?list=PLYZxc42QNctXqgEpxF8L-ZItU3uBAjtOR&t=1480
+
+
+https://www.youtube.com/watch?v=Da5cJIloRz4
+
+## Resol: if you combine the two hadith and take dua
+
+1- 
+
+https://sunnah.com/bulugh/2/182
+
+2-
+
+https://sunnah.com/bukhari:799
 
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
