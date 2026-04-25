@@ -198,18 +198,25 @@ https://sunnah.com/bukhari:799
 
 
 Here is the combined version with full harakat (vowels):
+
 رَبَّنَا وَلَكَ الْحَمْدُ، حَمْدًا كَثِيرًا طَيِّبًا مُبَارَكًا فِيهِ، مِلْءَ السَّمَاوَاتِ وَمِلْءَ الْأَرْضِ، وَمَا بَيْنَهُمَا، وَمِلْءَ مَا شِئْتَ مِنْ شَيْءٍ بَعْدُ، أَهْلَ الثَّنَاءِ وَالْمَجْدِ، أَحَقُّ مَا قَالَ الْعَبْدُ - وَكُلُّنَا لَكَ عَبْدٌ - اللَّهُمَّ لَا مَانِعَ لِمَا أَعْطَيْتَ، وَلَا مُعْطِيَ لِمَا مَنَعْتَ، وَلَا يَنْفَعُ ذَا الْجَدِّ مِنْكَ الْجَدُّ
 Breakdown for ease of reading:
+
 رَبَّنَا وَلَكَ الْحَمْدُ
 (Rabbana wa laka al-hamd)
+
 حَمْدًا كَثِيرًا طَيِّبًا مُبَارَكًا فِيهِ
 (Hamdan katheeran tayyiban mubarakan feeh)
+
 مِلْءَ السَّمَاوَاتِ وَمِلْءَ الْأَرْضِ، وَمَا بَيْنَهُمَا، وَمِلْءَ مَا شِئْتَ مِنْ شَيْءٍ بَعْدُ
 (Mil'as-samaawaati wa mil'al-ard, wa maa baynahuma, wa mil'a maa shi'ta min shay'in ba'd)
+
 أَهْلَ الثَّنَاءِ وَالْمَجْدِ، أَحَقُّ مَا قَالَ الْعَبْدُ - وَكُلُّنَا لَكَ عَبْدٌ
 (Ahlath-thanaa'i wal-majd, ahaqqu maa qaalal-'abd - wa kulluna laka 'abd)
+
 اللَّهُمَّ لَا مَانِعَ لِمَا أَعْطَيْتَ، وَلَا مُعْطِيَ لِمَا مَنَعْتَ، وَلَا يَنْفَعُ ذَا الْجَدِّ مِنْكَ الْجَدُّ
 (Allahumma laa maani'a lima a'tayt, wa laa mu'tiya lima mana't, wa laa yanfa'u dhal-jaddi minka al-jadd)
+
 
 
 ---
