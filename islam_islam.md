@@ -31,6 +31,7 @@ Index
 - [Six Hadith](#Six-Hadith) ━━━━━━━━ -
 - [Random](#Random-Temp) ━━━━━━━━━ - [Hadiths](#hadiths)
 - [Tabligh Jamat Ref](#Tabligh-Jamat) ━━━━━━━━  - [Books](#Books)
+- [Janazah prayer](#Janazah-prayer)
 
 
 ---
@@ -3451,6 +3452,147 @@ The hadith that supports saying **"إِنَّا لِلَّٰهِ وَإِنَّ�
 
 ---
 
+💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝 Janaza 💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝
+
+## Janazah prayer
+
+### 🖥️🖥️  _But have not verified it yet._ 🖥️🖥️
+
+Absolutely, Slip — here is **the full, complete, correct Janāzah prayer**, with **all pronoun variations**:
+
+- **For a man**  
+- **For a woman**  
+- **For multiple deceased**  
+
+All with **full ḥarakāt**, **step‑by‑step structure**, and **no missing pieces**.
+
+This is the **master version** you can memorise and use in any situation.
+
+---
+
+# 🕌 **Ṣalāt al‑Janāzah — FULL, COMPLETE, UNIVERSAL GUIDE**
+
+## ⭐ **STRUCTURE (always the same)**  
+1. **Takbīr 1** → Fātiḥah  
+2. **Takbīr 2** → Ṣalāt al‑Ibrāhīmiyyah  
+3. **Takbīr 3** → Duʿā’ for the deceased  
+4. **Takbīr 4** → Short duʿā’  
+5. **Taslīm**
+
+No rukūʿ, no sujūd, no tashahhud.
+
+---
+
+# 🧍‍♂️ **1. FIRST TAKBĪR**  
+Raise hands and say:
+
+> **اللَّهُ أَكْبَرُ**
+
+Then recite **al‑Fātiḥah** silently.
+
+---
+
+# 🧍‍♂️ **2. SECOND TAKBĪR**  
+Say:
+
+> **اللَّهُ أَكْبَرُ**
+
+Then recite **Ṣalāt al‑Ibrāhīmiyyah**:
+
+> **اللَّهُمَّ صَلِّ عَلَىٰ مُحَمَّدٍ وَعَلَىٰ آلِ مُحَمَّدٍ، كَمَا صَلَّيْتَ عَلَىٰ إِبْرَاهِيمَ وَعَلَىٰ آلِ إِبْرَاهِيمَ، إِنَّكَ حَمِيدٌ مَجِيدٌ  
+وَبَارِكْ عَلَىٰ مُحَمَّدٍ وَعَلَىٰ آلِ مُحَمَّدٍ، كَمَا بَارَكْتَ عَلَىٰ إِبْرَاهِيمَ وَعَلَىٰ آلِ إِبْرَاهِيمَ، إِنَّكَ حَمِيدٌ مَجِيدٌ**
+
+---
+
+# 🧍‍♂️ **3. THIRD TAKBĪR — MAIN DUʿĀ’ FOR THE DECEASED**
+
+Say:
+
+> **اللَّهُ أَكْبَرُ**
+
+Now choose the correct pronoun version:
+
+---
+
+# 🟦 **A. FULL DUʿĀ’ FOR A MAN (singular)**
+
+> **اللَّهُمَّ اغْفِرْ لَهُ، وَارْحَمْهُ، وَعَافِهِ، وَاعْفُ عَنْهُ، وَأَكْرِمْ نُزُلَهُ، وَوَسِّعْ مُدْخَلَهُ، وَاغْسِلْهُ بِالْمَاءِ وَالثَّلْجِ وَالْبَرَدِ، وَنَقِّهِ مِنَ الْخَطَايَا كَمَا نَقَّيْتَ الثَّوْبَ الأَبْيَضَ مِنَ الدَّنَسِ، وَأَبْدِلْهُ دَارًا خَيْرًا مِنْ دَارِهِ، وَأَهْلًا خَيْرًا مِنْ أَهْلِهِ، وَزَوْجًا خَيْرًا مِنْ زَوْجِهِ، وَأَدْخِلْهُ الْجَنَّةَ، وَأَعِذْهُ مِنْ عَذَابِ الْقَبْرِ وَعَذَابِ النَّارِ**
+
+---
+
+# 🟪 **B. FULL DUʿā’ FOR A WOMAN (singular)**  
+(Every pronoun is corrected)
+
+> **اللَّهُمَّ اغْفِرْ لَهَا، وَارْحَمْهَا، وَعَافِهَا، وَاعْفُ عَنْهَا، وَأَكْرِمْ نُزُلَهَا، وَوَسِّعْ مُدْخَلَهَا، وَاغْسِلْهَا بِالْمَاءِ وَالثَّلْجِ وَالْبَرَدِ، وَنَقِّهَا مِنَ الْخَطَايَا كَمَا نَقَّيْتَ الثَّوْبَ الأَبْيَضَ مِنَ الدَّنَسِ، وَأَبْدِلْهَا دَارًا خَيْرًا مِنْ دَارِهَا، وَأَهْلًا خَيْرًا مِنْ أَهْلِهَا، وَزَوْجًا خَيْرًا مِنْ زَوْجِهَا، وَأَدْخِلْهَا الْجَنَّةَ، وَأَعِذْهَا مِنْ عَذَابِ الْقَبْرِ وَعَذَابِ النَّارِ**
+
+---
+
+# 🟩 **C. FULL DUʿā’ FOR MULTIPLE DECEASED (plural)**  
+(Male/female mixed → use plural masculine)
+
+> **اللَّهُمَّ اغْفِرْ لَهُمْ، وَارْحَمْهُمْ، وَعَافِهِمْ، وَاعْفُ عَنْهُمْ، وَأَكْرِمْ نُزُلَهُمْ، وَوَسِّعْ مُدْخَلَهُمْ، وَاغْسِلْهُمْ بِالْمَاءِ وَالثَّلْجِ وَالْبَرَدِ، وَنَقِّهِمْ مِنَ الْخَطَايَا كَمَا نَقَّيْتَ الثَّوْبَ الأَبْيَضَ مِنَ الدَّنَسِ، وَأَبْدِلْهُمْ دَارًا خَيْرًا مِنْ دِيَارِهِمْ، وَأَهْلًا خَيْرًا مِنْ أَهْلِهِمْ، وَأَزْوَاجًا خَيْرًا مِنْ أَزْوَاجِهِمْ، وَأَدْخِلْهُمُ الْجَنَّةَ، وَأَعِذْهُمْ مِنْ عَذَابِ الْقَبْرِ وَعَذَابِ النَّارِ**
+
+---
+
+# 🧍‍♂️ **4. FOURTH TAKBĪR — SHORT CLOSING DUʿĀ’**
+
+Say:
+
+> **اللَّهُ أَكْبَرُ**
+
+Then recite one of the authentic closings:
+
+### Option 1 (most common):
+
+> **اللَّهُمَّ لَا تَحْرِمْنَا أَجْرَهُ، وَلَا تَفْتِنَّا بَعْدَهُ، وَاغْفِرْ لَنَا وَلَهُ**
+
+For a woman:
+
+> **وَلَا تَفْتِنَّا بَعْدَهَا، وَاغْفِرْ لَنَا وَلَهَا**
+
+For multiple:
+
+> **وَلَا تَفْتِنَّا بَعْدَهُمْ، وَاغْفِرْ لَنَا وَلَهُمْ**
+
+### Option 2 (general):
+
+> **اللَّهُمَّ اغْفِرْ لِلْمُسْلِمِينَ وَالْمُسْلِمَاتِ**
+
+---
+
+# 🧍‍♂️ **5. TASLĪM**
+
+Majority: **one taslīm to the right**:
+
+> **السَّلَامُ عَلَيْكُمْ وَرَحْمَةُ اللَّهِ**
+
+Some scholars allow two.
+
+---
+
+# 🧭 **YOU NOW HAVE ALL VERSIONS:**
+- ✔ Man  
+- ✔ Woman  
+- ✔ Multiple deceased  
+- ✔ Full ḥarakāt  
+- ✔ Full duʿā’  
+- ✔ Correct grammar  
+- ✔ Correct structure  
+
+This is the **complete, correct Janāzah prayer**.
+
+---
+
+If you want, I can now produce:
+
+### 📄 A **print‑ready memorisation sheet**  
+### 🧠 A **minimal version** for quick recall  
+### 📚 A **madhhab comparison** (Hanafi / Shafiʿi / Maliki / Hanbali)  
+### 🎧 An **audio‑style phonetic guide**  
+
+Tell me which one you want.
+
+💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝 Janaza 💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝💝
 
 ---
 
