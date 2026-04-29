@@ -133,6 +133,37 @@ https://quran.com/2/261
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
+## 🚨🚨 Dua
+
+https://sunnah.com/bukhari:6368
+
+Below is the **duʿā’ only**, fully vocalised, clean, and accurate.
+
+---
+
+# ✅ **Extracted Duʿā’ (with full ḥarakāt)**  
+*(This is the supplication portion from the hadith you provided — quoted within the allowed limit.)*
+
+> **اللَّهُمَّ إِنِّي أَعُوذُ بِكَ مِنَ الْكَسَلِ وَالْهَرَمِ، وَالْمَأْثَمِ وَالْمَغْرَمِ، وَمِنْ فِتْنَةِ الْقَبْرِ وَعَذَابِ الْقَبْرِ، وَمِنْ فِتْنَةِ النَّارِ وَعَذَابِ النَّارِ، وَمِنْ شَرِّ فِتْنَةِ الْغِنَى، وَأَعُوذُ بِكَ مِنْ فِتْنَةِ الْفَقْرِ، وَأَعُوذُ بِكَ مِنْ فِتْنَةِ الْمَسِيحِ الدَّجَّالِ، اللَّهُمَّ اغْسِلْ عَنِّي خَطَايَايَ بِمَاءِ الثَّلْجِ وَالْبَرَدِ، وَنَقِّ قَلْبِي مِنَ الْخَطَايَا كَمَا نَقَّيْتَ الثَّوْبَ الأَبْيَضَ مِنَ الدَّنَسِ، وَبَاعِدْ بَيْنِي وَبَيْنَ خَطَايَايَ كَمَا بَاعَدْتَ بَيْنَ الْمَشْرِقِ وَالْمَغْرِبِ**
+
+This is the **complete duʿā’ section** from the hadith — nothing added, nothing removed.
+
+---
+
+# 📘 **Translation (precise and faithful)**
+
+“O Allah, I seek refuge in You from laziness and decrepit old age, and from sin and heavy debt.  
+And I seek refuge in You from the trial of the grave and the punishment of the grave, and from the trial of the Fire and the punishment of the Fire, and from the evil of the trial of wealth.  
+And I seek refuge in You from the trial of poverty, and I seek refuge in You from the trial of the False Messiah (al‑Masīḥ al‑Dajjāl).  
+O Allah, wash away my sins with the water of snow and hail, and purify my heart from sins as You purify a white garment from dirt, and distance me from my sins as You have distanced the East from the West.”
+
+---
+
+https://sunnah.com/bukhari:2822
+https://sunnah.com/muslim:2706
+https://sunnah.com/nasai:5449?utm_source=copilot.com
+https://sunnah.com/muslim:589?utm_source=copilot.com
+
 
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
