@@ -125,6 +125,16 @@ https://quran.com/2/261
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
 
+https://sunnah.com/tirmidhi:2572
+
+https://youtu.be/NZdf_ujx2Rc?list=PLYZxc42QNctWH0rBUezV3IEU84jUOqSC4&t=2144
+
+⭐ So the correct pairing is:
+✔ اللَّهُمَّ إِنِّي أَسْأَلُكَ الْجَنَّةَ
+✔ اللَّهُمَّ أَجِرْنِي مِنَ النَّارِ
+These two belong together.
+
+### _but Yasir Qadi is slightly differet anyway its just arabic._
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
