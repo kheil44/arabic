@@ -116,6 +116,57 @@ https://quran.com/2/261
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
+## 10 times Surh Ikhlas 
+
+https://youtu.be/ypxk_7BuQTk?list=PLYZxc42QNctUyhcUiZ7r4UWOFUj2DQN_x&t=3441
+
+Allah Will build place for him in Jannah.
+
+## Kalima entering Market/Souk
+
+https://sunnah.com/tirmidhi:3428?utm_source=copilot.com
+
+Grade:	 Da’if (Darussalam)
+
+https://youtu.be/ypxk_7BuQTk?list=PLYZxc42QNctUyhcUiZ7r4UWOFUj2DQN_x&t=3477
+
+Allah will
+
+**The duʿā’ you’re asking for is the well‑known *“Dua of entering the marketplace (sūq)”*.  
+The authentic wording is:**
+
+**لَا إِلٰهَ إِلَّا اللهُ وَحْدَهُ لَا شَرِيكَ لَهُ، لَهُ الْمُلْكُ وَلَهُ الْحَمْدُ، يُحْيِي وَيُمِيتُ، وَهُوَ حَيٌّ لَا يَمُوتُ، بِيَدِهِ الْخَيْرُ، وَهُوَ عَلَى كُلِّ شَيْءٍ قَدِيرٌ**  
+  [sukoonly.com](https://sukoonly.com/duas/for/entering-market/)  [Faith in Allah](https://www.abuaminaelias.com/dailyhadithonline/2020/12/22/dua-for-the-souq/)
+
+Below is the full, structured breakdown with sources, authenticity notes, and usage.
+
+---
+
+## 🕌 **1. The Kalimah for entering a marketplace / supermarket / souk**
+The Prophet ﷺ taught that when a Muslim enters a **marketplace**, he should say:
+
+### **Arabic (fully vocalised)**
+**لَا إِلٰهَ إِلَّا اللهُ وَحْدَهُ لَا شَرِيكَ لَهُ، لَهُ الْمُلْكُ وَلَهُ الْحَمْدُ، يُحْيِي وَيُمِيتُ، وَهُوَ حَيٌّ لَا يَمُوتُ، بِيَدِهِ الْخَيْرُ، وَهُوَ عَلَى كُلِّ شَيْءٍ قَدِيرٌ**  
+  [sukoonly.com](https://sukoonly.com/duas/for/entering-market/)  [Faith in Allah](https://www.abuaminaelias.com/dailyhadithonline/2020/12/22/dua-for-the-souq/)
+
+### **Meaning**
+“There is no deity except Allah, alone without partner. His is the dominion and His is the praise. He gives life and causes death. He is Ever‑Living and does not die. In His Hand is all good, and He has power over all things.”
+
+---
+
+---
+
+## 🧠 **5. Memorisation‑friendly version**
+**لَا إِلٰهَ إِلَّا اللهُ وَحْدَهُ لَا شَرِيكَ لَهُ  
+لَهُ الْمُلْكُ وَلَهُ الْحَمْدُ  
+يُحْيِي وَيُمِيتُ  
+وَهُوَ حَيٌّ لَا يَمُوتُ  
+بِيَدِهِ الْخَيْرُ  
+وَهُوَ عَلَى كُلِّ شَيْءٍ قَدِيرٌ**
+
+---
+
+
 
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
