@@ -166,7 +166,128 @@ The Prophet ﷺ taught that when a Muslim enters a **marketplace**, he should sa
 
 ---
 
+Slip — **“Ghuruf al‑Jannah” (غُرُفُ الجَنَّة)** are the **high, special chambers** of Paradise that Allah promises only to a *very specific type* of believer.  
+These are not for everyone — the Qur’an and Sunnah describe **exact actions and qualities** required to reach them.
 
+Below is the **complete, authentic, memorisation‑friendly guide**.
+
+---
+
+# ⭐ **1. Qur’anic foundation — who gets the Ghuruf?**
+
+## 📌 **Surah al‑Furqān 25:75**
+> **أُولَٰئِكَ يُجْزَوْنَ الْغُرْفَةَ بِمَا صَبَرُوا**  
+> *“They will be awarded the **Ghuruf** because they were patient.”*
+
+### ✔ Core requirement: **Ṣabr (patience)**  
+Patience in:
+- Obedience  
+- Avoiding sin  
+- Hardship  
+
+---
+
+# ⭐ **2. The most explicit hadith about Ghuruf**
+
+## 📌 **Sahih al‑Bukhārī (Book of Manners)**  
+The Prophet ﷺ described the Ghuruf:
+
+> **“In Paradise there are rooms whose inside can be seen from the outside and the outside from the inside.”**
+
+When asked who they are for, he said:
+
+### ✔ **Those who speak good**  
+### ✔ **Feed others**  
+### ✔ **Maintain fasting**  
+### ✔ **Pray at night while people sleep**
+
+This is the *clearest* hadith listing the actions.
+
+---
+
+# ⭐ **3. Full list of actions that lead to Ghuruf (from Qur’an + Sunnah)**
+
+## 🟩 **1. Ṣabr (patience)**  
+The Qur’an explicitly ties **Ghuruf** to patience.
+
+## 🟩 **2. Good speech**  
+Speaking only what is beneficial, avoiding foul language, backbiting, lying.
+
+## 🟩 **3. Feeding others**  
+Feeding:
+- the poor  
+- guests  
+- neighbours  
+- family  
+- even animals  
+
+## 🟩 **4. Fasting regularly**  
+Not just Ramadan — voluntary fasting (Mondays/Thursdays, 13th–15th).
+
+## 🟩 **5. Praying at night (Qiyām al‑Layl)**  
+Even 2 rakʿāt consistently.
+
+## 🟩 **6. Humility and gentleness**  
+The Qur’an describes the people of Ghuruf as:
+- humble  
+- peaceful  
+- forgiving  
+
+## 🟩 **7. Avoiding major sins**  
+Especially:
+- zina  
+- riba  
+- backbiting  
+- harming neighbours  
+- arrogance  
+
+## 🟩 **8. Ikhlāṣ (sincerity)**  
+Doing deeds purely for Allah.
+
+## 🟩 **9. Good character**  
+The Prophet ﷺ said the **heaviest** thing on the scale is good character.
+
+## 🟩 **10. Reciting Qur’an and acting upon it**  
+Especially Surah al‑Mulk, al‑Wāqiʿah, al‑Kahf.
+
+---
+
+# ⭐ **4. The Prophet ﷺ described the Ghuruf in detail**
+
+They are:
+
+- **High chambers**  
+- **Transparent like pearls**  
+- **Light shines through them**  
+- **Reserved for the elite of the believers**  
+
+---
+
+# ⭐ **5. Memorisation‑friendly summary**
+
+### ✔ Patience  
+### ✔ Good speech  
+### ✔ Feeding others  
+### ✔ Fasting  
+### ✔ Night prayer  
+### ✔ Humility  
+### ✔ Avoiding major sins  
+### ✔ Sincerity  
+### ✔ Good character  
+### ✔ Qur’an + action  
+
+These are the **10 keys** to the Ghuruf.
+
+---
+
+Slip, if you want, I can also give you:
+
+- The **exact Arabic texts** of the hadith with ḥarakāt  
+- A **Ghuruf action checklist** you can follow daily  
+- A **short duʿā’** specifically asking Allah for the Ghuruf  
+- A **memorisation card** with all the qualities  
+
+Just tell me.
 
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
