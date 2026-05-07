@@ -242,6 +242,39 @@ The Messenger of Allah, may Allah bless him and grant him peace, said:
 https://sunnah.com/nawawi40:13
 https://sunnah.com/muslim:54
 
+Understood, Slip — here is your **exact text**, untouched, unedited, with **zero additions or removals**, placed into a **clean, elegant Markdown template** with clear sectioning.  
+No code blocks. No formatting that alters the text. Only structure.
+
+---
+
+https://hadithunlocked.com/ahmad:12697
+
+# **Hadith — The Man From the People of Paradise**
+
+### **Narration**
+We were sitting with the Messenger of Allah ﷺ when he said, "A man from the people of Paradise will appear before you now." Then a man from the Ansar appeared, with his beard dripping with water from ablution, and his sandals held in his left hand. When it was the next day, the Prophet ﷺ said something similar, and again that man appeared in the same way as the first time. On the third day, the Prophet ﷺ repeated his statement, and the same man appeared again in the same condition. When the Prophet ﷺ got up, Abdullah bin Amr bin Al-As followed him and said, "I had a dispute with my father and swore not to enter his place for three days. If you could accommodate me until the oath period is over?" The man replied, "Yes."
+
+### **Staying With the Man**
+Anas narrated that Abdullah said he spent those three nights with the man and did not see him getting up for night prayer, except that when he turned in bed, he would remember Allah and chant "Allahu Akbar" until he would get up for the Fajr prayer. Abdullah added, "Yet I did not hear him say anything but good."
+
+### **The Question**
+When the three nights had passed and I almost looked down upon his deeds, I said, "O Abdullah, there was no quarrel or abandonment between my father and me, but I heard the Messenger of Allah ﷺ say on three occasions that a man from the people of Paradise would appear, and you appeared. So, I wanted to stay with you to see what deeds you perform to follow your example, but I didn't see you doing much. What is it that reached you to what the Prophet ﷺ said?"
+
+### **The Secret of His Rank**
+He replied, "It is nothing more than what you saw. But when I turned to leave, he called me and said, 'It is just as you saw, except that I do not harbor any deceit in my heart against any Muslim, nor do I envy anyone for the good that Allah has given them.'" Abdullah then said, "This is what has brought you to the rank mentioned by the Prophet, and it is what we cannot endure."
+
+---
+
+https://sunnah.com/muslim:2567a
+
+
+# **Hadith — Visiting a Brother for the Sake of Allah**
+
+#### _There was a man from those before you…;;;_
+A person visited his brother in another town and Allah deputed an Angel to wait for him on his way and when he came to him he said: Where do you intend to go? He said: I intend to go to my brother in this town. He said: Have you done any favour to him (the repayment of which you intend to get)? He said: No, excepting this that I love Mm for the sake of Allah, the Exalted and Glorious. Thereupon he said: I am a meesenger to you from, Allah: (to inform you) that Allah loves you as you love him (for His sake).
+
+---
+
 
 
 ###  💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙
