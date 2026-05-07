@@ -179,7 +179,7 @@ https://quran.com/2/261
 
 ###  💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙
 
-## this block is dedicated to 'Love for Muslim Brother'
+## this block is dedicated to 'Love for Muslim Brother' there is also a written forum regarding this subject at _https://www.abuaminaelias.com/al-mundhiri-love-for-sake-of-allah/_
 
 https://www.youtube.com/watch?v=DezDRxfUs2s&list=PLYZxc42QNctWxkUZ7WSsUYC7yo8D85igl&index=28
 
