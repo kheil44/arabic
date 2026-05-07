@@ -179,6 +179,69 @@ https://quran.com/2/261
 
 ###  💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙
 
+https://www.youtube.com/watch?v=DezDRxfUs2s&list=PLYZxc42QNctWxkUZ7WSsUYC7yo8D85igl&index=28
+
+https://sunnah.com/malik/51/16?utm_source=copilot.com
+
+https://youtu.be/DezDRxfUs2s?list=PLYZxc42QNctWxkUZ7WSsUYC7yo8D85igl&t=79
+
+Understood — no code blocks, no boxed text, no fences.  
+Here is a **clean, elegant, readable Markdown layout** that keeps your text **exact**, untouched, and unedited.
+
+---
+
+# **Hadith of Abū Idrīs al‑Khawlānī and Muʿādh ibn Jabal**
+
+### **Narration**
+Yahya related to me from Malik from Abu Hazim ibn Dinar that Abu Idris al-Khawlani said,  
+"I entered the Damascus mosque and there was a young man with a beautiful mouth and white teeth sitting with some people. When they disagreed about something, they referred it to him and proceeded from his statement. I inquired about him, and it was said, 'This is Muadh ibn Jabal.' The next day I went to the noon-prayer, and I found that he had preceded me to the noon prayer and I found him praying."
+
+### **The Encounter**
+Abu Idris continued,  
+"I waited for him until he had finished the prayer. Then I came to him from in front of him and greeted him and said, 'By Allah! I love you for Allah!'  
+He said, 'By Allah?'  
+I said, 'By Allah.'  
+He said, 'By Allah?'  
+I said, 'By Allah.'  
+He said, 'By Allah?'  
+I said, 'By Allah.' "
+
+### **The Response**
+He continued,  
+"He took me by the upper part of my cloak and pulled me to him and said,  
+'Rejoice! I heard the Messenger of Allah, may Allah bless him and grant him peace, say,  
+"Allah, the Blessed and Exalted, said,  
+'My love is obliged for those who love each other in Me,  
+and those who sit with each other in Me,  
+and those who visit each other in Me,  
+and those who give to each other generously in Me.' " ' "
+
+---
+
+**Here are the two hadith you asked for, each with its *direct, valid sunnah.com link*, formatted cleanly with no code blocks and no added or removed wording.**
+
+---
+
+# **Hadith 1 — “You Will Not Believe Until You Love One Another”**  
+**Direct link:** [https://sunnah.com/muslim:54](https://sunnah.com/muslim:54) 
+
+The Messenger of Allah, may Allah bless him and grant him peace, said:  
+"You will not enter Paradise until you believe, and you will not believe until you love one another.  
+Shall I not tell you something which, if you do it, you will love one another?  
+Spread salām among yourselves."
+
+---
+
+# **Hadith 2 — “None of You Truly Believes Until He Loves for His Brother What He Loves for Himself”**  
+**Direct link:** `https://sunnah.com/nawawi40:13` [(sunnah.com in Bing)](https://www.bing.com/search?q="https%3A%2F%2Fsunnah.com%2Fnawawi40%3A13") 
+
+The Messenger of Allah, may Allah bless him and grant him peace, said:  
+"None of you truly believes until he loves for his brother what he loves for himself."
+
+
+https://sunnah.com/nawawi40:13
+https://sunnah.com/muslim:54
+
 
 
 ###  💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙
