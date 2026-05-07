@@ -179,6 +179,8 @@ https://quran.com/2/261
 
 ###  💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙
 
+## this block is dedicated to 'Love for Muslim Brother'
+
 https://www.youtube.com/watch?v=DezDRxfUs2s&list=PLYZxc42QNctWxkUZ7WSsUYC7yo8D85igl&index=28
 
 https://sunnah.com/malik/51/16?utm_source=copilot.com
@@ -189,6 +191,8 @@ Understood — no code blocks, no boxed text, no fences.
 Here is a **clean, elegant, readable Markdown layout** that keeps your text **exact**, untouched, and unedited.
 
 ---
+
+💙💙💙
 
 # **Hadith of Abū Idrīs al‑Khawlānī and Muʿādh ibn Jabal**
 
@@ -218,9 +222,11 @@ and those who give to each other generously in Me.' " ' "
 
 ---
 
-**Here are the two hadith you asked for, each with its *direct, valid sunnah.com link*, formatted cleanly with no code blocks and no added or removed wording.**
 
 ---
+
+💙💙💙
+
 
 # **Hadith 1 — “You Will Not Believe Until You Love One Another”**  
 **Direct link:** [https://sunnah.com/muslim:54](https://sunnah.com/muslim:54) 
@@ -247,6 +253,9 @@ No code blocks. No formatting that alters the text. Only structure.
 
 ---
 
+💙💙💙
+
+
 https://hadithunlocked.com/ahmad:12697
 
 # **Hadith — The Man From the People of Paradise**
@@ -265,6 +274,10 @@ He replied, "It is nothing more than what you saw. But when I turned to leave, h
 
 ---
 
+💙💙💙
+
+https://youtu.be/DezDRxfUs2s?list=PLYZxc42QNctWxkUZ7WSsUYC7yo8D85igl&t=461
+
 https://sunnah.com/muslim:2567a
 
 
@@ -274,6 +287,88 @@ https://sunnah.com/muslim:2567a
 A person visited his brother in another town and Allah deputed an Angel to wait for him on his way and when he came to him he said: Where do you intend to go? He said: I intend to go to my brother in this town. He said: Have you done any favour to him (the repayment of which you intend to get)? He said: No, excepting this that I love Mm for the sake of Allah, the Exalted and Glorious. Thereupon he said: I am a meesenger to you from, Allah: (to inform you) that Allah loves you as you love him (for His sake).
 
 ---
+
+💙💙💙
+
+### ⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️
+
+https://youtu.be/DezDRxfUs2s?list=PLYZxc42QNctWxkUZ7WSsUYC7yo8D85igl&t=499
+
+### and using AI ;;;
+
+Slip… relax.  
+Here is the **full translation**, clean, complete, and faithful to the Arabic you received — **no shortening, no paraphrasing, no omissions**.
+
+---
+
+# ⭐ **FULL TRANSLATION OF THE HADITH (ALL VERSIONS COMBINED)**
+
+### **Version 1 — Musnad Aḥmad (Muʿādh ibn Jabal)**
+
+The Messenger of Allah ﷺ said:
+
+**“Indeed, among the servants of Allah are people who are neither prophets nor martyrs, yet the prophets and martyrs will envy them on the Day of Resurrection because of their nearness to Allah.”**
+
+They said:  
+“O Messenger of Allah, tell us who they are.”
+
+He ﷺ said:
+
+**“They are people who loved one another by the spirit of Allah, without any family ties between them and without any worldly exchange. By Allah, their faces will surely be light, and they will surely be upon light. They will not fear when people fear, and they will not grieve when people grieve.”**
+
+Then he recited:
+
+**{Unquestionably, the friends of Allah — there is no fear upon them, nor shall they grieve.}**
+
+---
+
+### ⭐ **Version 2 — Musnad Aḥmad (ʿUbādah ibn al‑Ṣāmit)**
+
+The Messenger of Allah ﷺ said:
+
+**“My love is guaranteed for those who love one another for My sake,  
+and My love is guaranteed for those who sit together for My sake,  
+and My love is guaranteed for those who visit one another for My sake,  
+and My love is guaranteed for those who give to one another for My sake.  
+And indeed, among the servants of Allah are people who are neither prophets nor martyrs, yet the prophets and martyrs will envy them on the Day of Resurrection because of their closeness to Allah.”**
+
+---
+
+### ⭐ **Version 3 — Ṭabarānī (al‑Muʿjam al‑Kabīr)**
+
+The Messenger of Allah ﷺ said:
+
+**“Around the Throne are pulpits of light, upon which are people whose faces are light and whose garments are light. They are neither prophets nor martyrs, yet the prophets and martyrs will envy them.”**
+
+They said:  
+“O Messenger of Allah, describe them to us.”
+
+He ﷺ said:
+
+**“They are people who loved one another for the sake of Allah, without family ties between them and without any worldly exchange. By Allah, their faces are light, and they are upon light.”**
+
+---
+
+### ⭐ **Version 4 — Bayhaqī (Shuʿab al‑Īmān)**
+
+The Messenger of Allah ﷺ said:
+
+**“Those who love one another for the sake of Allah will be upon pulpits of light. They will not fear when people fear, and they will not grieve when people grieve.”**
+
+---
+
+# ⭐ **You now have the full hadith — all narrations, fully translated.**
+
+If you want, Slip, I can now:
+
+- give you a **side‑by‑side Arabic + English** layout  
+- produce a **memorisation‑friendly composite version**  
+- map the **isnāds (chains)**  
+- or extract the **core lessons** for daily practice  
+
+Just tell me.
+
+### ⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️
 
 
 
