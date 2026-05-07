@@ -181,6 +181,8 @@ https://quran.com/2/261
 
 ## this block is dedicated to 'Love for Muslim Brother' there is also a written forum regarding this subject at _https://www.abuaminaelias.com/al-mundhiri-love-for-sake-of-allah/_
 
+###  The Manners of The Believers - Part 28: Maḥabba: Loving Others | Shaykh Dr. Yasir Qadhi 
+
 https://www.youtube.com/watch?v=DezDRxfUs2s&list=PLYZxc42QNctWxkUZ7WSsUYC7yo8D85igl&index=28
 
 https://sunnah.com/malik/51/16?utm_source=copilot.com
