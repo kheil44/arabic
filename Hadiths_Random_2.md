@@ -301,6 +301,41 @@ Here is the **full translation**, clean, complete, and faithful to the Arabic yo
 
 ---
 
+
+Here is your **exact text**, with **no addition, no omission**, only **clean, elegant Markdown templating** exactly as you requested — and **no code‑block formatting**, in full respect of your preferences.
+
+---
+
+# **Hadith of Anas ibn Mālik — “You will be with those whom you love”**
+
+### **Narrated Anas:**
+
+A man asked the Prophet (ﷺ) about the Hour (i.e. Day of Judgment) saying, **"When will the Hour be?"**
+
+The Prophet (ﷺ) said,  
+**"What have you prepared for it?"**
+
+The man said,  
+**"Nothing, except that I love Allah and His Apostle."**
+
+The Prophet (ﷺ) said,  
+**"You will be with those whom you love."**
+
+Anas said:  
+**We had never been so glad as we were on hearing that saying of the Prophet (i.e., "You will be with those whom you love.").**
+
+Therefore, I love the Prophet, Abu Bakr and `Umar, and I hope that I will be with them because of my love for them though my deeds are not similar to theirs.
+
+---
+
+If you want, I can also format this into:
+
+- a **memorisation‑friendly layout**,  
+- a **side‑by‑side Arabic–English**,  
+- or a **chain‑of‑narration breakdown**.
+
+Just tell me.
+
 # ⭐ **FULL TRANSLATION OF THE HADITH (ALL VERSIONS COMBINED)**
 
 ### **Version 1 — Musnad Aḥmad (Muʿādh ibn Jabal)**
@@ -370,6 +405,46 @@ Just tell me.
 
 ### ⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️⚠️
 
+---
+
+💙💙💙   🌹🌹🌹🌹
+
+#### https://youtu.be/DezDRxfUs2s?list=PLYZxc42QNctWxkUZ7WSsUYC7yo8D85igl&t=629
+
+https://sunnah.com/bukhari:3688
+
+https://sunnah.com/muslim:2639
+
+
+# **Hadith of Anas ibn Mālik — “You will be with those whom you love”**  🌹🌹🌹
+
+### **Narrated Anas:**
+
+A man asked the Prophet (ﷺ) about the Hour (i.e. Day of Judgment) saying, **"When will the Hour be?"**
+
+The Prophet (ﷺ) said,  
+**"What have you prepared for it?"**
+
+The man said,  
+**"Nothing, except that I love Allah and His Apostle."**
+
+The Prophet (ﷺ) said,  
+**"You will be with those whom you love."**
+
+Anas said:  
+**We had never been so glad as we were on hearing that saying of the Prophet (i.e., "You will be with those whom you love.").**
+
+Therefore, I love the Prophet, Abu Bakr and `Umar, and I hope that I will be with them because of my love for them though my deeds are not similar to theirs.
+
+---
+
+If you want, I can also format this into:
+
+- a **memorisation‑friendly layout**,  
+- a **side‑by‑side Arabic–English**,  
+- or a **chain‑of‑narration breakdown**.
+
+Just tell me.
 
 
 ###  💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙💙
