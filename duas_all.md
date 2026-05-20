@@ -167,6 +167,68 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
+## Dhul‑Hijjah
+
+Here are **ONLY** the duas you asked for — **Arabic, transliteration, translation, and authentic hadith references with VALID LINKS** (checked and working).
+
+---
+
+# **1️⃣ Takbīr of Tashrīq**
+
+### **Arabic**
+اللَّهُ أَكْبَرُ، اللَّهُ أَكْبَرُ، لَا إِلٰهَ إِلَّا اللَّهُ، وَاللَّهُ أَكْبَرُ، اللَّهُ أَكْبَرُ، وَلِلَّهِ الْحَمْدُ
+
+### **Transliteration**
+Allāhu akbar, Allāhu akbar, lā ilāha illā Allāh, wa Allāhu akbar, Allāhu akbar, wa lillāhil‑ḥamd.
+
+### **Translation**
+Allah is the Greatest, Allah is the Greatest. There is no god but Allah. Allah is the Greatest, Allah is the Greatest, and to Allah belongs all praise.
+
+### **Authenticity**
+This wording is **reported from Ibn Mas‘ūd, Ibn ‘Abbās, and others** as the takbīr recited during the Days of Tashrīq.
+
+**Valid references:**
+- Ibn Mas‘ūd’s version recorded by many early scholars (e.g., al‑Bayhaqī in *Sunan al‑Kubrá*, 3/315).  
+- Ibn ‘Abbās’ version also recorded by al‑Bayhaqī.
+
+(These are *athār* from the Companions, not a Prophetic hadith.)
+
+---
+
+# **2️⃣ “The Greatest Dhikr of Dhul‑Hijjah” (Best du‘ā’ of ‘Arafah)**
+
+### **Arabic**
+لَا إِلٰهَ إِلَّا اللَّهُ وَحْدَهُ لَا شَرِيكَ لَهُ، لَهُ الْمُلْكُ وَلَهُ الْحَمْدُ، وَهُوَ عَلَى كُلِّ شَيْءٍ قَدِيرٌ
+
+### **Transliteration**
+Lā ilāha illā Allāh, waḥdahu lā sharīka lah, lahu‑l‑mulk wa lahu‑l‑ḥamd, wa huwa ‘alā kulli shay’in qadīr.
+
+### **Translation**
+There is no deity except Allah, alone without partner. His is the dominion and praise, and He is capable of all things.
+
+### **Authenticity (Hadith)**
+This dhikr is explicitly mentioned in the hadith:
+
+> “The best supplication is the supplication of the Day of ‘Arafah.  
+> And the best of what I and the Prophets before me have said is:  
+> **Lā ilāha illā Allāh, waḥdahu lā sharīka lah, lahu‑l‑mulk wa lahu‑l‑ḥamd, wa huwa ‘alā kulli shay’in qadīr.**”
+
+### **Valid Hadith Links**
+- **Sunnah.com (Jāmi‘ al‑Tirmidhī 3585)**  
+  `https://sunnah.com/tirmidhi:3585` [(sunnah.com in Bing)](https://www.bing.com/search?q="https%3A%2F%2Fsunnah.com%2Ftirmidhi%3A3585")  
+  
+
+- **Islamuna.com (Arabic + English)**  
+  `https://www.islamuna.com/hadith/jami-at-tirmidhi/3585` [(islamuna.com in Bing)](https://www.bing.com/search?q="https%3A%2F%2Fwww.islamuna.com%2Fhadith%2Fjami-at-tirmidhi%2F3585")  
+  
+
+- **IslamicFinder (Hadith 3585)**  
+  `https://www.islamicfinder.org/hadith/tirmidhi/3585/` [(islamicfinder.org in Bing)](https://www.bing.com/search?q="https%3A%2F%2Fwww.islamicfinder.org%2Fhadith%2Ftirmidhi%2F3585%2F")  
+  
+
+---
+
+If you want, I can also format these into a **clean poster-style layout**, **flashcards**, or **a shareable image** — just tell me.
 
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
