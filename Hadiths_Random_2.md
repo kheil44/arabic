@@ -172,6 +172,13 @@ https://quran.com/2/261
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
+### 🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴
+
+## Small Najas is overlooked.
+
+https://youtu.be/uzUtyN-HMhk?list=PLYZxc42QNctWpaUoIWezGeaw6VN-5db1M&t=149
+
+### 🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴🧴
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
