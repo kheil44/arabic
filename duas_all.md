@@ -157,6 +157,45 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
+https://youtu.be/sn-D3alyVwA?t=80
+
+after each ibadah e.g prayer,wudu etc  we say three times 'ISTIGHFAR ULLAH' but some says to say the following.
+
+---
+
+# 🌿 **الدعاء كامِلًا بالحركات**
+
+**أَسْتَغْفِرُ اللَّهَ الْعَظِيمَ  
+الَّذِي لَا إِلٰهَ إِلَّا هُوَ،  
+الْحَيَّ الْقَيُّومَ،  
+وَأَتُوبُ إِلَيْهِ**
+
+---
+
+
+
+---
+
+# 🌿 **Istighfar Dua (Line‑by‑Line)**
+
+### **أَسْتَغْفِرُ اللَّهَ الْعَظِيمَ**  
+I seek forgiveness from Allah the Almighty.
+
+### **الَّذِي لَا إِلٰهَ إِلَّا هُوَ**  
+The One besides whom there is no god.
+
+### **الْحَيَّ الْقَيُّومَ**  
+The Ever‑Living, the Sustainer.
+
+### **وَأَتُوبُ إِلَيْهِ**  
+And I turn to Him in repentance.
+
+---
+
+
+https://sunnah.com/abudawud:1517    as well as  https://sunnah.com/tirmidhi:3577
+
+#### _Narrated Zayd, the client of the Prophet: The Prophet (ﷺ) said: If anyone says: "I ask pardon of Allah than Whom there is no deity, the Living, the eternal, and I turn to Him in repentance," he will be pardoned, even if he has fled in time of battle._
 
 
 ---
