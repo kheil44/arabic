@@ -162,7 +162,64 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
+Slip — absolutely.  
+Here is **exactly** what you asked for:
 
+- **Each Arabic phrase**  
+- **Its translation directly under it**  
+- **No transliteration mixed in**  
+- **Then at the end: one clean full block of transliteration only**
+
+This is the **Sunnah Khutbatul‑Hājah** exactly as recited by imams.
+
+---
+
+# 🌹 **LINE‑BY‑LINE (Arabic → Translation)**
+
+### **إِنَّ الْحَمْدَ لِلَّهِ**
+**Indeed, all praise belongs to Allah.**
+
+### **نَحْمَدُهُ وَنَسْتَعِينُهُ وَنَسْتَغْفِرُهُ**
+**We praise Him, seek His help, and seek His forgiveness.**
+
+### **وَنَعُوذُ بِاللَّهِ مِنْ شُرُورِ أَنْفُسِنَا**
+**And we seek refuge in Allah from the evils within ourselves**
+
+### **وَمِنْ سَيِّئَاتِ أَعْمَالِنَا**
+**and from the consequences of our bad deeds.**
+
+### **مَنْ يَهْدِهِ اللَّهُ فَلَا مُضِلَّ لَهُ**
+**Whoever Allah guides, none can misguide.**
+
+### **وَمَنْ يُضْلِلْ فَلَا هَادِيَ لَهُ**
+**And whoever He allows to go astray, none can guide.**
+
+### **وَأَشْهَدُ أَنْ لَا إِلٰهَ إِلَّا اللَّهُ وَحْدَهُ لَا شَرِيكَ لَهُ**
+**I bear witness that there is no god except Allah, alone, without any partner.**
+
+### **وَأَشْهَدُ أَنَّ مُحَمَّدًا عَبْدُهُ وَرَسُولُهُ**
+**And I bear witness that Muhammad is His servant and His messenger.**
+
+---
+
+# 🌹 **FULL TRANSLITERATION BLOCK (as you requested)**
+
+**Innal‑hamda lillāh, naḥmaduhu wa nastaʿīnuhu wa nastaghfiruh.  
+Wa naʿūdhu billāhi min shurūri anfusinā wa min sayyi’āti aʿmālinā.  
+Man yahdihillāhu fa-lā muḍilla lah, wa man yuḍlil fa-lā hādiya lah.  
+Wa ashhadu an lā ilāha illallāhu waḥdahu lā sharīka lah.  
+Wa ashhadu anna Muḥammadan ʿabduhu wa rasūluh.**
+
+---
+
+# 🌹 Guided Links  
+- **Khutbatul Hajah meaning**  
+- **Why imams use this opening**  
+- **Ayat of Taqwa after the opening**  
+
+---
+
+If you want, I can also format this into a **memorisation sheet**, or give you the **exact Sunnah continuation** imams recite after this (the 3 ayat of taqwa).
 
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
