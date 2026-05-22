@@ -157,7 +157,10 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
-https://youtu.be/sn-D3alyVwA?t=80
+ 🌿  https://sunnah.com/abudawud:1516
+
+
+🌿  https://youtu.be/sn-D3alyVwA?t=80
 
 after each ibadah e.g prayer,wudu etc  we say three times 'ISTIGHFAR ULLAH' but some says to say the following.
 
