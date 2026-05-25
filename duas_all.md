@@ -153,6 +153,40 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
+### istigfar
+
+https://youtu.be/TJDuFiGQnOQ?t=640
+
+
+---
+
+# 🌹 **The Full Dua (with ḥarakāt)**
+
+### **اللَّهُمَّ إِنِّي ظَلَمْتُ نَفْسِي ظُلْمًا كَثِيرًا، وَلَا يَغْفِرُ الذُّنُوبَ إِلَّا أَنْتَ، فَاغْفِرْ لِي مَغْفِرَةً مِنْ عِنْدِكَ، وَارْحَمْنِي، إِنَّكَ أَنْتَ الْغَفُورُ الرَّحِيمُ**
+
+---
+
+# 🌹 **Translation (precise and faithful)**
+
+> **O Allah, I have wronged myself with great wrongdoing,  
+> and none forgives sins except You.  
+> So forgive me with a forgiveness from Yourself,  
+> and have mercy on me.  
+> Indeed, You are the Most Forgiving, the Most Merciful.**
+
+---
+
+# 🌹 **Authentic Sources (Valid Clickable Links)**
+
+### ✔ **Ṣaḥīḥ al‑Bukhārī — Hadith 834**  
+`https://sunnah.com/bukhari:834` [(sunnah.com in Bing)](https://www.bing.com/search?q="https%3A%2F%2Fsunnah.com%2Fbukhari%3A834")
+
+### ✔ **Ṣaḥīḥ Muslim — Hadith 2705**  
+`https://sunnah.com/muslim:2705` [(sunnah.com in Bing)](https://www.bing.com/search?q="https%3A%2F%2Fsunnah.com%2Fmuslim%3A2705")
+
+---
+
+
 
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
