@@ -143,6 +143,29 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
+https://medium.com/@aalaka/a-du-%C4%81-that-covers-all-good-all-evil-and-all-of-the-hereafter-0477beb6e3e0
+
+
+In the vast treasury of prophetic supplications, few du‘ās are as comprehensive, profound, and universally relevant as this one. It was taught directly by the Messenger of Allah ﷺ to his beloved wife, ‘Ā’ishah (may Allah be pleased with her) – and it covers every aspect of our lives: past, future, known, unknown, personal, and eternal.
+
+This is not just a du‘ā to be read – it’s one to memorize, reflect on, and live by.
+
+The Full Arabic Du‘ā (with Harakāt)
+عَنْ عَائِشَةَ رَضِيَ اللهُ عَنْهَا، أَنَّ رَسُولَ اللهِ صَلَّى اللهُ عَلَيْهِ وَسَلَّمَ عَلَّمَهَا هَذَا الدُّعَاءَ:
+
+اللَّهُمَّ إِنِّي أَسْأَلُكَ مِنَ الْخَيْرِ كُلِّهِ، عَاجِلِهِ وَآجِلِهِ، مَا عَلِمْتُ مِنْهُ وَمَا لَمْ أَعْلَمْ، وَأَعُوذُ بِكَ مِنَ الشَّرِّ كُلِّهِ، عَاجِلِهِ وَآجِلِهِ، مَا عَلِمْتُ مِنْهُ وَمَا لَمْ أَعْلَمْ، اللَّهُمَّ إِنِّي أَسْأَلُكَ مِنْ خَيْرِ مَا سَأَلَكَ عَبْدُكَ وَنَبِيُّكَ مُحَمَّدٌ صَلَّى اللهُ عَلَيْهِ وَسَلَّمَ، وَأَعُوذُ بِكَ مِنْ شَرِّ مَا عَاذَ مِنْهُ عَبْدُكَ وَنَبِيُّكَ، اللَّهُمَّ إِنِّي أَسْأَلُكَ الْجَنَّةَ، وَمَا قَرَّبَ إِلَيْهَا مِنْ قَوْلٍ أَوْ عَمَلٍ، وَأَعُوذُ بِكَ مِنَ النَّارِ، وَمَا قَرَّبَ إِلَيْهَا مِنْ قَوْلٍ أَوْ عَمَلٍ، وَأَسْأَلُكَ أَنْ تَجْعَلَ كُلَّ قَضَاءٍ تَقْضِيهِ لِي خَيْرًا.
+
+Reported by Aḥmad (24498), Ibn Mājah (3846). Authenticated by al-Albānī in Ṣaḥīḥ al-Jāmiʿ (1276).
+
+English Translation
+“O Allah, I ask You for all good – immediate and delayed – that which I know and that which I do not know. And I seek refuge in You from all evil – immediate and delayed – that which I know and that which I do not know.
+
+O Allah, I ask You for the best of what Your servant and prophet Muḥammad ﷺ asked You for, and I seek refuge in You from the worst of what Your servant and prophet Muḥammad ﷺ sought refuge from.
+
+O Allah, I ask You for Paradise and for all speech and actions that bring one closer to it, and I seek refuge in You from the Fire and from all speech and actions that bring one closer to it.
+
+And I ask You to make every decree that You decree for me a good one.”
+
 
 
 ---
