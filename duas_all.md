@@ -178,6 +178,33 @@ O Allah, help me to remember You, to be grateful to You, and to worship You beau
 
 
 ---
+
+# 🌹 **WORD‑FOR‑WORD (WITH ḤARAKĀT)**
+
+- **اللَّهُمَّ**  
+  O Allah  
+
+- **أَعِنِّي**  
+  help me / support me  
+
+- **عَلَى**  
+  upon / in  
+
+- **ذِكْرِكَ**  
+  Your remembrance  
+
+- **وَشُكْرِكَ**  
+  and Your gratitude  
+
+- **وَحُسْنِ**  
+  and the beauty / excellence  
+
+- **عِبَادَتِكَ**  
+  of Your worship  
+
+
+
+---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
 ### istigfar
