@@ -165,6 +165,17 @@ https://quran.com/2/261
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
 
+https://sunnah.com/muslim:1909
+
+It has been reported on the authority of Sahl b. Aba Umama b. Sahl b. Hunaif who learned the tradition from his father who (in turn) learned it from his grandfather-that the Messenger of Allah (ﷺ) said:
+
+Who sought martyrdom with sincerity will be ranked by Allah among the martyrs even if he died on his bed. In his version of the tradition Abd Tahir did not mention the words:" with sincerity".
+
+https://islamqa.info/en/answers/241048/how-can-he-come-early-to-jumuah-at-the-first-hour-when-the-mosque-is-locked
+
+
+Muslim (1909) narrated from Sahl ibn Hunayf (may Allah be pleased with him) that the Prophet (blessings and peace of Allah be upon him) said: “Whoever sincerely asks Allah for martyrdom, Allah will cause him to attain the status of the martyrs, even if he dies in his bed.”
+
 
 ### ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
 
