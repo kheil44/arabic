@@ -139,6 +139,68 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
 
+Here you go, Slip — **clean, perfectly structured**, **Arabic first**, **links underneath**, then **translation**.  
+Both versions are grouped separately so you can memorise and reference them easily.
+
+No code blocks. Full harakat. Verified from **Sahih al‑Bukhari** and **Sahih Muslim**.
+
+---
+
+# 🌹 **1. Salat al‑Ibrahimiyyah (Version: “Aal Muhammad”)**
+
+### **Arabic (fully vocalised)**  
+**اللَّهُمَّ صَلِّ عَلَىٰ مُحَمَّدٍ وَعَلَىٰ آلِ مُحَمَّدٍ، كَمَا صَلَّيْتَ عَلَىٰ إِبْرَاهِيمَ وَعَلَىٰ آلِ إِبْرَاهِيمَ، إِنَّكَ حَمِيدٌ مَجِيدٌ.  
+اللَّهُمَّ بَارِكْ عَلَىٰ مُحَمَّدٍ وَعَلَىٰ آلِ مُحَمَّدٍ، كَمَا بَارَكْتَ عَلَىٰ إِبْرَاهِيمَ وَعَلَىٰ آلِ إِبْرَاهِيمَ، إِنَّكَ حَمِيدٌ مَجِيدٌ.**
+
+### **Authentic Links**  
+- Sahih al‑Bukhari 3370  
+  `https://sunnah.com/bukhari:3370` [(sunnah.com in Bing)](https://www.bing.com/search?q="https%3A%2F%2Fsunnah.com%2Fbukhari%3A3370")  
+- Sahih al‑Bukhari 6357  
+  `https://sunnah.com/bukhari:6357` [(sunnah.com in Bing)](https://www.bing.com/search?q="https%3A%2F%2Fsunnah.com%2Fbukhari%3A6357")  
+- Sahih Muslim 406  
+  [https://sunnah.com/muslim:406](https://sunnah.com/muslim:406)  
+
+### **Translation**  
+**“O Allah, send Your blessings upon Muhammad and upon the family of Muhammad,  
+as You sent blessings upon Ibrahim and the family of Ibrahim.  
+Indeed, You are Praiseworthy, Glorious.  
+
+O Allah, bless Muhammad and the family of Muhammad,  
+as You blessed Ibrahim and the family of Ibrahim.  
+Indeed, You are Praiseworthy, Glorious.”**
+
+---
+
+# 🌹 **2. Salat al‑Ibrahimiyyah (Version: “Azwājihi wa Dhurriyyatihi”)**
+
+### **Arabic (fully vocalised)**  
+**اللَّهُمَّ صَلِّ عَلَىٰ مُحَمَّدٍ وَعَلَىٰ أَزْوَاجِهِ وَذُرِّيَّاتِهِ، كَمَا صَلَّيْتَ عَلَىٰ إِبْرَاهِيمَ، وَبَارِكْ عَلَىٰ مُحَمَّدٍ وَعَلَىٰ أَزْوَاجِهِ وَذُرِّيَّاتِهِ، كَمَا بَارَكْتَ عَلَىٰ آلِ إِبْرَاهِيمَ، إِنَّكَ حَمِيدٌ مَجِيدٌ.**
+
+### **Authentic Links**  
+- Sahih al‑Bukhari 3369  
+  `https://sunnah.com/bukhari:3369` [(sunnah.com in Bing)](https://www.bing.com/search?q="https%3A%2F%2Fsunnah.com%2Fbukhari%3A3369")  
+- Sahih al‑Bukhari 3370  
+  `https://sunnah.com/bukhari:3370` [(sunnah.com in Bing)](https://www.bing.com/search?q="https%3A%2F%2Fsunnah.com%2Fbukhari%3A3370")  
+- Sahih Muslim 407  
+  [https://sunnah.com/muslim:407](https://sunnah.com/muslim:407)  
+
+### **Translation**  
+**“O Allah, send Your blessings upon Muhammad, and upon his wives and his descendants,  
+as You sent blessings upon Ibrahim.  
+
+And bless Muhammad, and his wives and his descendants,  
+as You blessed the family of Ibrahim.  
+Indeed, You are Praiseworthy, Glorious.”**
+
+---
+
+If you want, I can now:
+
+- Combine both versions into a **memorisation chart**  
+- Give you **all variants** found in Bukhari & Muslim side‑by‑side  
+- Provide **simplified transliteration** (no diacritic letters, matching your preference)  
+
+Just tell me which format you want.
 
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
