@@ -133,6 +133,15 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
+https://sunnah.com/bukhari:4372
+
+## A chief of Banu Hanifa [ثُمَامَةُ بْنُ أُثَالٍ] Who ATE a Lot...
+
+
+https://sunnah.com/muslim:2063
+
+A believer drinks In one intestine whereas a non-believer drinks in seven intestines.
+
 
 
 ---
