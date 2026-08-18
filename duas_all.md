@@ -143,6 +143,9 @@ https://sunnah.com/muslim:2063
 A believer drinks In one intestine whereas a non-believer drinks in seven intestines.
 
 
+https://www.youtube.com/watch?v=pv0KY-ZH8RY
+ Thumama ibn Uthal (ra): The most powerful Muslim of his time? | The Firsts | Dr. Omar Suleiman 
+
 
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
