@@ -128,6 +128,10 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
+https://sunnah.com/abudawud:997
+
+saying "وَبَرَكَاتُهُ" in tasleem
+
 
 
 ---
