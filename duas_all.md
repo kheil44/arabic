@@ -123,6 +123,12 @@ https://youtu.be/5sTJFj-ANCQ?t=1547
 ---
 ### 🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲🤲
 
+### Jibra'il began shoving clay / Jibrail (عَلَيْهِ ٱلسَّلَامُ) [Gabriel (Peace be upon him)] 
+
+https://sunnah.com/tirmidhi:3108
+
+https://sunnah.com/tirmidhi:3107
+
 
 
 ---
